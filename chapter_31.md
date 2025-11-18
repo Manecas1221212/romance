@@ -1,4 +1,4 @@
-# Chapter 30: The Legacy
+# Chapter 31: The Legacy
 
 Anna didn't sleep that night. Or the next. Or the week after.
 

@@ -1,4 +1,4 @@
-# Chapter 23: The Plan
+# Chapter 24: The Plan
 
 Anna spent two days building her case.
 
@@ -90,7 +90,27 @@ Anna could live with it.
 
 They spent Tuesday night preparing. Andrew printed the documents on a library computer. Anna typed the cover letter at a different library. They wore gloves. Used generic envelopes.
 
-"Why did she do it?" Andrew asked as they worked. "What did you do to make her hate you this much?"
+"Why did you break into her apartment in the first place?" Andrew asked as they worked. "I mean, what made you suspect Jane specifically?"
+
+Anna explained. The sabotage that had been happening for months. The phantom emails, corrupted files, fake calendar invites. IT saying it was someone with physical access. The timing—everything escalating after Mia's death.
+
+"And you thought it was Jessica at first."
+
+"Yes. Because the sabotage stopped after she died. But then it started again. That's when I knew I'd been wrong."
+
+Andrew was quiet for a moment. "Do you think Jane could have killed Jessica? To frame you?"
+
+Anna had thought about this. Searched the evidence for proof.
+
+"I couldn't find evidence of it. But most likely, yes. Jessica's death looked like suicide, but... Jane had motive. She was manipulating everything else. Why not that too?"
+
+"Jesus Christ."
+
+"I know."
+
+Andrew looked at the documents spread across the table. Evidence of his sister's murder. Evidence of a conspiracy that had destroyed their marriage.
+
+"Why did she do it?" he asked quietly. "What did you do to make her hate you this much?"
 
 "Nothing. I was her protégé. Her success story."
 
@@ -104,27 +124,7 @@ Anna thought about it. About Jane's empty apartment. Jane's comments about sacri
 
 "No. She tried to make me destroy it. Make me choose. Prove that you can't have everything."
 
-"And you did choose," Andrew said quietly. "You killed Jessica."
-
-The accusation hung there.
-
-"Yes," Anna said. "I did."
-
-"Why are you telling me this now?"
-
-"Because if we're going to stop Jane, we need to be honest with each other. At least about this."
-
-Andrew looked at her for a long time. "Did Jessica suffer?"
-
-"No."
-
-"Was it quick?"
-
-"Yes."
-
-"Does that matter?"
-
-"I don't know."
+"Well," Andrew said bitterly, "she succeeded."
 
 They finished the packet in silence.
 

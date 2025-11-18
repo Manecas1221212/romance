@@ -1,4 +1,4 @@
-# Chapter 9: Surveillance
+# Chapter 10: Surveillance
 
 Anna started documenting everything.
 
@@ -106,11 +106,11 @@ The words landed like slaps.
 
 Anna stood. "I'm trying to hold our life together."
 
-"No. You're trying to control everything because you can't control yourself." Andrew's eyes were wet. "I'm drowning, Anna. I lost my sister. I'm grieving. And you're so busy building cases and tracking phones that you haven't even noticed."
+"No. You're trying to control everything because you can't control yourself." Andrew's eyes were wet, his voice breaking. "I'm drowning, Anna. I lost my sister. Mia is dead. And I'm grieving alone because you're so busy building cases and tracking phones that you haven't even noticed."
 
 "I noticed."
 
-"Did you?" He stepped closer. "Because from where I'm standing, you cared more about your email security than you did about me crying in the studio at three a.m."
+"Did you?" He stepped closer, and she could see the genuine pain in his face. "Because from where I'm standing, you cared more about your email security than you did about me crying in the studio at three a.m. Mia died, and you made a checklist. That's who you've become."
 
 "That's not fair."
 
@@ -142,7 +142,23 @@ Found it. Apartment 4C, 128 Perry Street.
 
 Anna screenshot the address. Added it to the folder.
 
-Then she sat in the dark and thought about how easy it was to find someone.
+Then she sat in the dark and thought about how easy it was to find someone. How much information was just out there, waiting to be collected. Birth records, lease agreements, building layouts, entry codes posted in tenant Facebook groups.
 
-And how much easier it might be to make them go away.
+A person's entire life, mapped out in searchable databases.
+
+She thought about Jessica in that apartment right now. Probably with Andrew. Probably feeling safe. Probably thinking she'd won.
+
+Anna opened a new browser window. Incognito mode.
+
+*How to make someone disappear.*
+
+Her finger hovered over the search button. She didn't press it. Not yet.
+
+But she didn't close the window either.
+
+She sat there in the empty apartment, in the dark, with Andrew's location pin glowing on her phone and Jessica's address burning in her mind, and let herself think the thing she'd been circling around for weeks.
+
+Some problems couldn't be solved with documentation.
+
+Some problems required elimination.
 

@@ -1,4 +1,4 @@
-# Chapter 10: Fractures
+# Chapter 11: Fractures
 
 Andrew didn't come home for three days.
 
@@ -141,6 +141,28 @@ Anna opened her mouth. Closed it. She didn't remember.
 "Physically. But the rest of you?" He shook his head. "You left a long time ago."
 
 They sat in silence. Anna wanted to defend herself. Wanted to tell him about the sabotage, the stress, the feeling that her life was unraveling. But he looked so tired. So done.
+
+She had to ask. "Are you sleeping with her?"
+
+Andrew's jaw tightened. "With who?"
+
+"Jessica."
+
+He didn't answer immediately. The pause said everything.
+
+"I don't know what this is," he said finally. "With Jessica. She... she listens. When Mia died, she sent me that note, and then we just started talking. About art. About grief. About things I couldn't talk to you about because you were already gone."
+
+"Andrew—"
+
+"She makes me feel seen," he said, and his voice broke. "She asks about my work. She remembers things I tell her. She sits with me when I'm sad and doesn't try to fix it or schedule it or make it manageable. She just... sees me."
+
+Anna felt something crack inside her chest. "So you're having an affair."
+
+"I don't know what I'm having." He looked at her, and his eyes were wet. "I don't know if it's physical or emotional or just... survival. All I know is that when I'm with her, I don't feel invisible. And when I'm with you, I disappear."
+
+"That's not fair."
+
+"None of this is fair." He pulled his hand back completely. "But I can't keep doing this. I can't keep being the husband you check off a list. The background character in your success story."
 
 "Are you leaving me?" she asked.
 

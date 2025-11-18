@@ -1,4 +1,4 @@
-# Chapter 24: Unraveling
+# Chapter 25: Unraveling
 
 Jane was arrested on Friday morning.
 
@@ -78,25 +78,23 @@ Jane's preliminary hearing was scheduled for three weeks out.
 
 In the meantime, the board placed her on indefinite leave. Stripped her of all access. Erased her from Henderson's systems.
 
-One week after the arrest, Tom called Anna in again.
+Three weeks after the arrest, Tom called Anna in again.
 
-"The board met yesterday. Given Jane's... situation, we need to restructure. We're promoting you to full SVP. Effective immediately."
+"The board met yesterday. Given Jane's... situation, there's a vacancy on the board that needs to be filled."
 
 Anna felt something—not quite joy. More like confirmation.
 
-"Thank you."
+"I see."
 
-"You've earned it. Despite everything Jane put you through, you kept performing. Kept delivering. That's exactly the kind of resilience we need in leadership."
+"You've been SVP for a few months now. And despite everything Jane put you through—the sabotage, the psychological manipulation, the murder of your sister-in-law—you kept performing. Kept delivering. The Meridian deal, the Anderson renewal, the team stability. That's exactly the kind of resilience we need in leadership."
 
-"I appreciate the confidence."
-
-"There's more. The board is discussing adding a new board seat. Someone from M&A. Someone who understands the operations intimately."
+Tom leaned forward. "The board is considering candidates to fill Jane's seat. Someone from M&A. Someone who understands the operations intimately. Someone who's proven they can handle pressure."
 
 He looked at her meaningfully.
 
 "You're suggesting...?"
 
-"Not yet. But in a year or two, if you continue on this trajectory—Anna, you could be the youngest board member in Henderson's history."
+"I'm saying your name is at the top of the list. Not immediately—we need to see how the trial plays out, manage the optics. But in a year, maybe eighteen months, if you continue on this trajectory—Anna, you could be the youngest board member in Henderson's history."
 
 After Tom, Anna sat in her office and looked at the skyline.
 

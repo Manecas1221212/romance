@@ -1,4 +1,4 @@
-# Chapter 26: Aftermath
+# Chapter 27: Aftermath
 
 Six months after Jane's conviction, Anna stood in her new office.
 

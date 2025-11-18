@@ -1,4 +1,4 @@
-# Chapter 12: Parallel Lives
+# Chapter 13: Parallel Lives
 
 Andrew came for his clothes on Saturday morning exactly at ten, like he'd promised.
 
@@ -92,43 +92,27 @@ She didn't want to. She was late, exhausted, holding herself together with spite
 
 "What."
 
-"I wanted to check on you. I heard about your meeting with Tom. The leave of absence suggestion."
+"I wanted to check on you. I heard about your meeting with Tom. The leave of absence suggestion." He paused, looking genuinely uncomfortable. "Look, I know this is awkward. Us working together. I didn't know you were here when I accepted the position."
 
-"I'm fine."
+Anna studied his face. He looked tired. Sincere. "What are you talking about?"
 
-"You don't look fine. You look—" He stopped himself. "I'm worried about you."
-
-"Don't be."
-
-"Anna, we have history. I know you. And I know when you're spiraling."
-
-She turned to face him fully. "You don't know me. You knew a version of me from twenty years ago. That person doesn't exist anymore."
-
-"Doesn't she?" Jason stepped closer. "Because from where I'm standing, you're still the same woman who couldn't let go of control. Who pushed everyone away when things got hard. Who chose her career over everything else."
-
-"Is that why you're here? To remind me why we broke up?"
-
-"I'm here because someone on the executive team suggested me for this role. And I think we both know who."
-
-Anna's pulse quickened. "What are you saying?"
-
-"I'm saying someone wanted me here. Someone who knew our history. Someone who thought my presence would destabilize you."
-
-"Who?"
-
-Jason shrugged. "I don't know. But the offer came through unusual channels. A board member reached out directly. Bypassed normal recruiting. Made me an offer I couldn't refuse."
+"The recruitment for this role—it came through unusual channels. A board member reached out directly, bypassed normal recruiting. Made me an incredible offer." He rubbed the back of his neck. "I took it without asking enough questions. Didn't realize until my first day that you were the VP of M&A. I thought you should know... I didn't come here to make things difficult for you."
 
 "Which board member?"
 
-"I was asked to keep that confidential."
+"They asked me to keep it confidential, but..." He hesitated. "I wanted to clear the air. Twenty years is a long time. We were kids back then. I was an asshole. You deserved better."
 
-Anna's mind raced. Jane was on the board. Had Jane brought Jason here? But why?
+Anna blinked. This wasn't what she'd expected. "Why are you telling me this?"
 
-"Jason, if you know something—"
+"Because you look like you're going through hell, and I don't want you thinking I'm part of whatever's happening." He met her eyes. "I'm not here to destabilize you, Anna. I'm just here to do my job. Can we... can we just be colleagues? Civil, professional?"
 
-"I don't. I'm just telling you to watch your back. Someone's playing a game, and I think we're both pieces on their board."
+Anna's mind was still racing, but something in his tone rang true. "You really didn't know I worked here?"
 
-He walked away, leaving Anna standing alone in the garage, her paranoia expanding like a stain.
+"I swear. I wouldn't have taken the job if I'd known. Not because of you—because of optics. I'm trying to build something new, not rehash old history." He took a step back. "Anyway. I just wanted you to know. I'll stay out of your way."
+
+She watched him walk toward his car, shoulders slightly hunched. For the first time since he'd arrived, Anna wondered if maybe—just maybe—Jason wasn't the threat she'd thought he was.
+
+But if not Jason, then who had brought him here? And why?
 
 ---
 
@@ -146,27 +130,50 @@ That afternoon, Claire called.
 
 After they hung up, Anna sat at her desk and felt the walls closing in.
 
-Tom thought she was cracking. Andrew had confirmed an affair with Jessica. Jason claimed someone brought him here deliberately. Claire thought she was about to do something she'd regret.
+She tried to breathe. Tried to organize her thoughts the way she organized deals—into neat columns, manageable pieces. But everything was fragmenting.
 
-They were all right.
+**Facts:**
+- Tom thought she was cracking, suggested forced leave
+- Andrew had confirmed an emotional affair with Jessica, possibly physical
+- Jessica had access to her home, her life, her husband
+- The sabotage continued—emails, calendar invites, files corrupted
+- Jason had been recruited by a mysterious board member who knew their history
+- Jane was on the board
+- Claire was coming this weekend because she thought Anna was "about to do something stupid"
+- Her children were watching their family disintegrate
+- Her career—everything she'd built for seventeen years—was slipping away
+- Someone was sending threatening texts from untraceable numbers
 
-Anna opened her laptop and searched: *How long does DNA evidence last*.
+**Unknowns:**
+- Who was actually sabotaging her
+- Whether Jessica was sleeping with Andrew or just emotionally supporting him
+- Who brought Jason to Henderson and why
+- What Jane knew or didn't know
+- Whether any of this was connected or just her life falling apart in multiple directions simultaneously
 
-Then: *Cleaning methods forensics*.
+Anna stared at the list. When had everything become so complicated? When had she lost control of her own narrative?
 
-Then: *Alibis that hold up in court*.
+She thought about Columbia Anna—twenty-one, hungry, clear-eyed. That Anna would have had a plan. That Anna would have seen the pattern, identified the threat, neutralized it with precision.
 
-She cleared her browser history. Closed the laptop. Stared at her hands—steady, capable hands that had built a career and raised children and held her husband and could, if necessary, do what needed to be done.
+But forty-two-year-old Anna was drowning. And she didn't know if the water was real or if she was creating it herself.
 
 Her phone buzzed. Unknown number: *Time's running out. Choose.*
 
 Anna didn't call back. She knew the line would be dead.
 
-Instead, she opened the folder and wrote: *Timeline for action: Before Claire arrives. Before Tom makes leave mandatory. Before Jessica takes everything.*
+She sat there for a long time, trying to remember what stability felt like.
 
-Then she added: *Contingencies: Alibi. Location. Cleanup. Disposal.*
+Then she did something she'd never done before.
 
-She stared at the words for a long time.
+She googled: *therapists near me accepting new patients*.
 
-Then she saved the file and went back to work, a decision crystallizing in her mind like ice.
+Scrolled through profiles until she found someone who looked competent, professional, not too warm. Dr. Sarah Chen, cognitive behavioral therapy, executive clients.
+
+Anna filled out the intake form. Booked an appointment for next Friday at 6 PM. Put it in her calendar: *Dr. Chen—Initial consultation*.
+
+She stared at it. Felt something like relief, or maybe just exhaustion.
+
+She probably wouldn't go. But having it there—having a plan, even a plan she might not follow—made her feel slightly less like she was disappearing.
+
+Anna closed her laptop and went home to her empty apartment, where she would spend another night not sleeping, staring at the ceiling, trying to figure out who was destroying her life and whether she still had time to stop them.
 

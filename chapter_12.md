@@ -1,4 +1,4 @@
-# Chapter 11: Breaking Points
+# Chapter 12: Breaking Points
 
 Tom called her in Friday morning.
 
@@ -54,20 +54,6 @@ It had to be Jessica.
 
 Through Andrew. Through proximity. Through whatever game she was playing.
 
-Anna opened a private browser and searched Jessica's name again. This time she went deeper—social media, archived pages, old employer mentions. Found a blog from three years ago, now deleted but cached. Posts about "manifesting your dream life" and "claiming what's yours."
-
-One post, dated February 2021: *Sometimes you have to be willing to break something beautiful to build something better.*
-
-Anna screenshot it. Added it to the folder.
-
-Her phone buzzed. Andrew: *I'm coming by tomorrow to get some clothes. I'll be there at 10am when the kids are at their activities.*
-
-So clinical. Like they were roommates negotiating a lease.
-
-Anna: *Fine.*
-
-She wanted to type more. Wanted to ask where he was staying. If he was sleeping with Jessica. If he'd helped her destroy Anna's career. But her fingers felt numb.
-
 At three o'clock, Jessica appeared in Anna's doorway with tea.
 
 "Hey," Jessica said softly. "I heard about your meeting with Tom. I'm so sorry. If there's anything I can do—"
@@ -84,15 +70,15 @@ Jessica blinked. "What?"
 
 "Your apartment. In the West Village. Perry Street, right?"
 
-Something flickered across Jessica's face. "How do you know where I live?"
+Something flickered across Jessica's face—fear, brief and unmistakable. "How do you know where I live?"
 
 "Public records." Anna smiled. "I'm thorough. It's what makes me good at my job."
 
-"That's... a little strange, Anna."
+"That's... I don't understand why you'd..." Jessica's voice wavered. She took a small step back, her hand gripping the doorframe. "Anna, I really just wanted to help. I'm not—I would never—"
 
-"Is it? I'm just taking an interest in my team members. Making sure everyone's comfortable. You are comfortable, aren't you?"
+"Never what?"
 
-Jessica's expression shifted—wariness replacing concern. "I should go. I have a meeting."
+"I just... I should go." Jessica's eyes were wide, worried. "I have a meeting."
 
 "Of course. Thanks for the tea."
 
@@ -150,19 +136,47 @@ Anna's hand went to the doorknob. Turned it slowly. Locked.
 
 She stepped back. Looked at the door—standard deadbolt, no security bar visible from the gap at the bottom. Pickable, if she had tools. Breakable, if she didn't care about noise.
 
-She pulled out her phone. Opened the camera. Held it low near the door gap, where light spilled from inside. Took several photos, hoping to capture something incriminating.
+She stood there for another minute, listening. But the conversation had moved—or they were speaking more quietly. Or doing something that didn't require words.
 
-Then she turned and walked back down the stairs, out of the building, back to her car.
+Anna turned and walked back down the stairs, but instead of leaving, she waited in the lobby. Positioned herself by the mailboxes where she could see both the elevator and the stairs.
 
-She sat in the driver's seat and looked at the photos. Blurry, mostly dark. Nothing useful.
+Twenty minutes passed. Thirty.
 
-But she had the address. She had proof Andrew was here. She had time to plan.
+Then she heard footsteps descending. Andrew appeared, alone. His face was drawn, exhausted, but there was something softer there too—the kind of look he used to have after they made love, years ago. Peaceful. Seen.
 
-Anna opened the encrypted folder on her phone. Created a new document: *Contingency Plan.*
+Anna pressed herself against the wall, out of sight, as he passed through the lobby and out the door.
 
-Under it, she wrote a single line:
+She followed at a distance.
 
-*If Jessica Hall disappeared, who would notice first?*
+Andrew walked to the corner and raised his hand. A cab pulled over. He got in, and Anna ran to her car, pulling into traffic just in time to follow.
 
-She stared at the words for a long time. Then she drove home, made herself dinner she didn't eat, and sat in the dark thinking about irreversible choices.
+The cab didn't go far—just a few blocks to the waterfront, near the old piers. Andrew got out, paid, and the cab drove away.
+
+Anna parked across the street and watched.
+
+Andrew walked to a bench facing the Hudson. Sat down heavily, elbows on his knees, head in his hands. From this distance, in the amber glow of the streetlights, Anna could see his shoulders shaking.
+
+He was crying.
+
+Not the angry tears of their fights. Not the frustrated tears when his art didn't sell. This was grief—deep and unguarded, the kind you only showed when you thought no one was watching.
+
+Anna sat in her car and watched her husband cry for a woman who wasn't her.
+
+She waited there for forty minutes. Andrew didn't move. Just sat there by the river, crying for whatever he'd found in Jessica's apartment. Or maybe crying for what he'd lost with Anna. It was impossible to tell.
+
+Finally, he wiped his face and called another cab. Anna followed him back to what she assumed was Ben's apartment in Brooklyn. Watched him go inside.
+
+Then she drove home through the empty streets, her mind perfectly blank.
+
+She made herself dinner she didn't eat. Sat in the dark living room. Thought about Andrew's face in that conversation with Jessica—*I see you, Andrew*—and the way he'd cried on that bench.
+
+She thought about her career crumbling. Her marriage shattered. The sabotage that had no fingerprints.
+
+And somewhere in the dark hours before dawn, something shifted. Hardened. Became clear.
+
+If this was happening, Anna needed to understand it all. Every piece. Every connection. Every betrayal.
+
+Because you couldn't fight what you didn't understand.
+
+And Anna had always been very, very good at understanding systems.
 

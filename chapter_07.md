@@ -1,4 +1,4 @@
-# Chapter 6: Fractures
+# Chapter 7: Fractures
 
 The SVP announcement came three weeks after Mia's funeral. Tom Harrison called Anna into his office and offered her the title with a handshake and a "You've earned this."
 

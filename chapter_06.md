@@ -1,4 +1,4 @@
-# Chapter 5: The Sister
+# Chapter 6: The Sister
 
 Andrew's sister Mia had been dying for a long time before the fentanyl stopped her heart.
 

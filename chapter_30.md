@@ -1,4 +1,4 @@
-# Chapter 29: Mirrors
+# Chapter 30: Mirrors
 
 Anna turned sixty in a penthouse that cost more than most people made in a lifetime.
 

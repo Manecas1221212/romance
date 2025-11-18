@@ -1,4 +1,4 @@
-# Chapter 25: Jane's Defense
+# Chapter 26: Jane's Defense
 
 The preliminary hearing was a media circus.
 

@@ -26,9 +26,9 @@ Anna grabbed her wrist. Twisted. The phone clattered to the floor.
 
 Andrew sat in a dimly lit bar three blocks from the gallery, whiskey neat, contemplating how his life had fractured.
 
-The gallery show had been good. Better than good. People had loved his work. For the first time in years, he'd felt seen.
+The gallery show had been a disaster. Sparse attendance. Awkward silences. Three pieces sold to friends who probably felt obligated. For the first time in years, he'd felt truly invisible.
 
-And then Jessica had been there. Bright and warm and uncomplicated. And then the kids. And then—
+And Jessica hadn't even come. Said she had to work. He'd been disappointed, but understood.
 
 "Andrew Park?"
 
@@ -36,7 +36,7 @@ Andrew looked up. A man stood there—expensive suit, confident smile, familiar 
 
 "Yes?"
 
-"Jason Whitmore. We met briefly at your show last night." He extended a hand. "Mind if I join you? I'd love to talk about your work."
+"Jason Whitmore. We met briefly at your show earlier." He extended a hand. "Mind if I join you? I'd love to talk about your work."
 
 Andrew hesitated, then gestured to the empty seat. "Sure."
 
@@ -124,17 +124,17 @@ Andrew's stomach tightened.
 
 "It sounds exactly like Anna," Jason interrupted. "The woman who needs to control everything. Who sees people as pieces on a board. Who can't tolerate anyone having power she doesn't control."
 
-Andrew thought about the GPS tracking. The phone monitoring. The way Anna had interrogated him about where he was, who he was with, what he was doing.
+Andrew thought about the GPS tracking. The phone monitoring. The interrogations. The cold, analytical way Anna had documented his every movement.
 
 "The worst part," Jason continued, "was that she was convinced she was the victim. That I was the one hurting her by wanting independence. She couldn't see that her need for control was suffocating everything around her."
 
 "Why are you telling me this?"
 
-"Because Jessica called me this afternoon. Said Anna had been acting strange. Said she was scared."
+Jason leaned back. "Because I saw you with her at the gallery. Saw the way you looked—like you were drowning. I've been there. I know what it's like." He paused. "Look, I'm not trying to interfere in your marriage. I hope you and Anna can work things out. I really do. For your kids' sake, for everyone's sake. I just thought you should know who you're dealing with."
 
-Andrew went very still. "What did you tell her?"
+"You sound like you're warning me."
 
-"I told her to be careful. That Anna doesn't let go of things. That when Anna feels like she's losing control, she gets dangerous."
+"I'm not." Jason signaled for the check. "I'm just sharing my experience. What you do with it is your choice. Maybe she's different now. Maybe I was the problem. I don't know." He stood, extending his hand. "I hope things work out for all of you. I really do."
 
 ---
 
@@ -174,41 +174,29 @@ Then she stood up, peeled off the outer layer of gloves, and got to work.
 
 ---
 
-**8:36 PM — The Bar**
+**8:35 PM — The Bar**
 
-"I need to call her," Andrew said, reaching for his phone.
+Andrew watched Jason leave, then sat alone with his drink.
 
-"Who, Anna?"
+He thought about Anna. About twenty years of her life he hadn't known. About control and obsession and the fine line between ambition and something darker.
 
-"Jessica. I need to—she's with Anna right now. She texted me earlier. Said Anna wanted to talk."
+He thought about Jessica. Warm, uncomplicated Jessica, who listened when he talked about Mia, who understood grief in a way Anna never could.
 
-Jason's face went white. "When?"
+He thought about his children. His marriage. The wreckage of everything he'd built.
 
-"Around eight. She said Anna was coming to her apartment."
+And he wondered if he'd ever really known his wife at all.
 
-"Jesus Christ." Jason stood. "We need to call the police."
+By nine, Andrew paid his tab and left. The city was cold, the streets loud with Friday night energy. He walked for a while, not ready to go home, not ready to face anything.
 
-"And say what? My wife is having a conversation with her employee?"
+He thought about calling Jessica. Checking in. Making sure she was okay.
 
-"Your wife is a control freak who sees Jessica as a threat. Andrew, I'm telling you—when Anna feels cornered, she doesn't retreat. She eliminates."
+But he was tired. So tired of all of it.
 
-"That's insane. Anna wouldn't—she's not violent. She's just... intense."
+He'd call her tomorrow. They'd figure things out. Maybe Anna would calm down. Maybe they could all find a way forward.
 
-"Intense is how psychopaths survive in corporate America." Jason was already dialing. "Where does Jessica live?"
+He didn't know that tomorrow, Jessica wouldn't answer.
 
-Andrew stared at him. At his phone. At the terrible possibility crystallizing in his mind.
-
-All the tracking. The monitoring. The cold, calculating way Anna had documented everything. The way she'd asked about Jessica with too much control, like she was cataloging evidence for a case.
-
-"Perry Street," Andrew whispered. "128 Perry Street, apartment 4C."
-
-Jason relayed the address to 911. "We need a wellness check. Possible domestic disturbance. Possible violence."
-
-Andrew grabbed his coat. "I'm going there."
-
-"We both are. But Andrew—if I'm right, if we're too late—you need to be prepared for what we might find."
-
-They ran.
+He didn't know that by tomorrow, everything would be too late.
 
 ---
 
@@ -218,29 +206,43 @@ Anna worked methodically.
 
 Cleaned the surfaces Jessica had touched. Wiped down the duct tape, the tarp, the gloves. Bagged everything in heavy-duty garbage bags—triple-layered, airtight.
 
-Moved Jessica's body to the bedroom. Staged it to look like she was sleeping. Peaceful. No visible marks on her neck where Anna had pressed.
+Removed the tape from Jessica's body. Cleaned under her fingernails—no DNA evidence. Checked for fibers, hairs, anything that could trace back.
 
-Checked the apartment for anything with Anna's DNA. Found a hair on Jessica's sweater. Bagged it.
+Then came the staging.
 
-Checked her timeline. 8:47. She was ahead of schedule.
+Anna had thought about this part carefully. A murder would bring detectives, forensics, scrutiny. But a suicide? Grief, depression, guilt—those were easy to believe. Especially for a young woman caught in an affair with her married boss's husband.
 
-Anna changed clothes. Rolled the hoodie and jeans into a bag. Put on the clean outfit she'd brought—business casual, forgettable.
+She drafted the note on Jessica's laptop, wearing gloves:
 
-Wiped down everything one more time.
+*I can't do this anymore. The guilt is eating me alive. I'm so sorry for what I've done—to Anna, to Andrew, to everyone I've hurt. I thought I could handle it, but I can't. I'm not strong enough. Please forgive me. —J*
+
+She printed it. Left it on the coffee table.
+
+Then she rigged the bedroom closet. Belt looped over the rod. Positioned Jessica's body. Made it look self-inflicted—the angle right, the pressure marks consistent.
+
+It took twenty minutes to get it perfect.
+
+Anna stepped back. Checked every detail. The note. The position. The lack of struggle. The closed windows. The locked door.
+
+Suicide. Clean. Tragic. Believable.
+
+She gathered her bags. Changed clothes. Rolled everything contaminated into plastic.
+
+Checked her timeline. 9:10. Still on schedule.
+
+One final sweep for evidence. One final check of surfaces.
 
 Then she walked to the door. Checked the peephole. Hallway empty.
 
-Opened the door. Stepped out. Closed it softly behind her.
+Opened the door. Stepped out. Locked it with the spare key Jessica had once given Andrew (which Anna had borrowed weeks ago). Wiped the key. Dropped it in her bag.
 
 Descended the stairs. Exited through the back entrance into the alley.
 
 Walked three blocks to the rental car. Drove away.
 
-As she merged into traffic, two police cars passed her going the opposite direction, sirens silent but lights flashing.
+The city was alive with Friday night energy. People laughing, living, loving. None of them knowing what she'd just done three blocks away.
 
-Anna checked her rearview mirror. Watched them turn onto Perry Street.
-
-She kept driving.
+Anna kept driving.
 
 By 9:15, she was in New Jersey, wiping down the rental car. By 9:45, she was in an Uber headed back to Midtown. By 10:20, she was in her own car, heading home.
 

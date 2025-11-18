@@ -1,4 +1,4 @@
-# Chapter 22: The Break-In
+# Chapter 23: The Break-In
 
 Anna waited three days. Watched Jane's patterns. Learned her schedule.
 
@@ -34,7 +34,7 @@ Inside: personnel files. Anna's file was thick. Notes dating back fifteen years.
 
 *Hired 2010. Strong analytical skills. Needs guidance on political navigation.*
 
-*2012: Promoted to Associate. Marriage to Mark Park. Maternity leave 2013.*
+*2012: Promoted to Associate. Marriage to Andrew Park. Maternity leave 2013.*
 
 *2015: Returned from second maternity leave. Productivity concerns. Work-life balance issues.*
 
@@ -92,7 +92,7 @@ Jessica hadn't seduced Andrew. Jane had engineered it.
 
 Anna kept reading. Found more.
 
-A receipt. Cash purchase. Fentanyl. Two months before Mia died.
+Computer messages on a shady dark web forum. Transactions in cryptocurrency. A dealer contact. Fentanyl. Two months before Mia died.
 
 A note in Jane's handwriting: *Mia Park. Addresses: three recent locations. Dealer contact: verified.*
 
@@ -147,44 +147,4 @@ Anna pulled out her phone. Called the one person who might believe her.
 "Anna—"
 
 "Jane killed Mia. She orchestrated everything. The sabotage, the affair, all of it. I have proof. I broke into her apartment and I have proof."
-
-Silence.
-
-"Claire?"
-
-"You broke into her apartment."
-
-"Yes. And I found—Claire, she murdered Andrew's sister. Deliberately. To break our marriage. To destroy me."
-
-"Anna, you realize what you're saying. You're admitting to breaking and entering. Theft of documents. This could—"
-
-"I don't care. Jane is a murderer. She needs to be stopped."
-
-"Then go to the police."
-
-"I can't. Not yet. I need to figure out—"
-
-"Anna, you killed Jessica. If you go to the police now with stolen evidence about Jane, they're going to investigate you too."
-
-The reality hit. Claire was right.
-
-If Anna turned in Jane, she'd have to explain how she got the evidence. Which would open her up to investigation. Which would lead back to Jessica.
-
-She was trapped.
-
-Unless—
-
-Unless she could find a way to deliver the evidence anonymously. Make it look like it came from somewhere else.
-
-"I have to go," Anna said.
-
-"Anna, don't do anything stupid. Please. For once in your life, think this through."
-
-But Anna was already thinking. Planning. Calculating.
-
-Jane had destroyed her life. Killed Mia. Manipulated Jessica. Driven Anna to murder.
-
-And now Anna had proof.
-
-The question was: how to use it without destroying herself in the process?
 

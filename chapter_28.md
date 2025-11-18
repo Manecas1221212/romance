@@ -1,4 +1,4 @@
-# Chapter 27: The Board
+# Chapter 28: The Board
 
 Three months later, Anna got the call.
 

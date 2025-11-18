@@ -1,4 +1,4 @@
-# Chapter 20: The Coffee
+# Chapter 21: The Coffee
 
 Claire showed up at Anna's apartment on Saturday morning unannounced.
 
@@ -26,9 +26,9 @@ Anna joined her after a moment. They sat in silence.
 
 "That's the understatement of the century."
 
-"Jessica wasn't sabotaging me. Someone else is. Jane, I think. But I can't prove it."
+"Jessica wasn't sabotaging me. Someone else is. I know it."
 
-"Anna, listen to yourself. You killed someone. You're now investigating your mentor for crimes you have no evidence she committed. Do you not see the pattern?"
+"Anna, listen to yourself. You killed someone because you were convinced she was destroying your life. Now the sabotage is back and you're looking for the next person to blame. Do you not see the pattern?"
 
 "What pattern?"
 
@@ -74,11 +74,23 @@ Anna felt something crack. The reality crashing through denial.
 
 "That's not—"
 
-"It is possible. Stress-induced memory issues. Self-sabotage. It's actually more likely than an elaborate conspiracy."
+"It is possible. Stress-induced memory issues. Self-sabotage. People do things in fugue states and don't remember. You're exhausted, paranoid, barely sleeping. That's the perfect recipe for dissociation."
+
+Anna felt ice in her chest. "You think I'm... what? Having blackouts? Sending emails to myself?"
+
+"I think it's more likely than an elaborate multi-year conspiracy by people who have no real motive to destroy you. Jessica had an affair with your husband. That was real. But the sabotage? Anna, what if that was all in your head?"
 
 Anna pulled her hands away. "You don't believe me."
 
-"I believe you're in pain. I believe you need help. That's what I believe."
+"I believe you're in pain. I believe you need help. Real help—a psychiatrist, not a therapist. That's what I believe."
+
+Claire stood to leave, but paused at the door.
+
+"I'm not giving up on you," she said quietly. "Even when you give up on yourself. But I can't watch you destroy yourself anymore. Not unless you let me actually help."
+
+"I don't know how," Anna whispered.
+
+"Start by considering that maybe—just maybe—you need more help than you think."
 
 After Claire left, Anna sat alone and thought about everything.
 
@@ -93,4 +105,10 @@ Because if she was the problem—if she'd always been the problem—then Jessica
 It was inevitable.
 
 The natural end point of who Anna really was.
+
+---
+
+Later that day, Anna unblocked Claire's number. She didn't call. She didn't text. But she left the door open.
+
+Just in case Claire was right about everything.
 

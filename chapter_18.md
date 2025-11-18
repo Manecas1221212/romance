@@ -1,210 +1,286 @@
-# Chapter 17: After
+# Chapter 18: After
 
-Andrew and Jason arrived at Jessica's building at 8:52 PM.
+**Monday Morning — Henderson & Associates**
 
-The police were already there. Two uniformed officers at the entrance. Crime scene tape going up.
+Anna walked into work at 8:45 AM like nothing had happened.
 
-"Sir, you can't go in," an officer said, blocking Andrew.
+Because nothing had happened. Not that anyone could prove.
 
-"My friend lives here. 4C. Jessica Hall. Is she—is she okay?"
+She'd slept dreamlessly Friday night. Claire had stayed through the weekend with the kids while Anna maintained her careful performance. Saturday morning: breakfast, grocery shopping. Sunday: meal prep, client file reviews. Normal weekend routines that established a rhythm of innocence.
 
-The officer's expression told him everything. "I'm going to need you to step back."
+Now, Monday morning, she settled at her desk and opened her laptop. Checked her calendar. Meridian meeting at ten. Client call at two. Normal. Productive. Professional.
 
-Andrew's legs went liquid. Jason caught him.
+At 9:30, Denise knocked on her door. "Have you seen Jessica?"
 
-"What happened?" Jason demanded. "We called for a wellness check."
+Anna looked up, perfectly calibrated concern. "No. Why?"
 
-"We found a woman deceased in apartment 4C. I can't give you more details. Are you family?"
+"She's not in yet. She's supposed to present the Meridian deck this morning and she's not answering her phone."
 
-"Friend," Andrew managed. "I'm—she's my—I need to see her."
+"That's not like her." Anna frowned. "Try her again?"
 
-"I'm sorry, sir. That's not possible. We'll need you to come to the station to answer some questions."
+Denise nodded and left.
+
+Anna returned to her work, pulse steady, expression neutral.
+
+By noon, Jessica still hadn't shown. Tom postponed the Meridian meeting.
+
+"This is completely unlike her," Tom said, frustration evident. "No call, no email, nothing."
+
+"Should someone check on her?" Marcus suggested. "Make sure she's okay?"
+
+"I'll send building security to do a wellness check," Tom said. "She lives in the West Village, right?"
+
+Anna kept her face carefully concerned. "I hope she's alright."
 
 ---
 
-At the station, they separated Andrew and Jason. Put Andrew in an interview room with harsh lights and a two-way mirror.
+**Tuesday Morning**
 
-Detective Morris was patient. Methodical.
+Still no Jessica.
 
-"When did you last see Jessica Hall?"
+The office hummed with worry now. Tom had called Jessica's emergency contact—her mother in Ohio—who hadn't heard from her either. Building security had knocked on her apartment door Saturday. No answer.
 
-"Yesterday. At my gallery show."
+"This isn't right," Denise said at lunch. "Something's wrong."
 
-"What was your relationship with Ms. Hall?"
+Anna agreed with appropriate gravity. "Should we file a missing persons report?"
 
-Andrew hesitated. "We were... close. Friends."
+"Tom already did. Police are going to do a welfare check today."
 
-"Just friends?"
+Anna nodded. Took a bite of salad. Swallowed.
 
-"We were having an affair." The words tasted like ash.
+"I just hope she's okay," she said quietly.
 
-"You're married?"
+---
 
-"Yes. To Anna Park."
+**Wednesday Afternoon**
 
-"And Ms. Hall knew this?"
+The police found Jessica's body at 2:47 PM.
+
+She'd been dead for five days. Hanging in her bedroom closet. Suicide note on the coffee table. The police went through her phone, reviewed her recent messages, looked for signs of foul play.
+
+The call came to Henderson at 4:15 PM. Tom gathered the team in the conference room, face gray, voice shaking.
+
+"I have terrible news. Jessica Hall was found deceased in her apartment this afternoon. The police are investigating, but... they believe it was suicide."
+
+Shocked silence. Someone gasped. Denise started crying.
+
+Anna felt everyone's eyes on her—the boss whose husband had been sleeping with Jessica. The woman with motive.
+
+"Oh my God," Anna whispered. Let her hand go to her mouth. Let her eyes fill with appropriate horror. "That's... I can't believe..."
+
+Tom cleared his throat. "The police will want to speak with anyone who had recent contact with Jessica. They're treating it as a suspicious death until they complete their investigation."
+
+Marcus glanced at Anna. "Suspicious?"
+
+"Standard procedure," Tom said. "But they found a note. She was... struggling with personal issues."
+
+*Personal issues.* The affair. Everyone knew. Everyone was thinking it.
+
+Anna stood abruptly. "Excuse me." She left the conference room, walked to the bathroom, locked herself in a stall.
+
+Breathed.
+
+Counted to sixty.
+
+Emerged with red eyes and a composed expression.
+
+---
+
+**Thursday Morning — Police Station**
+
+Detective Morris interviewed Anna at 9 AM.
+
+"Mrs. Park, when did you last see Jessica Hall?"
+
+"At work. Thursday afternoon. By the elevators."
+
+"Did you speak to her?"
+
+"Briefly. Just small talk. She mentioned working from home Friday."
+
+"Were you aware of Ms. Hall's relationship with your husband?"
+
+Anna paused. Looked down. "Yes. Andrew told me recently."
+
+"How did that make you feel?"
+
+"Betrayed. Angry. Hurt." The truth, actually. "But I didn't want her dead, Detective. I wanted my marriage fixed."
+
+"Where were you Friday night between eight and ten PM?"
+
+"Home. Alone. My children were having dinner with a friend. Andrew was... I don't know where Andrew was."
+
+"You were home alone. Can anyone verify that?"
+
+"No." Anna met his eyes. "I was alone."
+
+Detective Morris made notes. "Did you go to Jessica Hall's apartment Friday evening?"
+
+"No."
+
+"Did you have any contact with her outside of work?"
+
+"No. We weren't friends. We were colleagues."
+
+"Did you ever threaten Ms. Hall?"
+
+"No. I confronted my husband about the affair, but I never spoke to Jessica about it directly."
+
+More questions. Same questions rephrased. Looking for inconsistencies, contradictions, cracks.
+
+Anna gave them nothing.
+
+She'd prepared for this. Rehearsed every answer. Knew the difference between lying badly and lying well.
+
+Detective Morris studied his notes. "The scene was clean. No signs of forced entry. No defensive wounds. No DNA under her nails. Everything points to suicide."
+
+"That's... that's so tragic," Anna said.
+
+After two hours, Detective Morris let her go. "We'll be in touch if we have more questions. Don't leave the city."
+
+"Of course."
+
+---
+
+**Thursday Afternoon**
+
+They brought Andrew in next.
+
+Anna waited in her car across from the precinct, watching. Saw him arrive at 2 PM, looking devastated. Saw him leave three hours later, looking destroyed.
+
+He walked right past her car. Didn't see her. Didn't see anything.
+
+She drove home. Made dinner. Set the table for two.
+
+When Andrew came home at eight, he stood in the doorway and stared at her like she was a stranger.
+
+"Did you do it?" he asked.
+
+"No." The lie was smooth. Perfect. Practiced.
+
+"The police keep asking questions. Like they don't believe it was really suicide."
+
+"They questioned me too." Anna kept her voice steady. "But Andrew, I was home. I didn't hurt Jessica."
+
+"You tracked me. Followed me. Documented everything."
+
+"Because I was angry. Because I wanted evidence for a divorce. Not because I wanted her dead."
+
+Andrew moved to the window. Stood with his back to her. "The sabotage stopped."
+
+"What?"
+
+"At work. The phantom emails. The calendar glitches. All of it stopped after Jessica died."
+
+Anna's stomach tightened. She hadn't thought about that. Hadn't considered how the timing would look.
+
+"That's coincidence," she said carefully.
+
+"Is it?" Andrew turned. "Or were you right all along? Was Jessica sabotaging you?"
+
+Anna said nothing. Let him build the narrative.
+
+"If she was," Andrew continued slowly, "then you had a motive. You thought she was destroying your career and your marriage. So you eliminated the threat."
+
+"Andrew—"
+
+"Did you kill her?" His voice broke. "Please. I need to know. Did you kill Jessica?"
+
+Anna looked at her husband. The man she'd loved for seventeen years. The father of her children. The person who knew her better than anyone.
+
+And she lied to his face.
+
+"No," she said. "I swear to you. I didn't kill her."
+
+He searched her eyes. Looking for truth. For certainty. For the woman he'd married.
+
+She gave him nothing but the performance of innocence.
+
+Finally, he turned away. "I'm staying at Ben's for a while."
+
+"Andrew—"
+
+"I can't be here right now. I can't look at you and not wonder."
+
+He left. The door closed quietly behind him.
+
+Anna sat in the empty apartment and felt nothing at all.
+
+---
+
+**The Funeral — One Week Later**
+
+Jessica's funeral was small. Her parents, some college friends, a handful of colleagues from Henderson.
+
+Anna wore black. Stood in the back. Cried at the right moments.
+
+When Jessica's mother—young for a mother, only in her late fifties, devastated—approached her after the service, Anna took her hands.
+
+"Mrs. Hall, I'm so sorry for your loss."
+
+"You're Anna? Jessica's boss?"
 
 "Yes."
 
-"Did your wife know about the affair?"
+Mrs. Hall's eyes filled with fresh tears. "She spoke so highly of you. Said you were brilliant. Said she wanted to be like you someday."
 
-Andrew closed his eyes. Saw Anna's face when she'd confronted him. *Are you having an affair? Is it Jessica?*
+The words hit like a slap. Anna's throat tightened. "She was exceptionally talented. She had a bright future."
 
-"Yes," he whispered. "She found out recently."
+"I don't understand why she..." Mrs. Hall couldn't finish. "She seemed happy. Her last text was about work. About being excited about a big project."
 
-"How did she react?"
+Anna squeezed her hands. "Sometimes people hide their pain very well."
 
-"She was angry. Hurt. But she wouldn't—"
+Mrs. Hall nodded, crying. "Thank you for being here. It means a lot."
 
-"Wouldn't what?"
+Anna hugged her. Let Jessica's mother cry on her shoulder. Felt the weight of what she'd done pressing down like a physical thing.
 
-"She wouldn't hurt Jessica. Anna's not violent. She's not—"
+She'd killed this woman's daughter.
 
-But even as he said it, Andrew remembered Jason's words at the bar. *When Anna feels cornered, she eliminates.*
+And she was comforting her at the funeral.
 
-"Mr. Park, where were you between eight and nine PM tonight?"
+The moral calculus was impossible. Unspeakable.
 
-"At a bar. Talking to Jason Whitmore. We were there together the whole time."
-
-"And your wife? Where was she?"
-
-"I don't know. Home? She said she was working late."
-
-Detective Morris made a note. "We'll need to verify that. In the meantime, I need you to think very carefully. Did your wife ever threaten Ms. Hall? Ever say anything that suggested violence?"
-
-Andrew wanted to say no. Wanted to defend Anna. But he thought about the GPS tracking. The obsessive documentation. The cold, flat way she'd looked at him when she'd asked about Jessica.
-
-"She knew where Jessica lived," he said slowly. "She told me she'd looked it up. Public records."
-
-"When was this?"
-
-"A few days ago."
-
-Detective Morris leaned forward. "Mr. Park, I'm going to ask you directly. Do you think your wife is capable of murder?"
-
-Andrew looked at his hands. Thought about seventeen years of marriage. Two children. A life built brick by brick.
-
-Thought about the woman he'd fallen in love with and the woman she'd become. Or maybe always had been.
-
-"I don't know," he said honestly. "I don't know anymore."
-
----
-
-They kept him for three more hours. Asked the same questions different ways. Verified his alibi with Jason. Finally let him go at 1 AM.
-
-Jason was waiting in the lobby.
-
-"They took Anna in for questioning," Jason said. "An hour ago."
-
-Andrew's world tilted. "She wasn't home?"
-
-"She was. But she didn't have an alibi. Said she was home alone. Kids were at sleepovers."
-
-"That doesn't mean—"
-
-"Andrew." Jason's voice was gentle. "Jessica is dead. Suffocated. No sign of forced entry. She let someone in. Someone she knew."
-
-"It could have been anyone."
-
-"The ME says time of death was between eight-fifteen and nine PM. You were with me. I was with you. Anna was—where was Anna?"
-
-Andrew couldn't answer.
-
----
-
-**Saturday Morning**
-
-Anna came home at 3 AM.
-
-Andrew was waiting on the couch. Hadn't slept. Couldn't.
-
-"Where were you?" he asked.
-
-Anna looked tired. Rumpled. Normal.
-
-"Police station. They said Jessica died. They wanted to know where I was last night."
-
-"And where were you?"
-
-"Home. Alone. After I left work." She looked at him. "Where were you?"
-
-"A bar. With Jason Whitmore. All evening. We have witnesses."
-
-Something flickered across Anna's face. "Jason Whitmore. Your new friend."
-
-"He told me things. About your past. About Columbia."
-
-"I'm sure he did." Anna's voice was flat. "And you believed him?"
-
-"He said you were controlling. Obsessive. That you couldn't handle losing power."
-
-"And you think I killed Jessica." Not a question.
-
-Andrew wanted to say no. But he looked at his wife's face—composed, calculating, showing nothing—and couldn't.
-
-"Did you?" he whispered.
-
-Anna held his gaze. "I was home last night. Alone. That's all I know."
-
-"That's not an answer."
-
-"It's the only answer you're getting." She walked toward the bedroom. "I'm going to sleep. We can talk in the morning."
-
-"Anna—"
-
-She stopped. Turned. "Andrew, if you think I'm capable of murder, then leave. Take the kids. File for divorce. But don't sit there and interrogate me like I'm on trial."
-
-"Jessica is dead."
-
-"I know. I'm sorry for that. But it has nothing to do with me."
-
-She went to the bedroom. Closed the door.
-
-Andrew sat on the couch and stared at nothing until the sun came up.
-
----
-
-The funeral was Tuesday.
-
-Jessica's parents flew in from Ohio. Young. Devastated. Her mother kept asking why, why, why.
-
-No one had answers.
-
-The police investigation continued. They searched Jessica's apartment. Found no fingerprints that weren't Jessica's or Andrew's. No DNA. No evidence of struggle beyond some minor bruising consistent with a fall.
-
-The ME ruled it homicide by asphyxiation. But without evidence, without witnesses, the case stalled.
-
-Andrew watched Anna at the funeral. She wore black. Stood in the back. Cried appropriately. Hugged Jessica's mother and said, "She was a wonderful person. I'm so sorry for your loss."
-
-It was convincing. Perfect, even. Either genuine or the best performance Andrew had ever seen.
-
-Afterward, people whispered. About the affair. About Anna. About motives and opportunities and reasonable doubt.
-
-But whispers weren't evidence.
+Anna held her anyway.
 
 ---
 
 **Two Weeks Later**
 
-Andrew moved back into the apartment. Not because he wanted to. But because his lawyer said leaving might look suspicious. Might suggest guilt by association.
+Andrew moved back home.
 
-So he lived with Anna. Shared a bed with her. Ate meals with her. Pretended everything was normal for the kids.
+Not because he forgave her. Not because he believed her. But because Ben's couch had a shelf life and the lawyers said splitting up during an active investigation looked suspicious.
 
-But at night, when the apartment was dark, he lay awake and wondered if he was sleeping next to a murderer.
+So they became roommates in their own home. Polite strangers who shared children and a mortgage.
 
-And if he was—what did that make him?
+Andrew didn't believe Jessica had killed herself. He'd said as much, late one night when he couldn't sleep. "She was planning things. Excited about projects. People don't do that when they're suicidal."
 
-The sabotage stopped. Anna's career stabilized. No more phantom emails. No more calendar chaos.
+He slept in the guest room with the door locked.
 
-Which only confirmed Andrew's worst suspicions.
+He checked his food before eating it.
 
-Jessica had been the problem. Now Jessica was dead. Now the problems were gone.
+He watched her like she was a dangerous animal. Careful. Calculating. Waiting for proof.
 
-The math was simple. And damning.
+Meanwhile, Anna's career stabilized. The sabotage stopped completely. No more phantom emails. No corrupted files. No mysterious calendar invites.
 
-Andrew started sleeping with his door locked. Started checking his food before he ate it. Started planning an exit strategy that wouldn't put the kids in danger.
+Tom gave her back the Meridian account. The board mentioned her name again for the SVP promotion.
 
-Because if Anna could kill Jessica—
+Everything Anna had worked for was coming back. Because the threat—Jessica—was gone.
 
-What would stop her from killing him?
+She'd been right. Jessica *had* been behind the sabotage. The timing proved it.
+
+Except late at night, in the quiet dark, Anna wondered.
+
+What if she'd been wrong?
+
+What if she'd killed an innocent woman?
+
+But then morning would come, and the doubt would fade, and she'd go to work and execute flawlessly and climb higher.
+
+Because she'd crossed the line. She'd killed someone. And she'd gotten away with it.
+
+There was no going back.
+
+Only forward.
+
+Into whatever she'd become.
 

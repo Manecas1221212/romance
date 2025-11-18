@@ -1,4 +1,4 @@
-# Chapter 21: The Lunch
+# Chapter 22: The Lunch
 
 Two days later, Jane invited Anna and Claire to lunch.
 
@@ -96,7 +96,7 @@ Maybe Jane was trying to destroy her so thoroughly that when Anna imploded, Jane
 
 Anna pulled out her phone and texted Claire: *I'm so sorry. Can we talk?*
 
-Claire: *Not until you figure out what's real and what's in your head.*
+Claire: *I know Jane is your boss, but still, she is so mean, please make sure not to invite me when she is around.*
 
 Anna paid and left.
 

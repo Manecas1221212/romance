@@ -168,7 +168,7 @@
 
 **Chapter 17: The Plan** (FLASHBACK)
 - Takes place day before (Thursday)
-- Anna can't sleep, runs through plan repeatedly
+- Anna can't sleep (so she cannot sleep from wednesday to thurday), runs through plan repeatedly
 - Thinks about whether she can actually do it
 - Asks Claire if it is ok for her to stay with her and the kids through the rest of the weekend as well ( so that she can look after them friday night while she is out killing Jessica)
 - Lunch with Jane at work (appearing normal)

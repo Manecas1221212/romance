@@ -1,4 +1,4 @@
-# Chapter 13: The Gallery
+# Chapter 14: The Gallery
 
 Wednesday night, Andrew texted Sophie: *Come to my gallery show tomorrow? 7pm. Bring Jake if he wants.*
 
@@ -62,7 +62,13 @@ Anna's stomach dropped. "Who's saying that?"
 
 After Jane left, Anna sat alone and ordered another glass of wine she didn't want.
 
-Her phone buzzed. Sophie: *Dad's show is amazing. Wish you were here.*
+Her phone buzzed. A text from Jessica: *Working from home tomorrow night to finish the Meridian analysis. Going to be a long one! Hope you have a good weekend.*
+
+Anna stared at the message. Jessica, alone in her apartment. Friday night. No witnesses.
+
+She didn't respond.
+
+Another buzz. Sophie: *Dad's show is amazing. Wish you were here.*
 
 Then another text, this one from an unknown number: *He looks happy without you.*
 

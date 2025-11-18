@@ -1,4 +1,4 @@
-# Chapter 7: The Unraveling
+# Chapter 8: The Unraveling
 
 Anna stopped sleeping.
 
@@ -6,29 +6,99 @@ Not entirely—just in pieces. An hour here, thirty minutes there, shallow and f
 
 She started keeping her laptop in bed. If she couldn't sleep, she'd work. If she couldn't work, she'd review the logs—email timestamps, calendar entries, badge swipes. Anything to prove she wasn't losing track of time. Wasn't losing her grip on reality.
 
-Andrew didn't notice. Or if he did, he didn't ask.
+The sabotage was escalating.
 
-He was up before her most mornings, gone to the studio or a run or somewhere she didn't track anymore. When they passed in the kitchen, they moved like people who'd agreed not to collide.
+Monday morning, a deck she'd finalized Friday night appeared corrupted. Every third slide was blank, charts replaced with error messages. Marcus called her into the conference room where the client waited.
 
-"Sophie needs new shoes," Andrew said one morning.
+"Anna, we expected the full presentation."
 
-"Okay."
+"It was complete when I sent it."
 
-"Jake has a game Saturday."
+"This is what we received." He turned the laptop toward her. Slides 4, 7, 10, 13—all blank. A perfect pattern. Too deliberate to be a glitch.
 
-"I'll try to make it."
+"I'll resend the original."
 
-"Ok, honey, but please do try, it's important to him."
+"We don't have time. The client is here now."
 
-She looked up. "What's that supposed to mean?"
+She presented from memory, improvising charts she couldn't display, pulling numbers from recall. When it was over, the client looked skeptical. Marcus looked furious.
 
-"Nothing." He refilled his coffee and left the room.
+Back at her desk, Anna opened the original file. Perfect. Intact. She checked the version she'd sent—corrupted, just as Marcus had shown. But when she checked the sent folder, the timestamp had changed. 2:47 AM. She'd been asleep at 2:47.
 
-Sophie came downstairs with headphones in, a wall of sound between her and everything. Jake ate cereal with his nose in an iPad. The four of them occupied one space but felt completely separate.
+Someone had accessed her computer. Corrupted the file. Sent it while she slept.
 
-At work, Anna was untouchable. She ran meetings like surgical operations—efficient, precise, no room for small talk or warmth. People started calling her "Ice Queen" behind her back. She heard it once and didn't react.
+She changed her password again. The eighth time in two weeks.
 
-That was acceptable. Let them think she was cold. Cold didn't break.
+---
+
+Wednesday, a calendar invite appeared: **Client Call - Whitmore Industries - 3pm**. She didn't recognize the company name but assumed Tom had added her to Jason's portfolio. When she joined the video call, the screen was black. No one else connected. After fifteen minutes, she left.
+
+Tom stopped by her office at four.
+
+"Why did you miss the Sanderson meeting?"
+
+"What Sanderson meeting?"
+
+"Three o'clock. They waited twenty minutes."
+
+"I had a call with Whitmore Industries."
+
+Tom frowned. "We don't have a client called Whitmore Industries."
+
+Anna opened her calendar. The three o'clock slot now read: **Sanderson Q3 Review**. The Whitmore invite had vanished.
+
+"Tom, I swear—"
+
+"Anna." His voice was careful, the way you'd speak to someone fragile. "I'm concerned about your focus."
+
+"Someone is manipulating my calendar."
+
+"IT has found no evidence of a breach. They've checked your system three times."
+
+"Then they're not looking in the right place."
+
+"Or there's nothing to find."
+
+She wanted to scream. Instead, she nodded and waited for him to leave.
+
+---
+
+The errors piled up.
+
+An email to a major client contained pricing that was off by a decimal point—$45 million instead of $4.5 million. The kind of mistake that made her look incompetent. Or unhinged.
+
+Files renamed themselves. **Final_Proposal.pptx** became **Final_Proposal_DRAFT_DO_NOT_SEND.pptx** in the twelve seconds between when she saved it and attached it to an email.
+
+Her access badge stopped working for the executive floor. IT claimed it was a system glitch. Fixed in twenty minutes. But those twenty minutes, she stood outside a glass door while colleagues streamed past, watching.
+
+Someone called her office phone at midnight. When she answered—still at her desk, still working—the line was dead air. Just breathing. Soft and deliberate.
+
+"Who is this?"
+
+Click.
+
+---
+
+At home, Andrew moved like a ghost. Present but untouchable. He'd stopped asking about her day. Stopped offering to make dinner. He'd wake before her, leave for the studio, return after she was asleep—or pretending to be.
+
+"How's the new series going?" she asked one morning, trying.
+
+"Fine."
+
+"Are you showing at Marcus's gallery again?"
+
+"Haven't decided."
+
+She wanted to reach for him. To say *I'm sorry I doubted you. I'm sorry I turned your grief into something ugly.* But the words stuck. And Andrew didn't make space for them.
+
+Sophie came downstairs with headphones in, a wall of sound between her and everything. Jake ate cereal with his nose in an iPad. The four of them occupied one space but felt like separate islands.
+
+---
+
+At work, Anna was untouchable—but not in the way she'd once been. People no longer saw her as icy and competent. They saw her as brittle. Cracking.
+
+Marcus started appearing in meetings she'd normally lead.
+
+"Just want to make sure we're aligned," he'd say, smooth and helpful. But his presence sent a message: *She needs supervision.*
 
 Jessica, meanwhile, was beloved.
 
@@ -40,163 +110,142 @@ Anna's jaw tightened. "She's competent."
 
 "She's more than competent. She's kind. It's rare in this business."
 
-Anna didn't respond. Kindness, she thought, could be strategic. And Jessica Hall was extremely strategic.
+Anna didn't respond. But she watched Marcus walk away, and something clicked.
 
-The proof came in pieces.
+Marcus had access to her calendar. Marcus sat on the same floor. Marcus would benefit from Anna's unraveling—if she failed, someone else would take SVP. Why not him?
 
-A lunch reservation for two at Marea—Anna's favorite, the place she and Andrew hadn't been to in two years. She found the confirmation in Andrew's email when she borrowed his laptop to check a file. He'd left his account open. She told herself it was an accident.
+She started a new document: **Timeline**. Listed every incident. Cross-referenced with who had access, who'd been present, who'd benefit.
 
-She checked his texts. Another Friday meetup scheduled. A message: *I can't wait to see you again.*
+Marcus appeared on every line.
 
-Jessica's reply: *Me either. You make everything feel lighter.*
+---
 
-Anna screenshot everything. She didn't know why yet. Just that she needed proof. Evidence. A case file for a crime she hadn't named.
+Friday afternoon, Anna left work early—something she never did. Drove to the Target in Westchester and bought a notebook. Paid cash. Brought it home and started documenting everything by hand.
 
-That night, Andrew came home at ten. He smelled like wine and someone else's perfume—subtle and floral, the kind of scent that lingered on clothes when people stood too close.
+Every phantom email. Every corrupted file. Every midnight call.
 
-"Where were you?" Anna asked from the couch, laptop glowing.
+And next to each entry: *Who benefits?*
 
-"Dinner with Ben. I told you this morning."
+The answer kept coming back to work. Not her marriage. Not Andrew. Not Jessica.
 
-"You didn't."
+This was about the SVP position. About her career.
 
-"I did. You weren't listening."
+Maybe she'd been looking in the wrong direction all along.
 
-Maybe she hadn't been. The days blurred. Conversations faded. She nodded because nodding was easier than fighting.
-
-"How is Ben?" she asked, testing.
-
-"Good. His gallery show is next month."
-
-Ben was real. Anna had met him twice—tall, bearded, talked too much about ceramics. But had Andrew really been with him tonight? Or was Ben just a convenient name?
-
-"I'm going to bed," Andrew said. "You coming?"
-
-"Soon."
-
-He went upstairs. She opened a private browser and checked his credit card statement—the joint account they shared. Marea, 8:37 p.m., $240. Two entrees. Two glasses of wine. One dessert.
-
-Ben was vegan. He didn't drink.
-
-Anna closed the laptop slowly, the way you'd close a door when you didn't want anyone to hear.
-
-The sabotage escalated.
-
-An email to a major client—sent from Anna's account at 3 a.m.—contained a pricing error so egregious it looked like sabotage. Tom called her in.
-
-"Anna, this isn't like you."
-
-"I didn't send that email."
-
-"It came from your account."
-
-"Someone else is accessing it. I've changed my password five times."
-
-Tom's expression was careful, clinical. "IT has found no evidence of a breach."
-
-"Then they're not looking hard enough."
-
-"Anna." He folded his hands. "I'm going to ask you something, and I need you to be honest. Are you okay? Mentally, emotionally—are you handling the pressure of this role?"
-
-The question landed like a diagnosis. "I'm fine."
-
-"Because if you need time, we can redistribute some of your accounts—"
-
-"I don't need time. I need you to believe me."
-
-Tom sighed. "I do believe you're stressed. And I think that stress is affecting your judgment. Take the weekend. Rest. Come back Monday with a clear head."
-
-It wasn't a suggestion.
-
-Anna left his office, walked to the bathroom, locked herself in a stall, and pressed her palms to her eyes until she saw stars.
-
-She wasn't crazy. She wasn't cracking.
-
-Someone was doing this.
+---
 
 That night, Claire called.
 
-"I'm worried about you," Claire said without preamble.
+"How are you holding up?"
 
 "I'm fine."
 
-"You're not. I can hear it in your voice. When's the last time you slept?"
+"You don't sound fine."
 
-"I sleep."
+Anna stared at the notebook spread across her kitchen table, pages full of theories and timelines and paranoia. "Work's been hard."
 
-"Anna, talk to me. What's going on?"
+"What about Andrew?"
 
-She opened her mouth and realized she didn't know where to start. The sabotage. The texts. The affair. The feeling that her life was unraveling thread by thread while no one else could see what was happening.
+"He's... grieving. I don't think I've been helping."
 
-"Andrew's cheating on me," she said finally.
+Claire was quiet for a moment. "You know it's okay to not be perfect, right?"
 
-The silence on the other end stretched.
+"I'm not trying to be perfect. I'm trying to not fall apart."
 
-"Are you sure?" Claire asked gently.
+"Maybe you need to let yourself fall apart a little. See what's underneath."
 
-"I'm sure."
+Anna closed the notebook. "I can't afford to fall apart."
 
-"With who?"
+"Then what can you afford?"
 
-Anna swallowed. "Jessica. My junior PM."
+She didn't have an answer.
 
-"Jesus, Anna."
+---
 
-"I found texts. Receipts. He's been lying about where he is, who he's with. And she's been—Claire, she's been worming her way into everything. My work, my home, my family. She bought his art. She sends him sympathy texts. She's playing the perfect supportive friend while she fucks my husband."
+Saturday morning, Anna went for a run—something she hadn't done in weeks. Pushed herself until her lungs burned and her legs shook and her mind went quiet.
 
-"What are you going to do?"
+When she got back, Andrew was in the kitchen making coffee.
 
-Anna stared out the window at the skyline, all those windows in all those buildings, each one a life she'd never know. "I don't know."
+"You went running," he said, surprised.
 
-"You need to confront him."
+"Yeah."
 
-"And say what? I've been spying on you? I don't trust you? Our marriage is over?"
+"How was it?"
 
-"Is it?"
+"Hard. Good."
 
-Anna closed her eyes. "I don't know."
+He nodded, and for a moment they stood there, two people who used to know how to talk to each other.
 
-"Then figure it out. Before you do something you can't take back."
+"I'm trying," Anna said quietly.
 
-After they hung up, Anna sat in the dark and thought about all the ways a marriage ends.
+Andrew looked at her, and something softened. "I know."
 
-Yelling. Silence. Lawyers. A gradual drift into separate lives.
+It wasn't forgiveness. But it was a start.
 
-Or something faster and more definitive.
+---
 
-She opened her laptop and searched: *How to tell if your husband is having an affair.*
+Monday morning, Anna arrived at the office with a plan. She'd been reacting. Now she'd be proactive.
 
-The articles listed signs. Late nights. Secrecy. Emotional distance. New cologne. Unexplained expenses.
+She set up a forwarding rule—every email sent from her account would secretly copy to a private Gmail. If someone was sending emails in her name, she'd have proof.
 
-Andrew checked every box.
+She installed phone tracking software on her work laptop—if someone accessed it remotely, she'd see the IP address.
 
-She searched: *How to catch a cheater.*
+She started arriving earlier. Staying later. Watching who came and went from the executive floor after hours.
 
-Hire a PI. Install spyware. Go through their phone.
+And she watched Marcus.
 
-She'd already done the last one.
+Wednesday night, 8:47 PM, Marcus was still in the office. Anna watched from the break room as he walked past her office, paused, glanced inside. Her computer was locked. He moved on.
 
-She searched: *Jessica Hall New York.*
+But the pause had been deliberate.
 
-LinkedIn. Instagram. A Medium blog about "finding beauty in the broken." A photo from two weeks ago—Jessica at a gallery opening, wine glass in hand, smiling at someone just out of frame.
+Thursday morning, she found a new meeting on her calendar: **Henderson Leadership Offsite - You've Been Removed**. The calendar invite was marked from Tom.
 
-Andrew's show.
+She went to Tom's office.
 
-Anna zoomed in. Jessica's hand on someone's arm. The hand was cropped, but the watch was visible. Andrew's watch. The one she'd given him for their tenth anniversary.
+"Did you remove me from the leadership offsite?"
 
-She screenshot it. Added it to the folder.
+Tom looked confused. "No. You're presenting the Q4 outlook."
 
-Then she searched something else.
+"Then why did I get a removal notice?"
 
-*How to destroy someone who destroyed you.*
+"I have no idea. Let me check." He opened his calendar. "You're on the invite. Active. I didn't remove you."
 
-The results were legal advice. Divorce strategies. Custody battles.
+Anna felt the walls closing in. "Someone's trying to make me think I'm losing access. Trying to make me panic."
 
-Not what she needed.
+"Anna—"
 
-She needed something else. Something final.
+"I'm not imagining this."
 
-She deleted her search history, cleared her cache, and closed the laptop.
+Tom studied her for a long moment. "I believe something is happening. But I need you to consider that you might be... under more stress than you realize. When's the last time you took a vacation?"
 
-Then she went to bed next to her husband and lay awake until sunrise, thinking about destruction and revenge.
+"I don't need a vacation. I need you to take this seriously."
 
+"I am. But if this continues, we may need to bring in outside help. IT forensics. Or..." He hesitated. "Other resources."
+
+She knew what he meant. *Therapist. Medical leave. Forced rest.*
+
+"I'm fine," she said.
+
+"Then prove it. Show me you can handle this role without falling apart."
+
+---
+
+That night, Anna sat in her car in the parking garage for twenty minutes after everyone else had left. She was exhausted. Paranoid. Running on fumes and suspicion.
+
+But she wasn't crazy.
+
+Someone was doing this. And she was going to find out who.
+
+She opened the notebook. Added a new page.
+
+**Suspects:**
+- Marcus (motive: SVP position)
+- Jessica (access, opportunity, but why?)
+- Jason (recent arrival, old grudge?)
+- Unknown (someone I haven't considered?)
+
+She circled Marcus's name.
+
+Then she drove home, kissed her kids goodnight, and lay awake until dawn, thinking about how to catch a saboteur who left no fingerprints.
+
+And wondering if maybe—just maybe—she was sabotaging herself.

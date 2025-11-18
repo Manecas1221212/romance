@@ -1,4 +1,4 @@
-# Chapter 18: False Peace
+# Chapter 19: False Peace
 
 Three weeks after Jessica's death, life returned to an approximation of normal.
 
@@ -16,37 +16,17 @@ Sophie noticed. Of course she did.
 
 Anna was making coffee. Moving through the familiar routine. Pretending everything was fine.
 
-"I don't know, sweetheart."
+She turned to face her daughter. Put on the same smile she'd perfected over seventeen years of marriage. The same composed mask she wore at work.
 
-"Is it because of Dad's friend who died?"
+"No, sweetheart. We're just... going through a difficult time. Your father and I have always had the perfect life together. That's not going to stop now."
 
-Anna's hand stilled on the coffee pot. "What do you know about that?"
+Sophie looked uncertain. "But things are different."
 
-"I heard people talking. At school. They said Dad was having an affair. That she died. That maybe—" Sophie stopped. Looked at her mother with eyes too old for fourteen. "Did you do something, Mom?"
+"Adults go through rough patches. It doesn't mean we're giving up." Anna's voice was warm. Reassuring. Completely hollow. "We'll get through this. We always do."
 
-"No." Anna's voice was steady. "I didn't."
+Sophie seemed to accept this. Or at least, she wanted to believe it badly enough not to push further.
 
-"But you knew about the affair."
-
-"Yes."
-
-"Were you mad?"
-
-"Yes."
-
-"Mad enough to hurt someone?"
-
-Anna turned to face her daughter. Saw the fear there. The uncertainty. The terrible knowledge that parents were capable of darkness too.
-
-"Sophie, I loved your father for seventeen years. When I found out he'd been unfaithful, yes, I was angry. But I didn't hurt anyone. I wouldn't."
-
-Sophie searched her mother's face for a long time. Then nodded slowly. "Okay."
-
-"Do you believe me?"
-
-"I want to."
-
-It wasn't quite an answer. But it was honest. Anna could respect that.
+Anna returned to her coffee, the lie sitting comfortably on her tongue. She'd become very good at lying.
 
 ---
 
@@ -60,180 +40,97 @@ Jessica's mother opened the door. Looked older than she had at the funeral. Grie
 
 "I brought Jessica's things from the office. I thought you might want them."
 
-"Thank you." Mrs. Hall took the box. Didn't invite Anna in. "Can I ask you something?"
+"Thank you." Mrs. Hall took the box, eyes filling with tears. She set it down inside the doorway and turned back to Anna. "My daughter always spoke so highly of you. She admired you so much. She wanted to be like you someday."
 
-"Of course."
+The words hit Anna like a physical blow. Her throat tightened.
 
-"Did you kill my daughter?"
+"She was exceptionally talented," Anna managed. "She had such a bright future ahead of her."
 
-The question hung between them. Direct. Impossible to dodge.
+"She was so excited about working with you. She'd call me and tell me about the projects, about everything she was learning." Mrs. Hall's voice broke. "Thank you for mentoring her. Thank you for everything you did for her."
 
-"No," Anna said. "I didn't."
+Anna felt something crack inside her chest. This woman—this grieving mother—was *thanking* her. For mentoring the daughter Anna had murdered.
 
-"But you knew about the affair with your husband."
+"I'm so sorry for your loss, Mrs. Hall."
 
-"Yes."
+"Thank you for coming all this way. It means the world to me that you cared enough to bring these personally."
 
-"You must have been angry."
+Anna hugged her. Let Jessica's mother cry on her shoulder for the second time. Felt the weight of what she'd done crushing down.
 
-"I was. But I didn't hurt Jessica. I'm sorry she's gone. Truly."
+When she finally pulled away, Mrs. Hall squeezed her hands. "You must miss her too. I know she looked up to you."
 
-Mrs. Hall studied Anna's face. Looking for cracks. For tells.
+"Yes," Anna whispered. "I miss her very much."
 
-"The police say there's no evidence. No suspect. That someone got away with murder."
-
-"I hope they find who did it."
-
-"Do you?" Mrs. Hall's voice was bitter. "Or do you just hope they never prove it was you?"
-
-Anna had no answer to that.
-
-Mrs. Hall closed the door without another word.
+It was the truest thing she'd said in weeks.
 
 ---
 
-**Week Four**
+**Monday Morning — Tom's Office**
 
-Anna had lunch with Jane. First time since the funeral.
+"Anna, sit down. I have some news."
 
-"You look like shit," Jane said without preamble.
+Anna settled into the chair across from Tom's desk, keeping her expression neutral even as her heart rate accelerated.
 
-"Thanks."
+Tom leaned back, a rare smile crossing his face. "The board met last week. After everything that's happened—the investigation, the team instability, the client concerns—we needed to see how you'd handle the pressure."
 
-"I'm serious. Whatever's happening in your personal life, it's showing. Tom's noticing. The board's noticing."
+Anna's hands remained steady in her lap.
 
-"Jessica died. I'm allowed to grieve."
+"You didn't just handle it," Tom continued. "You excelled. The Meridian deal closed. The Anderson account renewed. Your team has rallied. And frankly, the board was impressed by your composure throughout this entire... situation."
 
-"You're allowed to grieve for a normal amount of time. Then you're supposed to move on. That's how power works."
+He paused, letting the moment build.
 
-Anna looked at her mentor. Her friend. The woman who'd championed her for fifteen years.
+"We're promoting you to Senior Vice President, effective immediately. Full title, full compensation package, full executive benefits."
 
-"Did you bring Jason to Henderson?" Anna asked suddenly.
+The words hit differently than Anna expected. Not triumph. Not joy. Just a cold, clinical satisfaction. Like checking a box on a list.
 
-Jane paused mid-sip. "Why would you ask that?"
+"Thank you, Tom. I'm honored."
 
-"Because he said someone on the board recruited him. Bypassed normal channels. Made a direct offer."
+"You've earned it. More than earned it." He pulled out a folder. "Now, this comes with expanded responsibilities. You'll be taking over the entire M&A division. You'll report directly to the board. And Anna—" He leaned forward, voice dropping. "—between you and me, Gerald is retiring in a year, maybe two. The board will need a new member."
 
-"And you think that was me."
+Anna's pulse quickened. "A board seat?"
 
-"Was it?"
+"I can't make promises. But your name is already being discussed. If you keep executing at this level, if you maintain the stability you've shown these past few weeks..." He smiled. "Let's just say your trajectory is looking very good."
 
-Jane set down her wine glass. Leaned in. "Yes."
+Anna left Tom's office fifteen minutes later with a new title, a forty percent raise, and a clear path to the thing she'd wanted most: a seat at the table where real power lived.
 
-Anna's stomach dropped.
+She should have felt victorious.
 
-"Why?"
-
-"Because the board was getting nervous about the PE division. We needed someone strong. Jason's record is excellent. I recommended him."
-
-"Did you know about our history?"
-
-"Not at first. Later, yes. Does it matter?"
-
-"He destabilized me. That's what matters."
-
-"Or he revealed cracks that were already there." Jane's voice was sharp. "Anna, you've been unraveling for months. Jason didn't cause that. He just made it visible."
-
-"He poisoned Andrew against me."
-
-"Andrew poisoned himself by having an affair." Jane signaled for another drink. "Stop looking for external enemies. Your problems are internal."
-
-After Jane left, Anna sat alone and thought about that.
-
-Internal problems. Internal enemies.
-
-Maybe Jane was right.
+Instead, she felt nothing at all.
 
 ---
 
-**Week Five**
+That evening, Anna stood in her new corner office on the sixteenth floor. Bigger windows. Better view. A door that actually closed properly.
 
-The first incident happened on a Tuesday.
+The city stretched out before her. Thousands of lights. Millions of people. All of them going about their lives, unaware that a murderer was standing in a corner office at Henderson & Associates, staring at her reflection in the glass.
 
-Anna arrived at work to find an email in her sent folder. Timestamp: 2:47 AM.
+She'd won.
 
-To: Tom Harrison  
-Subject: I can't do this anymore
+Jessica was dead. The investigation was closed. Andrew was living at home again, even if it was in name only. The sabotage had stopped completely. And now she was SVP with a board seat on the horizon.
 
-*Tom, I need to resign. Effective immediately. I'll send formal notice by end of week.*
+Everything was falling into place. Exactly as she'd planned.
 
-Anna's blood went cold.
+Anna pulled out her phone. Looked at the last text she'd sent to Jessica. A week before she'd killed her.
 
-She called Tom. "Did you get an email from me this morning?"
+*Thanks for the updated client deck. Looks great.*
 
-"About resigning? Yes. Anna, what's going on?"
+Jessica had responded immediately: *Thank you! Happy to help. Let me know if you need anything else.*
 
-"I didn't send that. Someone accessed my account."
+Anna deleted the thread. Closed the encrypted file where she'd documented all her "evidence" against Jessica. Shut down her laptop.
 
-Silence. Heavy. Judgmental.
+Went home to her ghost of a husband and her children who were learning not to ask too many questions.
 
-"Anna, we've been through this. IT says there's no breach."
+And told herself that it had all been worth it.
 
-"But I didn't send it!"
+The sabotage had stopped. That proved Jessica had been behind it. That proved Anna had been right.
 
-"Then who did?"
+She'd eliminated a threat. Solved a problem. Protected everything she'd built.
 
-Anna didn't have an answer.
+She refused to consider any other possibility.
 
-She hung up. Stared at her screen.
+Because if she'd been wrong—if Jessica had been innocent—then Anna wasn't a strategic problem-solver protecting her career.
 
-The sabotage had stopped after Jessica died. For five whole weeks, nothing. Which had confirmed Andrew's suspicions. Jessica had been the culprit. Now Jessica was dead. Problem solved.
+She was just a murderer who'd killed for nothing.
 
-Except Jessica was dead. And the sabotage had resumed.
+And that was a truth she couldn't afford to face.
 
-Which meant Jessica hadn't been behind it.
-
-Which meant Anna had killed an innocent woman.
-
-The realization hit like a freight train.
-
-Anna ran to the bathroom. Threw up in a stall. Knelt on the cold tile and tried to breathe through the horror.
-
-She'd killed Jessica. Sweet, confused, mistaken Jessica. Who'd had an affair. Who'd made bad choices. But who hadn't been sabotaging Anna's career.
-
-Someone else had. Was still doing it.
-
-And Anna had murdered the wrong person.
-
----
-
-The incidents escalated.
-
-Thursday: A calendar invite to an all-staff meeting announcing Anna's resignation. She had to send a mass email clarifying it was fake.
-
-Friday: Her access badge stopped working. IT claimed she'd been marked as "terminated" in the system. It took four hours to fix.
-
-Monday: An email to the firm's biggest client, full of typos and unprofessional language. The client called Tom directly to complain.
-
-Tuesday: Files on her computer deleted. Years of work. Gone.
-
-IT recovered backups. But the message was clear: whoever was doing this had deep access. Complete access.
-
-And they weren't stopping.
-
-Anna went through the list again. Who benefited from her destruction?
-
-Jessica was dead. Eliminated. Proven innocent post-mortem.
-
-Andrew was terrified of her. Avoiding her. No longer sleeping with the enemy he believed her to be.
-
-Jason had his role. Seemed satisfied. No obvious motive to continue.
-
-Which left—
-
-Jane.
-
-Anna thought about Jane bringing Jason to the firm. Jane knowing Anna's weak points. Jane having board-level access to all systems.
-
-Jane who'd mentored Anna for fifteen years but had never married. Never had kids. Never had anything but her career.
-
-Jane who'd warned Anna that women couldn't have it all.
-
-Jane who might see Anna's success as a threat to her own position.
-
-Anna opened a new encrypted file: *Jane van Moore.*
-
-And started documenting everything.
-
-Because if she'd killed the wrong person once, she needed to be absolutely certain before she acted again.
+Not yet.
 
