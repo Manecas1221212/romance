@@ -1,65 +1,5 @@
 # Chapter 31: The Legacy
 
-Anna didn't sleep that night. Or the next. Or the week after.
-
-She hired a private investigator. Paid cash. Had him dig into Jessica Hall's life. Her phone records. Her movements. Her relationships.
-
-The report came back three weeks later.
-
-Jessica Hall had never been Andrew's lover. They'd met for coffee. Twice. Both times at galleries, discussing art. Completely innocent.
-
-The intimate texts Anna had found? Fabricated. The metadata showed they'd been created on a device owned by Jane van Moore.
-
-The receipts from romantic dinners? Photoshopped. Timestamps altered.
-
-Jessica had been exactly what she'd claimed: a junior PM who liked art and made a friend.
-
-Anna had murdered her for nothing.
-
----
-
-Jane died six months later. Prison hospice. No family. No mourners except Anna, who came out of obligation and horror.
-
-Jane looked small in the hospital bed. Pale. Shrunken. Finally human.
-
-"You came," Jane whispered.
-
-"I had to know. Was Jessica innocent?"
-
-"Does it matter now?"
-
-"Yes."
-
-Jane smiled. Even dying, she was in control. "She was innocent. Completely. I manufactured everything. The affair. The evidence. The threat."
-
-"Why?"
-
-"To show you who you really are. A woman willing to kill to protect her territory. I needed you to understand that power requires becoming a monster. And you needed a push."
-
-"You destroyed an innocent life."
-
-"So did you. That was the point. You could have investigated. Could have verified. Could have confronted her and learned the truth. Instead, you went straight to murder. That's who you are, Anna. Not who I made you. Who you always were."
-
-"I'm not—"
-
-"You are. And the beautiful part? You'll live with it forever. Every success. Every achievement. Every moment of power. You'll know it's built on the body of an innocent woman you killed in cold blood."
-
-"I hate you."
-
-"I know. But you also learned from me. And you'll pass those lessons on. To the next hungry young woman who asks for mentorship. The cycle continues."
-
-Jane closed her eyes. Breathed shallow. Smiled.
-
-"Thank you for coming. And Anna—congratulations. You won."
-
-She died an hour later.
-
-Anna sat with the body. Thought about legacy. About mentorship. About the poison Jane had planted that had flowered into murder.
-
-And about whether Anna was any different from the woman who'd destroyed her.
-
-She wasn't.
-
 ---
 
 Anna served as board chair for eight years.
@@ -124,13 +64,15 @@ At seventy-five, Anna fell. Broken hip. Hospital. Complications.
 
 The end came slowly. Pneumonia. Organ failure. The body shutting down piece by piece.
 
-Sophie and Jake came. Sat with her. Held her hands.
+Sophie and Jake came. Sat with her. Held her hands. Claire came too, the friend who'd never abandoned her, even when she should have.
 
 "We forgive you," Sophie said. "If that matters."
 
 "It matters," Anna whispered.
 
 But did they forgive her? Or were they just being kind to a dying woman?
+
+Claire squeezed her hand. Said nothing. Her presence was enough—a reminder of the person Anna could have been. Should have been.
 
 And did Jessica forgive her? From wherever the dead went?
 
@@ -152,7 +94,7 @@ Jessica didn't answer. Just looked at her with those wide, terrified eyes. The l
 
 Then the darkness came.
 
-And Anna—powerful, successful, ruthless Anna—died alone in a hospital room, surrounded by family who'd learned to love the memory of who she might have been, but not who she'd actually become.
+And Anna—powerful, successful, ruthless Anna—died in a hospital room, surrounded by her children who barely knew her anymore, and by Claire, the person she should have been but never became.
 
 Her obituary called her a trailblazer. An inspiration. A woman who'd broken every barrier.
 

@@ -50,79 +50,91 @@ But Emma didn't hear the warning. She heard encouragement.
 
 After, Anna went back to her office. Looked at the photos on her desk.
 
-Sophie, now thirty-one. A surgeon. Married to a kind man. Two children Anna barely knew. They visited twice a year, out of obligation.
+Sophie, now thirty. A surgeon. Married to a kind man. Two children Anna barely knew. They visited twice a year, out of obligation.
 
-Jake, twenty-nine. Teaching art. Following his father's path. Spoke to Anna on holidays, kept it brief.
+Jake, twenty-four. Teaching art. Following his father's path. Spoke to Anna on holidays, kept it brief.
 
 Andrew had died two years ago. Heart attack. Sudden. Anna had gone to the funeral. Stood in the back. Catherine—his widow—had been gracious.
 
-"He never stopped loving you," Catherine had said. "Even after everything."
+"He never stopped loving you," Catherine had said. "Even after everything. He never mentioned your name, but I saw in his face his heart was not with me."
 
-Anna didn't know if that made it better or worse.
+Anna knew the truth Catherine didn't. Andrew had never stopped loving her, but she wasn't the woman he'd loved. That was Jessica. The woman Anna had murdered. The ghost that had haunted Andrew until his last breath.
 
 ---
 
 Jane was released after eighteen years. Good behavior. Model prisoner.
 
-She was seventy-two. Gray hair. Thin. Still elegant.
+She was sixty. Gray hair. Thin. Softer somehow.
 
 They met for coffee. First time in almost two decades.
 
-"You look well," Jane said.
+"Anna. Thank you for agreeing to see me."
 
-"So do you. Considering."
+Jane's voice was different. Quieter. Less sharp.
 
-"Prison ages you. But it also clarifies. Strips away everything false. I recommend it."
+"I was curious," Anna said.
 
-Anna almost laughed. "I'll pass."
+"I don't blame you." Jane folded her hands. There was a wooden cross on a chain around her neck. Simple. Worn. "I found God in prison. I know how that sounds. Every convict finds God, right? But it was real for me."
 
-"How's the board?"
+Anna studied her. Looking for the manipulation. The angle. Found nothing but sincerity.
 
-"Powerful. Boring. Exactly what I wanted."
+"I'm glad for you."
 
-"And Jessica? Do you still dream about her?"
+"Are you? You look skeptical."
 
-Anna paused. Considered lying. Decided truth was easier.
+"I am skeptical."
 
-"Every night."
+Jane smiled sadly. "I don't blame you for that either. I spent fifteen years manipulating you. Destroying you. Creating a monster in my own image."
 
-"Good. You should. She keeps you human."
+"I'm not a monster."
 
-"I'm not sure I'm human anymore."
+"Aren't you? Anna, I know what I did to you. The sabotage. The psychological warfare. Mia's death. Jessica's—" Jane paused. "I set you up to believe Jessica was your enemy. I wanted you to see that power requires sacrifice. That ambition demands blood."
 
-"None of us are," Jane said. "That's the point. Humanity is what you sacrifice for power. I sacrificed it deliberately. You sacrificed it unconsciously. But we both did it."
+Anna's face remained neutral.
 
-"You killed Mia to teach me that."
+"I've spent eighteen years praying for your soul," Jane continued. "And mine. For Mia. For Jessica. For everyone we destroyed."
 
-"I killed Mia to push you toward your potential. You needed to understand that power requires terrible choices."
+"Jessica killed herself," Anna said carefully.
 
-"And Jessica? Was that part of the lesson too?"
+"Did she? Or did someone break her first? Did someone make her death seem like the only option?" Jane's eyes were searching. Genuine. "I don't know what happened that night. But I know I created the circumstances. I know I'm responsible."
 
-"Jessica was your choice. Not mine. I provided circumstances. You provided murder. You're welcome."
+Anna said nothing.
 
-Anna should have been angry. Should have walked out. Should have felt something other than tired resignation.
+"I came here to apologize," Jane said. "And to beg you to find a way back to your humanity. Before it's too late. You're fifty-seven. You have time. You can still choose differently."
 
-"Why are you here, Jane?"
+"I like my choices."
 
-"To see how my greatest creation turned out." Jane smiled. "And I have to say—you exceeded expectations. Board member. Feared. Respected. Successful beyond measure. Alone. Empty. Perfect."
+"Do you? When's the last time you felt joy? Real joy? Not satisfaction from a deal, but actual happiness?"
 
-"I'm not empty."
+"I don't need joy. I have success."
 
-"Aren't you? When's the last time you felt joy? Love? Anything that wasn't ambition or guilt?"
+Jane looked at her with something like pity. "I had success too. And it cost me everything. Don't make my mistakes, Anna. Don't end up like me—sixty years old, alone, trying to atone for sins that can never be forgiven."
 
-Anna couldn't answer.
+"You have God now. Isn't that forgiveness?"
 
-Jane stood. "Thank you for the coffee. And Anna—congratulations. You became exactly what I intended. A woman powerful enough to be dangerous. Smart enough to hide it. And hollow enough to never question whether it was worth it."
+"God's forgiveness is easy. Human forgiveness—real forgiveness—that's what I'll never have. Mia's family will never forgive me. Andrew's family will never forgive me. And you—" Jane's voice broke. "You'll never forgive me. And you shouldn't."
 
-She left.
+Anna stood. "I appreciate you reaching out. But I'm not interested in redemption. Or confession. Or whatever this is."
 
-Anna sat alone. Finished her coffee. Went back to work.
+"Anna, please—"
 
-Because work was all she had. All she'd ever had. All she'd chosen over everything else.
+"I have a meeting."
 
-And if that made her a monster—
+"Your soul is in danger—"
 
-Well.
+"I don't have a soul anymore, Jane. You should know. You helped me kill it."
+
+Anna left.
+
+She walked to her car. Drove back to the office. Sat at her desk and felt nothing.
+
+Jane's words echoed. *Your soul is in danger.*
+
+But Anna had stopped believing in souls years ago. Souls were liabilities. Weakness. The price of power was giving them up.
+
+And Anna had paid that price willingly.
+
+If that made her a monster—well.
 
 At least she was a successful one.
 

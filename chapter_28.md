@@ -48,7 +48,7 @@ Catherine sent a thank-you note. Handwritten. Gracious.
 
 Anna filed it away and felt nothing.
 
-Sophie was seventeen now. Applying to colleges. Wanted to study medicine. As far from her mother's world as possible.
+Sophie was fifteen now. Starting to think about colleges. Wanted to study medicine. As far from her mother's world as possible.
 
 "Do you hate me?" Anna asked once, over a lunch Sophie had agreed to out of obligation.
 
@@ -62,9 +62,9 @@ The insight was sharper than any accusation.
 
 ---
 
-Jake was fourteen. Looked like Andrew. Had Andrew's quiet kindness. He visited Anna every other weekend because the custody agreement said he had to.
+Jake was nine. Looked like Andrew. Had Andrew's quiet kindness. He visited Anna every other weekend because the custody agreement said he had to.
 
-They'd run out of things to talk about by the time he was twelve.
+They'd started running out of things to talk about.
 
 Now they sat in expensive restaurants and made small talk about school, about friends, about nothing that mattered.
 

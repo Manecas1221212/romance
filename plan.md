@@ -275,8 +275,8 @@
 - Jane's lawyer approaches: Jane wants to speak privately
 - **Jail meeting:** Jane reveals she has security camera footage of Anna breaking in, but that, lucky Anna, she had lost the fotage by pure mistake ( you can make something realistic up here)
 - Jane: *"I created you. Fifteen years of mentorship. I showed you what power really costs."*
-- Jessica admits she was always afraid Anna would take her place because her life was more stable, while herself was always having casual one night stands with people from the office
-- **Jane admits she knew about Jessica's murder:** *"You murdered an innocent woman. That's on you."*
+- Jane admits she was always afraid Anna would take her place because her life was more stable, while herself was always having casual one night stands with people from the office
+- **Jane tells Anna she is quite sure she killed Jessica:** *"You murdered an innocent woman. That's on you."* Why does she believe this ? she does not know for sure, but she knows that she had been trying to get Anna to believe Jessica was the one sabotaging her, and all of the sudden a woman that is super happy dies of suicide ? She tries to get Anna to confess, but Anna does not. This is a very tense moment of conversation. 
 - Jane: *"I want you to know—you're just like me. The only difference is I owned it."*
 - Jane asks about the control Anna felt suffocating Jessica
 - Jane explains: *"Even though I can't have yo ulocked up, watching you become who you really are is more satisfying than revenge."*
@@ -333,12 +333,12 @@
 - Anna turns 60 in an empty penthouse
 - Birthday Party is corporate obligations, no one who loves her is there, except for Claire, she still drops by once in a while, now a happy grandmother surrounded by love
 - Sophie/Jake send gifts, don't attend
-- Every birthday Anna opens the encrypted file with Jessica murder plan, but feels nothing
+- Every birthday Anna opens a photo of Jessica, but feels nothing
 - Board offers her **chair position** (the absolute top)
 - Patricia raises concerns about "history with Jane"
 - Anna: *"My record speaks for itself. Zero scandals."*
 - Wins by single vote, becomes board chair at 60
-- Jessica calls Anna, still trying to get her to stat going to church to confess. Anna hangs up
+- Jane calls Anna, still trying to get her to stat going to church to confess. Anna hangs up
 - Sees herself in mirror and starts doubting if this was actually the life she wanted: not survivor, just murderer who built empire on innocent blood
 
 **Chapter 31: The Legacy**

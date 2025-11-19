@@ -8,11 +8,29 @@ No one came because they loved her.
 
 Sophie and Jake sent gifts. Didn't attend. Had excuses that were probably true.
 
-Claire sent a card. *Thinking of you. Hope you're well. —C*
+Claire came. She always did. Now sixty-two, gray-haired, a grandmother three times over. Her life was small. Happy. Full of love Anna would never understand.
 
-Polite. Distant. The remains of a friendship that had died thirty years ago.
+They had coffee after the others left.
 
-Andrew was gone. Catherine too, cancer, two years after Andrew's heart attack. The people who'd known Anna when she was human were disappearing.
+"How are you?" Claire asked.
+
+"Fine. Good."
+
+"Anna."
+
+"Really. I'm fine."
+
+Claire looked at her with the same expression she'd had at Columbia. The one that said she knew Anna was lying but wouldn't push.
+
+"The grandkids are wonderful," Claire said. "You should meet them sometime."
+
+"I'd like that."
+
+They both knew Anna wouldn't.
+
+After Claire left, Anna stood in her empty penthouse and felt the silence settle like snow.
+
+Andrew was gone. Dead five years now. Catherine had passed two years after him, cancer. The people who'd known Anna when she was human were disappearing.
 
 Soon, only the monster would remain.
 
@@ -20,15 +38,11 @@ Soon, only the monster would remain.
 
 That night, alone, Anna did what she did every year on her birthday.
 
-She opened the encrypted file. The one she'd never deleted.
+She opened the drawer where she kept Jessica's photo. The one from the company directory. Professional. Smiling. Young.
 
-Jessica's address. The timeline. The murder plan.
+Anna looked at that face. Remembered that night with perfect clarity. The fear in Jessica's eyes. The plastic. The moment life became death.
 
-Evidence of who she really was.
-
-She read through it. Remembered that night with perfect clarity. Jessica's face. The plastic. The moment life became death.
-
-Anna waited for guilt. For horror. For regret.
+She waited for guilt. For horror. For regret.
 
 Felt nothing.
 
@@ -64,7 +78,7 @@ Anna won by a single vote.
 
 Board chair. At sixty.
 
-She'd done it. Reached the absolute top. The position Jane had held. The power she'd sacrificed everything to attain.
+She'd done it. Reached the absolute top. The position Jane had once held. The power she'd sacrificed everything to attain.
 
 ---
 
@@ -72,113 +86,83 @@ That night, her phone rang. Unknown number.
 
 "Hello?"
 
-"Congratulations." Jane's voice. Older. Raspier. Still sharp.
+"Congratulations, Anna. Board chair. I always knew you'd reach the pinnacle."
 
-"How did you get this number?"
+Jane's voice. Older. Softer than it had been three years ago at their coffee meeting. Still with that edge of absolute certainty.
 
-"I have my ways. Even at seventy-four."
+"Jane. How did you—"
 
-"What do you want?"
+"I keep tabs. Even at sixty-three." A pause. "I wanted to tell you again how proud I am. But also how worried."
 
-"To tell you I'm proud. Board chair. You've surpassed even my expectations."
+"I don't need your pride or your worry."
 
-"I didn't do it for you."
+"Your soul, Anna. It's in danger. More now than ever. You've reached the top, but you're standing on bones. Jessica's bones. Your humanity's bones."
 
-"Didn't you? Everything you became, I taught you. The ruthlessness. The control. The willingness to destroy."
+"We've had this conversation."
 
-"I was that person before you."
+"And you still won't listen. The church I attend—there's a wonderful priest. Father Michael. He understands complicated pasts. He could help you find a way to—"
 
-"Were you? Or did I just give you permission to embrace it?"
+"To what? Confess? Atone? I'm not interested in redemption, Jane."
 
-Anna didn't have an answer.
+"Then you're going to die empty. Just like I almost did. Don't you see? The power means nothing if—"
 
-"I'm dying," Jane said casually. "Pancreatic cancer. Six months, maybe less."
+Anna hung up.
 
-"I'm sorry."
+She stood at the window, looking at her reflection in the dark glass. Expensive suit. Perfect hair. Empty eyes.
 
-"Don't be. I'm ready. I've done what I came to do. Created a legacy. You."
+The city sprawled below. Millions of lights. Millions of lives.
 
-"I'm not your legacy."
+She'd conquered it. Climbed to the absolute top. Board chair of one of the most powerful firms in New York.
 
-"No? You murdered an innocent woman to protect your career. You broke into apartments. You lied to police. You destroyed your family. You sacrificed everything human to become powerful. How is that not my greatest achievement?"
+And she felt nothing.
 
-"Because I'm not you."
+Jane's words echoed. *You're standing on bones.*
 
-"Aren't you? Look in the mirror, Anna. Really look. What do you see?"
+Jessica's bones. An innocent woman—not innocent of the affair, that had been real, orchestrated by Jane but real nonetheless—but innocent of the sabotage. Anna had killed the wrong person for the wrong reason. And when she'd discovered the truth, she'd felt nothing. Done nothing. Just continued climbing.
 
-Anna looked at her reflection in the dark window. Expensive suit. Perfect hair. Empty eyes.
+Mia's bones. Collateral damage in Jane's war against Anna.
 
-A stranger.
+Andrew's bones. Metaphorically. The man she'd married had died long before his heart attack. Killed by grief and betrayal and the knowledge that his wife was capable of terrible things.
 
-"I see someone who won," Anna said.
+Sophie and Jake's bones. The childhood they should have had. The mother they deserved.
 
-"Exactly. And isn't that what I taught you? That winning is everything? That power justifies any price?"
+Anna looked at herself in the reflection and tried to see the girl she'd been at Columbia. Ambitious. Driven. But still human. Still capable of love.
 
-"Yes."
+That girl was gone.
 
-"Then say thank you."
+In her place stood a woman who'd built an empire on blood. Who'd murdered an innocent woman and felt nothing. Who'd sacrificed every relationship that mattered for power that meant nothing.
 
-Anna closed her eyes. "Thank you."
+Jane had been right about one thing.
 
-"You're welcome." Jane's breathing was labored. "One more thing. Jessica Hall. Do you ever wonder if she was really guilty? If she was actually having an affair or if I manufactured that too?"
+Anna had become exactly what Jane had intended. A perfect reflection. A legacy.
 
-Anna's heart stopped.
+A monster with a corner office.
 
-"What?"
+The phone rang again. Jane's number.
 
-"The texts. The receipts. The evidence you found. What if I planted it? What if Jessica was innocent of everything except being in the wrong place at my mercy?"
+Anna didn't answer.
 
-"You're lying."
+She poured expensive scotch. Sat in the dark. Thought about the photo she kept in her drawer. Jessica's face. The evidence of her crime that she couldn't bring herself to discard.
 
-"Am I? Or are you just hoping I am? Because if Jessica was completely innocent—if she wasn't even sleeping with Andrew—then you're not a woman who killed in passion. You're just a murderer."
+Maybe because it was the only honest thing left in her life.
 
-"Jane—"
+The only proof that she'd once felt something strongly enough to kill for it. Even if that feeling had been rage. Paranoia. Fear.
 
-The line went dead.
+At least it had been feeling.
 
-Anna called back. Disconnected number.
+Now there was just empty silence. And the view from the top. And the knowledge that she'd traded everything real for everything hollow.
 
-She sat in the dark and thought about Jessica's face. About her last words. *I didn't sabotage you. I swear.*
+Anna looked at her reflection one more time.
 
-What if she'd been telling the truth?
+*Not a survivor. Not a victor.*
 
-What if Andrew and Jessica had never actually slept together?
+*Just a murderer who'd built an empire on innocent blood.*
 
-What if Jane had manufactured the entire affair to push Anna toward murder?
+*And there was no redemption for that. No forgiveness. No escape.*
 
-Anna pulled up the old evidence. The texts. The receipts. Examined them with thirty years of experience.
+She finished the scotch.
 
-Found inconsistencies. Metadata that didn't quite match. Phrases that sounded like Jane's voice, not Jessica's.
+Went to bed.
 
-Oh God.
-
-Jessica had been completely innocent.
-
-Andrew had been emotionally close to her. Grieving with her. But not sleeping with her.
-
-Jane had faked it all.
-
-And Anna had killed an innocent woman based on manufactured evidence.
-
-The realization hit like a freight train.
-
-Anna ran to the bathroom. Threw up. Collapsed on the tile.
-
-Thirty years of telling herself Jessica's death was justified. That she'd eliminated a threat. That she'd had no choice.
-
-And it was all a lie.
-
-She'd murdered an innocent woman because Jane had manipulated her into it.
-
-Anna looked at herself in the bathroom mirror. Saw the truth Jane had wanted her to see.
-
-Not a survivor. Not a victor.
-
-Just a murderer who'd built an empire on innocent blood.
-
-And there was no redemption for that. No forgiveness. No escape.
-
-Just the hollow knowledge that she'd become exactly what Jane intended.
-
-A monster with a corner office and no soul left to damn.
+And dreamed, as always, of Jessica's face.
 

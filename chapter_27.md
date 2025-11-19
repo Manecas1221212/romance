@@ -60,7 +60,7 @@ And Andrew was right—it had been worth it.
 
 ---
 
-Jake's game was Saturday at ten. Anna arrived at 9:45.
+Jake's soccer game was Saturday at ten. Anna arrived at 9:45.
 
 Andrew was already there. Sitting with a woman Anna didn't recognize. Blonde. Pretty. Laughing at something Andrew said.
 
