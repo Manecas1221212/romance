@@ -47,7 +47,8 @@
 - Jessica starts texting Andrew, buys his art, "gets him"
 - **Sabotage escalates:** phantom emails, corrupted decks, fake calendar invites
 - Andrew says Jessica "listens" about Mia in a way Anna doesn't
-- Distance grows between Anna and Andrew
+- Anna and Andrew have a fight and Distance grows between Anna and Andrew
+- Anna says that Jessica shouldn't text her bosses husband
 
 **Chapter 7: Fractures**
 - Anna is getting further away from SVP promotion, feels nothing
@@ -156,7 +157,7 @@
 - Andrew at bar after a gallery show, the gallery went terribly, he is also super sad Jessica could not come
 - Jason Whitmore approaches him
 - Jason reveals he's Anna's ex from Columbia
-- **Jason tells twisted version of their breakup** - claims Anna was controlling, obsessive, hacked his accounts, tried to sabotage his London internship
+- **Jason tells twisted version of their breakup** - claims Anna was controlling, obsessive, hacked his accounts, tried to sabotage his internships and was pissed when he got better grades than her
 - Makes Andrew doubt Anna, but overall Jason shows his respects for the family and says he hopes they can all get along ( the seed of mistrust has, however, been planted in Andrew's mind)
 
 **8:45 PM — Jessica's Apartment:**

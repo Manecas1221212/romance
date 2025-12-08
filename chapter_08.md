@@ -22,15 +22,15 @@ Monday morning, a deck she'd finalized Friday night appeared corrupted. Every th
 
 She presented from memory, improvising charts she couldn't display, pulling numbers from recall. When it was over, the client looked skeptical. Marcus looked furious.
 
-Back at her desk, Anna opened the original file. Perfect. Intact. She checked the version she'd sent—corrupted, just as Marcus had shown. But when she checked the sent folder, the timestamp had changed. 2:47 AM. She'd been asleep at 2:47.
+Back at her desk, Anna opened the original file. Perfect. Intact. She checked the version she'd sent—corrupted, just as Marcus had shown. But when she opened her email and looked at her sent folder—the list of all emails she'd sent—she saw something that made her blood go cold. The corrupted file had been sent at 2:47 AM. She'd been asleep at 2:47 AM.
 
-Someone had accessed her computer. Corrupted the file. Sent it while she slept.
+Someone had accessed her computer. Corrupted the file. Sent it from her email account while she slept.
 
 She changed her password again. The eighth time in two weeks.
 
 ---
 
-Wednesday, a calendar invite appeared: **Client Call - Whitmore Industries - 3pm**. She didn't recognize the company name but assumed Tom had added her to Jason's portfolio. When she joined the video call, the screen was black. No one else connected. After fifteen minutes, she left.
+Later that week, on Wednesday, a calendar invite appeared: **Client Call - Meridian Partners - 3pm**. It showed as coming from Tom's email address, so Anna assumed he'd added her to a new client. She didn't recognize the company name, but Tom was always bringing in new business. When she joined the video call, the screen was black. No one else connected. After fifteen minutes, she left.
 
 Tom stopped by her office at four.
 
@@ -40,11 +40,11 @@ Tom stopped by her office at four.
 
 "Three o'clock. They waited twenty minutes."
 
-"I had a call with Whitmore Industries."
+"I had a call with Meridian Partners. You sent me the invite."
 
-Tom frowned. "We don't have a client called Whitmore Industries."
+Tom frowned. "I didn't send you any invite. We don't have a client called Meridian Partners."
 
-Anna opened her calendar. The three o'clock slot now read: **Sanderson Q3 Review**. The Whitmore invite had vanished.
+Anna opened her calendar. The three o'clock slot now read: **Sanderson Q3 Review**. The Meridian Partners invite had vanished, and when she checked her email, there was no record of Tom sending it.
 
 "Tom, I swear—"
 
@@ -62,7 +62,7 @@ She wanted to scream. Instead, she nodded and waited for him to leave.
 
 ---
 
-The errors piled up.
+Meanwhile the errors piled up.
 
 An email to a major client contained pricing that was off by a decimal point—$45 million instead of $4.5 million. The kind of mistake that made her look incompetent. Or unhinged.
 
@@ -78,19 +78,19 @@ Click.
 
 ---
 
-At home, Andrew moved like a ghost. Present but untouchable. He'd stopped asking about her day. Stopped offering to make dinner. He'd wake before her, leave for the studio, return after she was asleep—or pretending to be.
+At home, Andrew moved like a ghost. Present but untouchable. He'd stopped asking about her day. Stopped offering to make dinner. He'd wake before her, retreat to the studio, return after she was asleep—or pretending to be.
 
 "How's the new series going?" she asked one morning, trying.
 
 "Fine."
 
-"Are you showing at Marcus's gallery again?"
+"Are you showing at Manuel's gallery again?"
 
 "Haven't decided."
 
 She wanted to reach for him. To say *I'm sorry I doubted you. I'm sorry I turned your grief into something ugly.* But the words stuck. And Andrew didn't make space for them.
 
-Sophie came downstairs with headphones in, a wall of sound between her and everything. Jake ate cereal with his nose in an iPad. The four of them occupied one space but felt like separate islands.
+Sophie came downstairs with headphones in, a wall of sound between her and everything. Jake ate cereal with his nose in an tablet. The four of them occupied one space but felt like separate islands.
 
 ---
 
@@ -112,11 +112,13 @@ Anna's jaw tightened. "She's competent."
 
 Anna didn't respond. But she watched Marcus walk away, and something clicked.
 
-Marcus had access to her calendar. Marcus sat on the same floor. Marcus would benefit from Anna's unraveling—if she failed, someone else would take SVP. Why not him?
+Marcus had access to her calendar. Marcus sat on the same floor. Marcus would benefit from Anna's unraveling—if she failed, if she lost the SVP promotion or got demoted, someone would need to take her VP position. Why not him?
 
-She started a new document: **Timeline**. Listed every incident. Cross-referenced with who had access, who'd been present, who'd benefit.
+She started to open a new document: **Timeline**. Took everything from her notebook of anomalies and expanded it. Listed every incident. Cross-referenced with who had access, who'd been present, who'd benefit.
 
 Marcus appeared on every line.
+
+But then she stopped. Her computer had been compromised. Her files corrupted. Her emails sent from her account while she slept. If someone was watching her digital activity, a document like this would be a roadmap to her suspicions.
 
 ---
 
@@ -126,11 +128,7 @@ Every phantom email. Every corrupted file. Every midnight call.
 
 And next to each entry: *Who benefits?*
 
-The answer kept coming back to work. Not her marriage. Not Andrew. Not Jessica.
-
 This was about the SVP position. About her career.
-
-Maybe she'd been looking in the wrong direction all along.
 
 ---
 
@@ -152,13 +150,23 @@ Claire was quiet for a moment. "You know it's okay to not be perfect, right?"
 
 "I'm not trying to be perfect. I'm trying to not fall apart."
 
-"Maybe you need to let yourself fall apart a little. See what's underneath."
+"Anna, you're holding everything so tight. Maybe you need to talk to someone. A therapist. Or just... take a breath. Slow down."
 
-Anna closed the notebook. "I can't afford to fall apart."
+Anna closed the notebook. "Did Andrew talk you into having this conversation?"
 
-"Then what can you afford?"
+"No. I called because I'm worried about you." Claire's voice was gentle but firm. "You sound like you're drowning."
 
-She didn't have an answer.
+"I'm fine."
+
+"You're not fine. And that's okay. But you need to let someone help you."
+
+"I will. I promise." Anna said it automatically, the way you say things to end uncomfortable conversations. "I should go. Early morning tomorrow."
+
+"Anna—"
+
+"I'll call you soon. Love you."
+
+She hung up before Claire could respond, then sat in the dark kitchen, notebook open, pen in hand, documenting everything that was trying to destroy her.
 
 ---
 
@@ -170,17 +178,31 @@ When she got back, Andrew was in the kitchen making coffee.
 
 "Yeah."
 
-"How was it?"
+He poured her a cup without asking, set it on the counter. "You're not working today?"
 
-"Hard. Good."
+"Not today."
 
-He nodded, and for a moment they stood there, two people who used to know how to talk to each other.
+"Good." He leaned against the counter, watching her. "The kids have been asking when we can all have lunch together. We haven't done that in a while. Sophie's been wanting to show you something she's working on for school."
 
-"I'm trying," Anna said quietly.
+Anna wrapped her hands around the mug, felt the warmth seep into her palms. "I'd love that."
 
-Andrew looked at her, and something softened. "I know."
+"We could go to that place they like."
 
-It wasn't forgiveness. But it was a start.
+She looked up, met his eyes. "Yeah. That sounds good."
+
+He smiled, small but real. "They'll be happy. We all will."
+
+Anna felt something crack in her chest—not pain, but relief. A moment of normalcy. A chance to be present.
+
+That weekend, for the first time in weeks, felt like a family weekend again. Anna had always worked weekends—that was normal—but not like this recent streak. Before, she would never miss more than two of Jake's games in a row. Before, they went out for lunch every weekend, even if it was quick. But lately, she'd been working nonstop, missing games, canceling plans.
+
+They went to lunch, and Sophie actually showed Anna her history project—a detailed timeline of women's rights movements that made Anna's chest swell with pride. Jake talked about soccer practice, and Anna promised to come to his game on Sunday.
+
+She did. Sat on the sidelines with Andrew, watched Jake score a goal, and felt something she hadn't felt in months: simple happiness. That night, she helped Sophie with her math homework, sitting at the kitchen table together, and for a moment it was like before—before the sabotage, before the distance, before everything started unraveling.
+
+She still checked her email. Of course she did. But less. And when she did, she put the phone away faster, went back to whatever the kids were doing, tried to be present in a way she'd forgotten how to be.
+
+It wasn't perfect. But it was something.
 
 ---
 
@@ -210,7 +232,11 @@ Tom looked confused. "No. You're presenting the Q4 outlook."
 
 "I have no idea. Let me check." He opened his calendar. "You're on the invite. Active. I didn't remove you."
 
-Anna felt the walls closing in. "Someone's trying to make me think I'm losing access. Trying to make me panic."
+Anna felt the walls closing in. "Someone's trying to make me think I'm losing access. Trying to make me panic." She paused. "Tom, remember that Meridian Partners meeting? The one that showed up from your email but you never sent?"
+
+He nodded slowly.
+
+"I think someone hacked your email too. Or at least figured out how to send invites that look like they're from you."
 
 "Anna—"
 
@@ -240,8 +266,7 @@ She opened the notebook. Added a new page.
 
 **Suspects:**
 - Marcus (motive: SVP position)
-- Jessica (access, opportunity, but why?)
-- Jason (recent arrival, old grudge?)
+- Jessica (access, opportunity, Andrew?)
 - Unknown (someone I haven't considered?)
 
 She circled Marcus's name.

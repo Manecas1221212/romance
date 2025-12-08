@@ -4,9 +4,9 @@
 
 Senior spring came with absurd sunshine. The kind that made the steps of Low Library a runway and made everyone believe their plans were guaranteed.
 
-Anna and Claire were about to graduate. Jason too. Jane was already downtown—past the point of campus rumors, now a story girls in pencil skirts told each other to prove it could be done.
+Anna and Claire were about to graduate. Jason too. Jane was thriving at Henderson—closing deals, on track for early promotion, becoming the story girls in pencil skirts told each other to prove it could be done.
 
-“We should move in together next year,” Jason said in March, as if it were a to-do on Anna’s list. They were walking past the Alma Mater, coffees in hand, her tote too heavy with printouts she’d highlighted within an inch of their lives. “Find a place in the West Village. I’ll be at Whitmore Capital by July. You’ll be at Henderson by August. It’s perfect.”
+"We should move in together next year," Jason said in March, as if it were a to-do on Anna's list. They were walking past the Alma Mater, coffees in hand, her tote too heavy with printouts she'd highlighted within an inch of their lives. "Find a place in the West Village. I'll be at Goldman by July. You'll be at Henderson by August. It's perfect."
 
 “We could,” Anna said lightly.
 
@@ -18,7 +18,7 @@ Anna and Claire were about to graduate. Jason too. Jane was already downtown—p
 
 She smiled and changed the subject to commencement tickets. She'd learned to pick her moments.
 
-The offers came. Henderson & Associates for her — Junior Analyst in M&A, the email that made her sit down on the floor and laugh until she cried. Jason’s offer from Whitmore Capital (his family’s money), no surprise. Claire accepted a junior strategy associate role at a med-tech firm that made devices small enough to feel like miracles.
+The offers came. Henderson & Associates for her — Junior Analyst in M&A, the email that made her sit down on the floor and laugh until she cried. Jason's offer from Goldman (his family's connections), was no surprise. Claire accepted a junior strategy associate role at a med-tech firm that made devices small enough to feel like miracles.
 
 “We’re doing it,” Claire kept saying. “We actually did it.”
 
@@ -38,7 +38,7 @@ By May, everything seemed to be falling into place. Degrees confirmed, job offer
 
 Then came the fight. A Tuesday night in her sorority room. 
 
-Anna's eyes were swollen in a way makeup couldn't fix. She was on the floor with her back against her bed, a blanket around her shoulders, hair a mess for the first time in months. Claire sat cross-legged, passing tissues like rations.
+Anna's eyes were swollen in a way makeup couldn't fix. She was on the floor with her back against her bed, a blanket around her shoulders, hair a total mess. Claire sat cross-legged, passing tissues like rations.
 
 "It started about apartment hunting," Anna said, voice raw, words sliding out like they had been waiting for permission. "Then it became about everything — the future he'd been planning without asking me. Children, how many, when. He said I wouldn't need to work so hard once we were married, that I could 'take a step back' after a few years at Henderson." She laughed, bitter. "Like he was offering me a gift."
 
@@ -54,13 +54,21 @@ Claire didn’t say I told you so. She just reached over and took Anna’s hand.
 
 Anna laughed a little, ridiculous and wet. “I feel stupid.”
 
-“You are not stupid. You are heartbroken and dehydrated.” Claire handed her a water bottle. “Drink.”
+"You are not stupid. You are heartbroken and dehydrated." Claire handed her a water bottle. "Drink."
 
-A knock. Jane, in the doorway, somehow both gentle and immovable. "I called," she said, coming in without waiting for permission. "You didn't answer. Don't do that."
+Claire's phone buzzed. She glanced at it, then at Anna. "I'm texting Jane."
 
-Anna inhaled. “I didn’t want to need you.”
+"Don't—"
 
-"You don't need rescuing," Jane said. "But you have support. That's different." She sat on the bed, her expression both analytical and genuinely concerned. "You'll be grateful you did this. Maybe not tomorrow, but in five years. Ten. Twenty."
+"Too late. Already texted her." Claire's voice was firm. "You need someone who's been where you're going."
+
+Twenty minutes later, a knock. Jane, in the doorway, somehow both gentle and immovable. She came in without waiting for permission, setting down her bag and assessing the scene with the efficiency of someone who'd seen this before.
+
+"Claire gave me the highlights," Jane said, sitting on the edge of the bed. "Wanna tell me the rest?"
+
+Anna inhaled. "I didn't want to bother you with this, I know you think this is stupid."
+
+"Stupid?" Jane's expression sharpened. "Ending something that was trying to make you smaller? That's the opposite of stupid." She sat on the bed, her expression both firm and genuinely concerned. "You'll be grateful you did this. Maybe not tomorrow, but in five years. Ten. Twenty."
 
 “I’m grateful today,” Claire said, fierce.
 
@@ -70,17 +78,31 @@ Anna wiped her face. "You can do that?"
 
 "I have some pull," Jane said with a dry smile. "And Anna? Don't apologize for wanting what you want."
 
-Commencement came whether she was ready or not. Sun on marble, gowns that made everyone look like they knew ancient secrets. Jason sat with his family on one side of the lawn. Anna sat with Claire and squeezed her hand at random intervals, just to feel that someone else was real.
+The next few weeks passed in a blur of finals, goodbyes, and carefully avoiding Jason in shared spaces. Anna threw herself into graduation prep the way she threw herself into everything—thoroughly, methodically, with no room for hesitation. It was easier than sitting still. Easier than letting herself feel the hollowness that opened up every time she saw a couple walking hand-in-hand or thought about the apartment they'd never share. She cried twice more—once in the library bathroom at 2 a.m., once on Claire's shoulder after too much wine—but mostly, she just kept moving.
 
-After, there were pictures where Anna’s smile was smaller than usual but still there, because even grief couldn’t shrink the fact that she had built something no one had given her.
+Commencement came whether she was ready or not. Sun on marble, gowns that made everyone look like they knew ancient secrets. Jason sat with his family on one side of the lawn—his mother in pearls, his father in a suit that cost more than a semester's tuition. Anna sat with Claire, her mom, and her stepfather.
+
+Her mother had taken the day off—unpaid—and wore a dress she'd bought on sale three months ago. Her stepfather wore the suit from his own wedding, cleaned and pressed. They looked out of place among the legacy families and old money, but when Anna crossed the stage and heard her mother scream her name like she'd won the lottery, none of that mattered.
+
+After the ceremony, her mother hugged her so tight Anna could barely breathe. "I am so proud of you," she whispered, her voice breaking. "So proud."
+
+Her stepfather kissed her forehead. "You did it, kiddo. You really did it."
+
+Anna held onto them both, letting herself feel it—the weight of what she'd accomplished, the distance she'd traveled. Jason was somewhere across the lawn with his family, but here, with her mom's hands on her face and tears in her eyes, Anna felt something shift. This was who she'd done it for. This was why it mattered.
+
+"Henderson & Associates starts in August," Anna said, smiling through her own tears. "I'm going to make you proud."
+
+"Baby," her mother said, cupping her face, "you already have."
+
+After they left—her mom back to her shifts, her stepfather back to the garage—there were pictures where Anna's smile was smaller than usual but still there, because even grief couldn't shrink the fact that she had built something no one had given her.
 
 Later, when the campus finally quieted and boxes were half-packed, Anna stood on the Low steps and let herself imagine the jump.
 
-The city. The office. The models. The deals. Henderson.
+The city. The office. The deals. Henderson.
 
 Her life, hers.
 
-She didn't know yet about the loft in Tribeca — the kind of apartment that meant you'd made it, with floor-to-ceiling windows and a price tag that made most people's eyes water. She didn't know about meeting a gentle artist named Andrew Park at a gallery opening two years later — someone who would love her ambition instead of trying to manage it. She didn't know that Anna Bennett would become Anna Park, or about a daughter with her determined stare and a son with her stubborn jaw. She didn't know about the boardrooms where women smiled warmly and still competed ruthlessly.
+She didn't know yet about the Upper West Side apartment with the good schools nearby — the kind of place that meant you'd made it, with high ceilings and a price tag that made most people's eyes water. She didn't know about meeting a gentle artist named Andrew Park at a gallery opening two years later — someone who would love her ambition instead of trying to manage it. She didn't know that Anna Bennett would become Anna Park, or about a daughter with her determined stare and a son with her stubborn jaw. She didn't know about the boardrooms where women smiled warmly and still competed ruthlessly.
 
 But she knew this much: she would not give up her life for someone else's plan.
 

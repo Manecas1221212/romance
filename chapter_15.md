@@ -28,7 +28,7 @@ At five, she made dinner for Sophie and Jake—pasta with marinara sauce, garlic
 
 "Where's Dad?" Jake asked, twirling spaghetti.
 
-"At his studio. But you'll see him Sunday."
+"He's staying with a friend for a few days. But you'll see him Sunday."
 
 Sophie looked up from her phone. "Are you guys getting divorced?"
 

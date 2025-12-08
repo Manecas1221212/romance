@@ -1,18 +1,16 @@
 # Chapter 7: Fractures
 
-The SVP announcement came three weeks after Mia's funeral. Tom Harrison called Anna into his office and offered her the title with a handshake and a "You've earned this."
+The SVP conversation still hadn't been rescheduled. Three weeks after Mia's funeral, Anna was still waiting. Still checking her calendar for the meeting that never appeared. Still VP, still in limbo.
 
-Anna smiled. She said thank you. She went back to her office and closed the door and felt nothing.
+Tom's assistant kept saying "soon." Tom kept saying "when Archer stabilizes." The Archer deal had stabilized two weeks ago.
 
-No triumph. No relief. Just the flat hum of another box checked.
+Anna smiled through it. She said she understood. She went back to her office and closed the door and felt nothing.
 
-She texted Andrew: *Got it. SVP.*
+No frustration. No urgency. Just the flat hum of another day that looked like all the others.
 
-He replied an hour later: *Proud of you.*
+She didn't text Andrew about it. There was nothing to tell. He'd barely spoken to her since their fight anyway.
 
-Three words. No exclamation point. She stared at the screen and wondered when they'd started communicating in shorthand.
-
-Denise brought champagne. Marcus hugged her. Rachel cried. The team applauded. Anna performed gratitude like a second language she'd learned young and spoke without accent.
+The office felt different now. Denise avoided eye contact. Marcus asked if she was "holding up okay." The team applauded when she closed a deal, but the applause felt thinner, more careful.
 
 That night, she came home at nine. Andrew was in the studio. She could see him through the glass door—bent over a canvas, earbuds in, moving his brush in slow, furious strokes.
 
@@ -24,25 +22,19 @@ Sophie wandered in, ponytail sideways, phone glowing. "Did you get it?"
 
 "What?"
 
-"The promotion. Dad said you were waiting to hear."
+"The promotion. Dad said you were supposed to hear this week."
 
-"Oh. Yes. I got it."
+"Not yet." Anna kept her voice light. "Still waiting."
 
-Sophie looked up, actually looked. "Why don't you sound happy?"
+Sophie looked up, actually looked. "That sucks."
 
-"I am happy," Anna said automatically.
+"It's fine. These things take time."
 
-Sophie studied her for a long moment, then shrugged and went back to scrolling. "Cool. Congrats."
+Sophie studied her for a long moment, then shrugged and went back to scrolling. "Well, they'd be stupid not to promote you."
 
 Anna watched her daughter disappear back into her room and thought, *When did we stop seeing each other?*
 
-The next morning, a bottle of wine appeared on Anna's desk. Expensive. French. The card read: *To new heights. —J.*
-
-Jane didn't usually send gifts. Anna turned the card over, looking for more, but that was it. She texted: *Thank you. You didn't have to.*
-
-Jane: *I know.*
-
-The sabotage didn't stop with the promotion. It evolved.
+The sabotage didn't stop. It evolved.
 
 Files renamed in her directory. Nothing catastrophic—just enough to make her look disorganized in meetings. A shared deck with the wrong client logo. A voicemail marked urgent that turned out to be dead air.
 
@@ -54,7 +46,7 @@ Anna's jaw tightened. "I didn't rename those files."
 
 "Do you?"
 
-Denise met her eyes. "I do. But Anna, you need to be careful. People are starting to notice. Tom asked me if you were 'settling in okay.'"
+Denise met her eyes. "I do. But Anna, you need to be careful. People are starting to notice. Tom asked me if you were 'managing okay.'"
 
 The implication landed like a stone, "They think I'm cracking".
 
@@ -86,27 +78,37 @@ He nodded slowly, looking down at his coffee. "Okay."
 
 He left the room before she could say anything else.
 
-Jessica started bringing Andrew coffee.
+Jessica's name kept appearing in Andrew's phone.
 
-Anna only knew because she saw the paper cup in the studio one afternoon—logo from a place near Jessica's apartment, the kind of detail you'd miss if you weren't paying attention.
+Anna only knew because she saw a text notification light up the screen one afternoon in the studio—Jessica's name, a message preview about "the gallery show."
 
-"Jessica was here?" Anna asked, too casually.
+"You're still talking to Jessica?" Anna asked, trying to keep her voice neutral.
 
-Andrew looked up from his canvas. "She dropped off a check. For the last piece."
+Andrew looked up from his canvas. "She's helping me plan the show. She knows some gallery owners."
 
-"She's buying a lot of your work."
+Anna felt something cold settle in her stomach. "I thought you were working with Ben on that."
 
-"She likes it."
+"I am. I asked Jessica if she knew anyone who could help. She has connections." He set his brush down. "She actually understands the work, Anna. She asks real questions."
 
-"She's also my direct report."
+"Still, I asked her to give you space. A few weeks ago. Professionally."
 
-Andrew set his brush down carefully. "Is that a problem? I didn't think..." He looked genuinely confused. "She likes the work. I didn't realize it would be an issue."
+Andrew's expression shifted—not guilt, but surprise, then frustration. "You did what?"
 
-"That's not what I'm saying."
+"I asked her to respect boundaries. You're my husband, she's my coworker."
 
-"Then what are you saying?"
+"So you told her to stay away from me? Without asking me?" His voice was tight now. "Anna, she's been one of the only people who actually wants to talk about Mia. Who doesn't just change the subject or tell me to 'focus on the positive.'"
 
-Anna hesitated. She didn't know. Just that something about Jessica's presence in her husband's life felt invasive, like fingers in a wound. "Nothing. Forget it."
+"I'm here. You can talk to me."
+
+"Can I?" He looked at her directly. "Because every time I try, you're on your laptop. Or you're checking your phone. Or you're telling me what I should do instead of just listening."
+
+The words landed like stones. Anna wanted to argue, but couldn't find the ground to stand on.
+
+"She works for me, Andrew."
+
+"And I'm grieving my sister." His voice cracked slightly. "She's helping me with my work—actual gallery contacts that could make a difference for my career. And yes, she's been kind. She asks about Mia. She doesn't treat my grief like it's something I need to hurry up and get over."
+
+Anna wanted to say that Jessica felt wrong, that every interaction felt calculated. But Andrew was looking at her like she was being unreasonable, and maybe she was.
 
 He studied her for a moment, concern flickering across his face. "Anna, are you okay? You seem..."
 
@@ -140,43 +142,51 @@ She sat at her desk, heart hammering, and thought, *I'm not crazy. I'm not crazy
 
 But the doubt was there now, a splinter under the skin.
 
-The next day, Jessica stopped by Anna's office with an expression that looked concerned. "I heard about your mom. I'm so sorry."
+The next day, Denise appeared in her doorway, pale. "Anna, I just got a call from Mount Sinai Hospital. Your mother had a fall. They said she's not stable, they need you to come in."
 
-Anna blinked. "My mom?"
+Anna's blood went cold. She grabbed her bag, her phone, her keys. She was in a car service within five minutes, heart hammering, hands shaking.
 
-"The fall? Andrew mentioned she was in the hospital."
+The hospital was chaos—the usual hum of fluorescent lights and disinfectant and quiet panic. Anna found the front desk, gave her mother's name.
 
-Anna's blood went cold. "My mother is fine."
+The nurse checked the system. Frowned. "I don't see anyone by that name admitted today."
 
-Jessica's face changed—confusion, then something else. "Oh. I must have misunderstood."
+"Mount Sinai called my office. They said she fell."
 
-"What exactly did Andrew say?"
+"Let me check ER admissions." The nurse typed, scrolled, shook her head. "No record. Are you sure it was this hospital?"
 
-"Just that you'd been dealing with a family emergency. I assumed—"
+Anna's hands were shaking. "Can you check again? Her name is Margaret Bennett."
 
-"You assumed wrong."
+Another check. Another shake of the head. "I'm sorry. There's no one here by that name."
 
-Jessica's smile faltered. "I'm sorry. I didn't mean to overstep."
+Anna stepped outside and called her mother. It rang three times, then her mother's familiar voice: "Hello?"
 
-Anna kept her voice level. "It's fine. But for future reference, if you have questions about my personal life, ask me. Not my husband."
+"Mom?"
 
-"Of course. I'm really sorry, Anna."
+"Anna? What's wrong?"
 
-When Jessica left, Anna called Andrew. "Did you tell Jessica my mother was in the hospital?"
+"Are you okay? Where are you?"
 
-"What? No."
+"I'm at home. Why? You sound—"
 
-"She just said—"
+"You're fine? You didn't fall?"
 
-"I don't know what she said, but I didn't say that." He sounded genuinely confused. "Why would I?"
+"Fall? No, honey, I'm fine. I'm doing laundry. What's going on?"
 
-Anna pressed her fingers to her temples. "I don't know."
+Anna pressed her fingers to her temples. Her vision blurred. "Nothing. I just—I thought—never mind. I'll call you later."
 
-"Anna, are you okay? You sound…"
+She hung up. Stood on the sidewalk. The city moved around her, indifferent.
 
-"I'm fine. I have to go."
+Someone had called Denise. Someone had pretended to be the hospital. Someone had made Anna believe her mother was hurt.
 
-She hung up before he could answer.
+She got back in a car and went to the office. When she arrived, Denise looked up, concerned. "Is your mom okay?"
+
+"She was never there." Anna's voice was flat. "There was no fall. No admission. Someone called you pretending to be the hospital."
+
+Denise's face went white. "What? But they knew your name, your mother's name—"
+
+"I know." Anna walked to her office and closed the door.
+
+She sat at her desk and thought about all the ways a person could be dismantled. One lie at a time. One false emergency. One piece of sanity chipped away until you couldn't trust anything anymore.
 
 That night, she dreamed about drowning. She woke at four, gasping, Andrew's side of the bed empty. She found him asleep on the couch, his phone charging on the floor beside him.
 
@@ -190,11 +200,11 @@ But her hand reached for it anyway. The screen lit — she entered the passcode,
 
 Two texts from Jessica Hall.
 
-*The piece is even more beautiful in person. Thank you for letting me see it early.*
+*Good news! I talked to Manuel at Parsons Gallery—he wants to meet with you next week about the show. I'll send you his contact info.*
 
-*Can't wait for the show next month. You're incredibly talented.*
+*Also my friend Elena (the curator I mentioned) is free Thursday if you want to grab coffee. He's really interested in your work.*
 
-Anna scrolled up. A handful of messages over the past few weeks. Jessica asking about his work. Andrew sending photos of paintings. Brief, professional exchanges about art and technique and gallery dates.
+Anna scrolled up. A handful of messages over the past few weeks. Jessica connecting Andrew with gallery owners. Andrew sending updates on meetings. Professional exchanges about shows and logistics and opportunities.
 
 One message from Andrew: *Thanks for understanding about Mia. It helps to talk to someone who gets the art side of grief.*
 
@@ -202,17 +212,17 @@ Jessica's reply: *Anytime. That's what friends are for.*
 
 Friends.
 
-Anna felt something loosen in her chest. She'd been imagining conspiracies, affairs, betrayals. But this was just someone who appreciated his work. Someone who'd shown up with coffee and kindness while he was grieving.
+Anna felt something loosen in her chest. She'd been imagining conspiracies, affairs, betrayals. But this was just someone helping with gallery connections. Someone who listened when Andrew talked about Mia. Someone being kind while he was grieving.
 
 She put the phone down exactly where she'd found it. Went back to bed. Lay in the dark feeling foolish and ashamed.
 
-Andrew wasn't cheating. He was just sad. And she'd been so paranoid, so consumed by work stress and the sabotage, that she'd turned his grief into evidence of something sinister.
+Andrew wasn't cheating. Jessica was helping his career. And she'd been so paranoid, so consumed by work stress and the sabotage, that she'd turned genuine support into something sinister.
 
 She needed to do better. Be better. Stop seeing threats in every shadow.
 
-In the morning, she'd apologize. She'd take a day off. They'd talk, really talk, the way they used to.
+In the morning, she'd apologize. She'd take the morning off. They'd talk, really talk, the way they used to.
 
-But morning came with three urgent emails and a crisis with the Archer deal, and by the time Anna remembered her resolution, Andrew was already gone.
+But morning came with three urgent emails and new a crisis with the Archer deal, and by the time Anna remembered her resolution, Andrew was already gone.
 
 And the distance between them stretched a little wider.
 

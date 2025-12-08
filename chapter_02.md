@@ -4,11 +4,15 @@
 
 Anna woke to her alarm at 6:20, the Columbia morning dark and cold through her window. She'd gone to bed thinking about that freshman's question—*How did you get Henderson?*—and woken up remembering she hadn't actually gotten anything yet. Just a first-round interview. Just a chance to be told no in a nice conference room.
 
-She dressed like Jane would approve: black pants, cream silk blouse, blazer that fit like an argument. Hair back. Minimal jewelry. The kind of outfit that said *I already work here* even though she very much did not.
+She threw on jeans and a t-shirt—her usual breakfast-with-a-friend outfit. No makeup, hair in a ponytail. Natural, like always.
 
 Cafe Lalo at 7:30 was croissants and morning light. Jane was already there, and she looked—off. Her hair was perfect, her blazer sharp, but there was something tight around her eyes, something that hadn't been there at their last coffee.
 
 "Sit," Jane said, and Anna sat.
+
+Jane's eyes flicked over Anna's jeans and t-shirt, a small smile playing on her lips. "Cute. Very... you."
+
+Anna laughed. "What, you expected me to dress up for breakfast?"
 
 Jane ordered them both espresso and pain au chocolat without asking, then leaned back and exhaled like she'd been holding her breath since Monday.
 
@@ -22,7 +26,7 @@ Anna's brain stuttered. Of all the things she'd expected—interview advice, net
 
 Anna set down her coffee carefully. "Okay."
 
-"It was stupid. I know better. I'm on the pill, I just—" Jane waved a hand like she was swatting away her own excuse. "He was smart. He smelled expensive. We went back to his place and I told myself it was networking."
+"It was stupid. I know better. I should be on the pill, I just—" Jane waved a hand like she was swatting away her own excuse. "He was smart. He smelled expensive. We went back to his place and I told myself it was networking."
 
 "Was it?"
 
@@ -44,7 +48,7 @@ Jane's expression softened, just slightly. "No. But thank you. I just needed to 
 
 Jane considered. "Ask me when I make partner. Or ask me when I'm forty and single and own a co-op with a view of the park." She smiled, and it almost reached her eyes. "The answer might be the same either way."
 
-They finished breakfast talking about other things. Jane asked about Anna's first-round interview—when it was (two weeks), what to wear (the outfit Anna had on right now was perfect), how to answer the culture questions without sounding too earnest or naive. Jane told her about the Henderson analysts, about which managing directors were brilliant and which were just loud, about how to survive recruiting season without losing your mind or your GPA.
+They finished breakfast talking about other things. Jane asked about Anna's first-round interview—when it was (in two weeks), what she'd wear (the outfit Anna had on right now was far from perfect), how to she planned to answer the culture questions without sounding too earnest or naive. Jane told her about the Henderson analysts, about which managing directors were brilliant and which were just loud, about how to survive recruiting season without losing your mind or your GPA.
 
 "This is sophomore year," Jane said as they stood to leave. "Your internship summer is next year. Between now and then, keep your grades pristine, make the partners at Henderson remember your name, and for the love of God, don't get pregnant."
 
@@ -54,13 +58,13 @@ Jane kissed her on both cheeks, European and brisk, and walked toward the street
 
 Anna checked her watch. 8:35. She had time to make her 9:10 class if she walked fast.
 
-She made it with two minutes to spare, sliding into Corporate Finance still thinking about Jane's face across that table. Professor Jain was talking about stakeholder value and she took notes on autopilot, her pen moving while her mind stayed stuck on that clinic in Brooklyn, on Jane's matter-of-fact tone, on the price of wanting everything.
+She made it with two minutes to spare, sliding into Corporate Finance still thinking about Jane's face across that table. Professor Rosen was talking about stakeholder value and she took notes on autopilot, her pen moving while her mind stayed stuck on that clinic in Brooklyn, on Jane's matter-of-fact tone, on the price of wanting everything.
 
 Microeconomics after that. Then a sandwich eaten while walking to a Women in Business board meeting in a seminar room nobody had booked but Anna had commandeered anyway. She ran it like a deal call. Assignments, deadlines, accountability. 
 
 "We're done at 5:20," she said. "If it's not important enough for this room, it's an email."
 
-But she couldn't quite focus. Jane's words kept looping in her head. *You'll meet men who seem like gods until you sleep with them and realize they're just good at Excel.* And the way she'd said it—not bitter, just factual. Like she'd discovered the exchange rate for ambition and was reporting the numbers.
+But she couldn't quite focus. Jane's words kept looping in her head—the way she'd talked about men and ambition, about the price of wanting everything. Not bitter, just factual. Like she'd discovered the exchange rate for success and was reporting the numbers.
 
 After the meeting, Claire looped an arm through hers as they walked back toward the house. "You've been weird all day."
 
@@ -90,7 +94,7 @@ Anna thought about Jane's face across the table. The tightness around her eyes. 
 
 Claire squeezed her arm once, then let go. They parted ways at the library steps—Claire had a paper due, Anna had practice.
 
-At the tennis courts, Anna changed quickly and grabbed a racket. Practice was wind sprints and second serves until her legs felt like someone else's. Coach watched from the baseline, arms crossed, eyes narrowed in that way that meant she was cataloging every weak shot, every hesitation.
+At the tennis courts, Anna changed quickly and grabbed a racket. Practice was wind sprints and second serves until her legs felt like someone else's. Coach Martha watched from the baseline, arms crossed, eyes narrowed in that way that meant she was cataloging every weak shot, every hesitation.
 
 "You play like you're angry," Coach called after Anna double-faulted for the third time.
 
@@ -100,9 +104,9 @@ At the tennis courts, Anna changed quickly and grabbed a racket. Practice was wi
 
 Anna did. The ball cracked against the court like punctuation.
 
-By the time she got back to her room, her shoulders ached and her mind felt clearer. She showered, threw on sweatpants, and sat on her bed with her laptop open, pulling up the Henderson & Associates website. The careers page showed analysts in conference rooms, sleek and confident, surrounded by glass and steel. They looked like Jane. They looked like what Anna wanted to become.
+By the time she got back to her room, her shoulders ached and her mind felt clearer. She showered, threw on sweatpants, and sat on her bed with her heavy laptop open, pulling up the Henderson & Associates website. The site was clean and corporate—text-heavy pages about their deals, their culture, their analysts. A small photo showed a team in a conference room, professional and focused. They looked like Jane. They looked like what Anna wanted to become.
 
-Her phone buzzed. Jason: *Dinner tomorrow? I got us into Maison.*
+Her phone buzzed. Jason: *Dinner on Friday? I got us into Maison.*
 
 She typed back: *Can't. Fundraiser prep.*
 
@@ -148,17 +152,23 @@ Anna looked around. The banner was down. The kitchen was clean. Claire had the i
 
 Maison was late seating and low lighting that made everyone look like they were in a perfume ad. Jason ordered in French that sounded practiced, held court with the waiter, and then, like a spotlight swiveling, turned his full attention on her.
 
-"Tell me your five-year plan."
+"Tell me your plans for the future."
 
-She told him. Henderson & Associates. Deals and mergers. Learn the models until they felt like music. Be the woman the room deferred to when the numbers got scary. "Vice president by thirty-five," she said lightly, like it wasn't a binding contract with herself. "Board by fifty."
+"Henderson & Associates," she said. "Get the internship next summer, then full-time after graduation. Learn everything. Deals, mergers, the models. Work my way up. Vice president by thirty-five, maybe board by fifty." She said it like it was simple, like it wasn't everything.
 
-Jason smiled, and it was fond and patronizing in equal measure. "That's a bit more than five years, but we can do that."
+Jason leaned back, considering. "That's a lot."
 
-"We?" she asked, though she already knew what he meant.
+"It's what I want."
 
-"We'll be a team," he said, as if it were already decided. "You doing deals, me raising capital. We'll divide the world and buy it back together. Power couple. Everyone will want to be us."
+"I know, but—" He reached across the table, his hand covering hers. "Look, I've been thinking. Your mom's working herself to death at that cashier job. My dad knows people. We could get her something better. A secretary position, maybe. Regular hours. Or my parents could help out with money. Take some of the weight off your shoulders."
 
-It was sweet. It was also a little chilling. Anna tucked both feelings away like napkins—deal with them later.
+Anna's hand went still. "That's really nice of you, but we're managing."
+
+"You don't have to manage," he said, his thumb moving over her knuckles. "You could just... relax. Have fun. You're always so stressed. Let me help."
+
+It was sweet. It was also suffocating. Anna pulled her hand back to pick up her wine glass. "I appreciate it. Really. But I've got it."
+
+Jason's smile didn't quite reach his eyes. "Okay. But the offer stands."
 
 They shared dessert. Jason walked her back to the house, kissed her goodnight under a streetlamp like they were in a movie. Anna went upstairs, brushed her teeth, and lay in bed staring at the ceiling.
 
@@ -181,8 +191,6 @@ Her mother laughed, tired and warm. "I miss you, baby."
 "I know. I miss you too."
 
 After they hung up, Anna bought a croissant and ate it on a stoop, watching the city move. A child dropped a stuffed rabbit and howled like the world was ending. A woman in a red coat ran a meeting into her phone, striding like the sidewalk was a treadmill and she was winning. New York pulsed around her—indifferent and perfect.
-
-Anna thought about Jane. About that manager at another firm who'd never know. About the choice Jane was making today so she could keep making choices tomorrow.
 
 She spent the rest of Saturday working, then sleeping fitfully, dreaming about conference rooms and clinic waiting rooms that kept morphing into each other. Sunday morning she ran Riverside until her lungs burned, then holed up in the library until the light changed and her stomach reminded her she'd forgotten lunch.
 

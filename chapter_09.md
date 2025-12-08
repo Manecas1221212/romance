@@ -8,9 +8,9 @@ Anna was in a meeting when it pinged. She glanced at her phone under the table a
 
 Jason. Here. In her building.
 
-She excused herself and walked to the bathroom on shaking legs. Locked herself in a stall. Read the announcement three times to make sure she hadn't misread the name.
+She excused herself and walked to the bathroom on shaking legs. Locked herself in a stall. Read the announcement three times to make sure this was really happening, that she didn't imagine a casual conversation between analysts.
 
-*We are thrilled to announce that Jason Whitmore will be joining Henderson & Associates as Senior Vice President of Private Equity, effective immediately. Jason brings fifteen years of experience in growth capital, buyouts, and strategic advisory. He comes to us from Whitmore Capital, where he led over $2B in successful exits...*
+*We are thrilled to announce that Jason Whitmore will be joining Henderson & Associates as Senior Vice President of Private Equity, effective immediately. Jason brings twenty years of experience in growth capital, buyouts, and strategic advisory. He comes to us from Goldman, where he led over $2B in successful exits...*
 
 Anna's hands were shaking. She put the phone down. Picked it up. Put it down again.
 
@@ -20,7 +20,7 @@ And now he was three floors up.
 
 By the time she got back to her desk, her phone was full of messages.
 
-Claire: *ARE YOU OKAY???*
+Jane: *ARE YOU OKAY???*
 
 Jane: *Call me.*
 
@@ -66,7 +66,7 @@ Too late, Anna thought.
 
 That afternoon, she saw him.
 
-The elevator doors opened on fourteen, and there he was—older, sharper, expensive suit, same confident smile. He looked at her like no time had passed. Like they were still twenty-two and he still had the right to comment on what she wore.
+The elevator doors opened on fourteen, and there he was. Twenty years had changed him. His hair had gone darker—from the brown she remembered to a deep, rich dark brown, thick and well-groomed. A beard now, also dark, with just the right amount of grey threaded through both his hair and beard—enough to look distinguished, sexy, not enough to look old. Somehow he seemed taller, though that was probably just presence. More attractive than she remembered, which shouldn't have mattered but did. Expensive suit, same confident smile. He looked at her like no time had passed. Like they were still twenty-two and he still had the right to comment on what she wore.
 
 "Anna," he said. One word. Her name in his mouth after two decades.
 
@@ -98,11 +98,11 @@ Andrew called at four. "How's your day?"
 
 "Complicated." She couldn't tell him about Jason. Not now. Not with everything else fracturing between them.
 
-"Sophie needs a ride home from Emma's. I have a studio thing tonight."
+"Sophie needs a ride home from Emma's. I have a gallery thing tonight."
 
-"What studio thing?"
+"What gallery thing?"
 
-A pause. "Just... meeting someone who's interested in the grief series."
+A pause. "Just... meeting someone who's interested in the grief series. At Manuel's gallery downtown."
 
 Anna's chest tightened. She knew what "someone" meant. Or thought she did. But she couldn't accuse him. Not without proof. "What time?"
 
@@ -118,7 +118,7 @@ Control was slipping through her fingers like water.
 
 ---
 
-That evening, Anna picked up Sophie, made dinner, supervised homework, put Jake to bed. The motions of normal life. But her mind was elsewhere—tracking time, calculating Andrew's schedule, wondering where he really was.
+That evening, Anna picked up Sophie, ordered dinner, supervised homework, put Jake to bed. The motions of normal life. But her mind was elsewhere—tracking time, calculating Andrew's schedule, wondering where he really was.
 
 At nine-thirty, her phone buzzed.
 
@@ -126,49 +126,40 @@ Unknown number: *He's not where he said he'd be.*
 
 Anna's blood went cold. She called the number. Disconnected.
 
-She checked Andrew's location on Find My Phone. He was in the West Village. Not at his studio in Brooklyn.
+She checked Andrew's location on Find My Phone. He was at Manuel's gallery downtown where he'd said he'd be. The text was lying, just trying to get in her head.
 
-She texted him: *How's it going?*
-
-Three dots appeared. Disappeared. Appeared again.
-
-Andrew: *Good. Wrapping up soon.*
-
-She screenshot his GPS location. Added it to her encrypted folder.
-
-Then she opened her laptop to catch up on work emails before bed.
-
+She smiled in relief and decided to ignore the text, going back to her laptop to wrap up some work. 
 That's when she saw it.
 
-A new meeting on her calendar. Wednesday, 9 a.m.
+A new meeting on her calendar. Wednesday, 12:30 p.m.
 
-**Coffee with Jason Whitmore - Starbucks Lobby**
+**VP Leadership Lunch - Welcome Jason Whitmore**
 
-She didn't remember scheduling it. Didn't remember agreeing to anything.
+She clicked into the details. Tom had sent the invite. A lunch with all the VPs to welcome Jason to the team. 
 
-She clicked into the details. The invite had been sent from her own email address at 11:47 p.m. last night—when she'd been asleep.
+Anna stared at the screen. Tom didn't know. Of course he didn't know. Why would he? It had been twenty years, and Anna never talked about her college boyfriend. Never mentioned Jason's name. So Tom was being thoughtful—scheduling a lunch so the new SVP could meet everyone, including her.
 
-Anna deleted the meeting.
+It was normal. Professional. Exactly what a good manager would do.
 
-Refreshed her calendar.
+But it felt like a trap. Having to sit across from Jason with everyone watching. Having to pretend they were strangers. Having to perform normalcy when nothing about this was normal.
 
-It reappeared.
+She couldn't decline. Not without looking paranoid. Not without explaining why she didn't want to meet the new SVP.
 
-She changed her password. Cleared her cache. Restarted her laptop.
+She was stuck.
 
-The meeting stayed.
+
 
 ---
 
-Anna sat in the dark living room, listening to the hum of the refrigerator and the distant sound of traffic. Andrew's location pin glowed on her phone screen. Still in the West Village. Still not where he said he'd be.
+Anna sat in the dark living room, listening to the hum of the refrigerator and the distant sound of traffic. Andrew's location pin glowed on her phone screen. Still at Manuel's gallery. Where he'd said he'd be.
 
-And somewhere in this building—or in a server, or in her own compromised accounts—someone was controlling her calendar. Sending emails in her name. Orchestrating meetings she never agreed to.
+But someone was still trying to get in her head. Sending anonymous texts. Orchestrating meetings. Making her question everything.
 
 She thought about Jason in the elevator. About his smile. About how easily he'd suggested coffee, as if twenty years meant nothing. As if he had the right to slide back into her life.
 
-She thought about Andrew, lying about his location. About Jessica's tea cup still sitting in his studio. About the distance that had grown between them since Mia died—a distance she'd told herself was grief, but maybe was something else.
+She thought about Andrew. About the distance that had grown between them since Mia died—a distance she'd told herself was grief, but maybe was something else.
 
-She thought about the SVP promotion she'd worked toward for fifteen years. About Marcus watching her with calculating eyes. About Tom's careful suggestions that maybe she was "struggling."
+She thought about the SVP promotion that still hadn't arrived and for which she'd worked toward for fifteen years. About Marcus watching her with calculating eyes. About Tom's careful suggestions that maybe she was "struggling."
 
 Everything she'd built was fracturing. And she couldn't tell which cracks were sabotage and which were her own paranoia eating her alive.
 
@@ -197,46 +188,34 @@ He startled. "Jesus. I thought you'd be asleep."
 
 "Fine. Good, actually. They might want to feature three pieces."
 
-"In the West Village?"
+"Good," she said. "That's great."
 
-Andrew froze. His face went carefully neutral. "The collector lives there. Why?"
+Andrew studied her for a long moment. "Are you okay? You seem... off."
 
-"Just curious."
+"I'm fine. Just tired."
 
-He studied her for a long moment. "Are you tracking me again?"
+He nodded, but she could see he didn't believe her. "I'm going to bed."
 
-"Should I be?"
-
-"I don't know, Anna. Should you be? Is that what we are now? Two people who spy on each other?"
-
-She didn't have an answer that wouldn't start a fight she was too tired to finish.
-
-Andrew shook his head and walked to the bedroom. "I'm going to bed."
-
-Anna sat alone in the dark and watched her phone. Andrew's location had updated. Home. Same as her.
-
-But the text from the unknown number sat in her messages like a stone.
+Anna sat alone in the dark. The text from the unknown number sat in her messages like a stone.
 
 *He's not where he said he'd be.*
 
-Someone was watching Andrew. Watching her. Sending her proof of betrayals she couldn't quite confirm.
+But he had been. The text was lying. Someone was trying to make her doubt Andrew. Trying to make her paranoid. Trying to get in her head. And Wednesday at lunch, she'd have to face Jason in a room full of VPs. Pretend they were strangers. Act like twenty years hadn't happened.
 
-And Wednesday morning, she'd have to face Jason in a meeting she never agreed to—or look paranoid by not showing up.
+Anna opened her notebook. Wrote a new note.
 
-Anna opened her encrypted folder. Added a new note.
-
-*Wednesday 9am - Jason meeting (phantom). Do I go? Do I confront him? What does he want?*
+*Wednesday 12:30pm - VP lunch with Jason. Tom scheduled it. I can't decline without looking suspicious. Have to pretend we've never met.*
 
 Then below it:
 
-*Andrew - West Village again. Meeting "collector." Still no name. Still vague.*
+*Anonymous text - tried to make me think Andrew was lying. He wasn't. Someone is watching us. Trying to destabilize me.*
 
-And at the bottom, a new section:
+And at the bottom:
 
-*Unknown texter - who is watching us? Who benefits from showing me proof?*
+*Who benefits from making me paranoid? Who wants me to doubt Andrew? Who wants me to look unstable?*
 
-She closed the laptop and went to bed. But sleep wouldn't come.
+She went to bed. But sleep wouldn't come.
 
-Because somewhere in this city, in her building, in her marriage, in her own devices—someone was pulling strings. And Anna couldn't see the puppet master's face.
+Because somewhere in this city, in her building, in her marriage, in her life — someone was pulling strings. And Anna couldn't see the puppet master's face.
 
 She just knew that everything was unraveling. And she was running out of time to figure out who was cutting the threads.
