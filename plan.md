@@ -184,7 +184,7 @@
 - Anna puts on gloves
 - Jessica fights back
 - Anna restrains her with duct tape
-- **Suffocates Jessica with tarp**
+- **Suffocates Jessica with tape**
 - Takes 4 minutes
 - Anna cleans scene, stages body, removes evidence
 
