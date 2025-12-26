@@ -26,9 +26,11 @@ Anna grabbed her wrist. Twisted. The phone clattered to the floor.
 
 Andrew sat in a dimly lit bar three blocks from the gallery, whiskey neat, contemplating how his life had fractured.
 
-The gallery show had been a disaster. Sparse attendance. Awkward silences. Three pieces sold to friends who probably felt obligated. For the first time in years, he'd felt truly invisible.
+Jessica hadn't shown up. They'd planned to see a movie tonight—something light, something to take their minds off everything. But she'd texted earlier: *Sorry, have to work late. Rain check?*
 
-And Jessica hadn't even come. Said she had to work. He'd been disappointed, but understood.
+He'd been disappointed. More than disappointed—sad. He'd been looking forward to it. To her. To the way she made him feel seen, understood, less alone.
+
+So he'd come here instead. Ordered a drink. Sat alone.
 
 "Andrew Park?"
 
@@ -36,7 +38,7 @@ Andrew looked up. A man stood there—expensive suit, confident smile, familiar 
 
 "Yes?"
 
-"Jason Whitmore. We met briefly at your show earlier." He extended a hand. "Mind if I join you? I'd love to talk about your work."
+"Jason Whitmore. We met briefly at your show last night." He extended a hand. "What a coincidence running into you here. Mind if I join you?"
 
 Andrew hesitated, then gestured to the empty seat. "Sure."
 
@@ -114,15 +116,13 @@ Andrew said nothing.
 
 "Something like that."
 
-"It's a lie." Jason's voice was hard. "I left her because she was trying to control every aspect of my life. What classes I took. Who I talked to. Where I went. She'd check my phone, follow me to meetings, show up places I'd said I'd be alone. When I got an internship offer in London for the summer, she told me I had to turn it down. Said if I really loved her, I'd stay."
+"It's a lie." Jason's voice was hard. "I left her because she was trying to control every aspect of my life. What classes I took. Who I talked to. Where I went. She'd check my phone, follow me to meetings, show up places I'd said I'd be alone."
 
 Andrew's stomach tightened.
 
-"When I said I was going anyway, she... escalated. Started telling people I was cheating on her. That I was abusive. She sent my internship coordinator an email from my account—which she'd hacked—saying I was withdrawing. I almost lost the opportunity."
+"When I got an internship offer in London for the summer, she told me I had to turn it down. Said if I really loved her, I'd stay. But here's the thing—she was also pissed because I was getting better grades than her. She couldn't stand that. When I said I was going anyway, she... escalated."
 
-"That doesn't sound like—"
-
-"It sounds exactly like Anna," Jason interrupted. "The woman who needs to control everything. Who sees people as pieces on a board. Who can't tolerate anyone having power she doesn't control."
+Jason took another drink. "She hacked into my accounts. Sent emails from my account to my internship coordinator saying I was withdrawing. Tried to sabotage the opportunity. Started telling people I was cheating on her, that I was abusive. She was obsessed. Controlling. Couldn't tolerate anyone having power she didn't control."
 
 Andrew thought about the GPS tracking. The phone monitoring. The interrogations. The cold, analytical way Anna had documented his every movement.
 
@@ -130,11 +130,11 @@ Andrew thought about the GPS tracking. The phone monitoring. The interrogations.
 
 "Why are you telling me this?"
 
-Jason leaned back. "Because I saw you with her at the gallery. Saw the way you looked—like you were drowning. I've been there. I know what it's like." He paused. "Look, I'm not trying to interfere in your marriage. I hope you and Anna can work things out. I really do. For your kids' sake, for everyone's sake. I just thought you should know who you're dealing with."
+Jason leaned back. "Because we met last night at your gallery. And I saw the way you looked—like you were drowning. I've been there. I know what it's like." He paused. "Look, I'm not trying to interfere in your marriage. I have nothing but respect for your family. I hope you and Anna can work things out. I really do. For your kids' sake, for everyone's sake. I just thought you should know who you're dealing with."
 
 "You sound like you're warning me."
 
-"I'm not." Jason signaled for the check. "I'm just sharing my experience. What you do with it is your choice. Maybe she's different now. Maybe I was the problem. I don't know." He stood, extending his hand. "I hope things work out for all of you. I really do."
+"I'm not warning you." Jason signaled for the check. "I'm just sharing my experience. What you do with it is your choice. Maybe she's different now. Maybe I was the problem. I don't know." He stood, extending his hand. "I hope things work out for all of you. I really do. I mean that."
 
 ---
 
@@ -214,7 +214,7 @@ Anna had thought about this part carefully. A murder would bring detectives, for
 
 She drafted the note on Jessica's laptop, wearing gloves:
 
-*I can't do this anymore. The guilt is eating me alive. I'm so sorry for what I've done—to Anna, to Andrew, to everyone I've hurt. I thought I could handle it, but I can't. I'm not strong enough. Please forgive me. —J*
+*I can't do this anymore. The depression has been getting worse. The guilt is eating me alive—for wanting an affair with my boss's husband, for the feelings I couldn't control, for everything I've done. I'm so sorry to Anna, to Andrew, to everyone I've hurt. I thought I could handle it, but I can't. I'm not strong enough. Please forgive me. —J*
 
 She printed it. Left it on the coffee table.
 
@@ -251,6 +251,8 @@ By 11:00, she was in her shower, washing away the evening. Watching evidence cir
 By midnight, she was in bed, staring at the ceiling, wondering if she felt anything at all.
 
 She didn't.
+
+Maybe it was shock. Maybe she was still processing. Or maybe this was just who she was—someone who could take a life and feel nothing at all.
 
 And that told her everything she needed to know about who she really was.
 

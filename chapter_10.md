@@ -1,164 +1,304 @@
-# Chapter 10: Surveillance
+# Chapter 10: Broken
 
-Anna started documenting everything.
+Wednesday arrived with cold, grey skies and the kind of dread that sat in Anna's chest like a stone.
 
-She created a folder on her personal laptop—encrypted, password-protected, labeled "Project Files" in case anyone saw. Inside: screenshots of phantom calendar invites, timestamps of corrupted emails, notes about Jessica's visits to the studio, receipts from restaurants Andrew claimed he hadn't been to.
+The VP Leadership Lunch was at 12:30 p.m. At a restaurant with floor-to-ceiling windows and a menu that cost more than most people's rent. Tom had picked it to impress Jason. To welcome him properly.
 
-Evidence. If you can't control it, at least track it.
+Anna dressed carefully that morning. Navy suit, white blouse, pearl earrings. Professional armor. She looked at herself in the mirror and practiced her smile. Neutral. Friendly. The smile of someone meeting a new colleague for the first time.
 
-She also started following Andrew.
+Not the smile of someone who'd once loved him. Who'd left him twenty years ago.
 
-Not physically—she couldn't leave work in the middle of the day without it being noticed. But digitally. She installed Find My Phone on his cell when he was in the shower. She checked the credit card statements every morning. She noted when he said he'd be one place and the GPS showed another.
+Not the smile of someone whose hands were shaking.
 
-Tuesday: Andrew said he was meeting his art dealer in Chelsea. His phone pinged from Jessica's neighborhood in the West Village.
+---
 
-Thursday: He claimed he was running errands. Three hours at a coffee shop two blocks from her apartment.
+The restaurant was called Aurelio's. All glass and polished marble and waiters who moved like dancers. Anna arrived exactly on time—not early enough to look eager, not late enough to seem difficult.
 
-Saturday: "Going for a run." His phone was stationary for ninety minutes at an address that matched Jessica's lease.
+Tom was already there, along with four other VPs from different divisions. And then there was Jason, sitting at the head of the table like he'd been there for years, not days.
 
-Anna screenshot it all. Added it to the folder.
+"Anna!" Tom stood, gestured to an empty seat next to Jason. Of course. "Glad you could make it."
 
-At work, the sabotage didn't stop—it evolved. Files rearranged. Emails to clients with typos she'd never make. A presentation deck sent to the wrong stakeholder. Small things. Deniable things. Things that made her look sloppy but not catastrophic enough to escalate.
+"Wouldn't miss it." She sat, unfolded her napkin, met Jason's eyes for exactly two seconds. Professional. Detached.
 
-IT ran another audit. "Ms. Park, we've checked everything. There's no external breach. If these changes are happening, someone with physical access to your devices is making them."
+Jason smiled. "Good to see you again, Anna."
 
-"So someone in my office."
+Again. The word hung in the air. Tom would for sure catch it.Even one of the other VPs glanced between them with mild curiosity before looking back at the menu.
 
-"Or someone in your home."
+"You two have met?" Tom asked.
 
-The implication hung there like smoke.
+"Columbia," Anna said smoothly. "Long time ago. Same year, actually. We shared some classes."
 
-Anna thought about Andrew. About how many times he'd borrowed her laptop to check his email when his phone died. How often he'd been in her office. How much access he'd had to every corner of her digital life.
+"Finance track," Jason added with a smile. "Competitive bunch."
 
-Would he? Could he?
+Anna's smile didn't waver, but her hands tightened around her water glass.
 
-If she was being honest—if someone was poisoning her marriage and stealing her job, would Andrew be desperate enough to help them?
+The lunch proceeded with excruciating slowness. Tom talked about integration strategies. One of the VPs asked Jason about his experience at Goldman. Another made a joke about private equity guys stealing all the good deals. Everyone laughed.
 
-She didn't want to answer that question.
+Anna ordered the salmon and barely tasted it.
 
-Wednesday, the phantom coffee meeting with Jason reappeared on her calendar. She deleted it again. At 8:45 a.m., her phone buzzed with a reminder.
+Jason was good. Charming. Self-deprecating in the way confident men could afford to be. He told stories about deals that went sideways, made everyone laugh, remembered people's names after hearing them once.
 
-She ignored it.
+And through it all, Anna could feel his attention on her. Not obvious. Not inappropriate. Just... there. A weight pressing against her peripheral vision.
 
-At 9:03, Jason appeared in her office doorway. "You missed our meeting."
+When the appetizers were cleared, Jason leaned back in his chair and looked directly at her. "Anna, I heard you're up for SVP. Congratulations."
 
-"We didn't have a meeting."
+"Nothing's official yet. It's actually been delayed..." Anna said, her voice crumbling.
 
-"It was on both our calendars. I have the invite." He held up his phone. There it was—sent from her email address at 11:47 p.m. last night.
+"But soon, I'm sure. Tom speaks very highly of you."
 
-"I didn't send that."
+Tom beamed. "Anna's the best M&A VP we've had in a decade. The board knows it."
 
-Jason's expression was unreadable. "Anna, if you don't want to get coffee, just say so. You don't have to ghost me."
+Anna smiled, accepted the compliment, felt Jason's eyes on her like hands.
 
-"I'm not—" She stopped. Took a breath. "Someone is accessing my accounts. I've been having issues for weeks."
+The lunch ended at two. Anna was the first one out, but Jason caught her in the hallway before she could escape to the elevator.
 
-"Have you reported it?"
+"Anna. Wait."
 
-"Multiple times. IT says there's no breach."
+She turned, kept her expression neutral. "What is it?"
 
-Jason stepped into her office, closed the door. Sat without being invited. "That sounds frustrating."
+He glanced around—empty hallway, no witnesses—and lowered his voice. "Can we talk? Just for a minute. Somewhere private."
 
-"It is."
+"I don't think that's a good idea."
 
-"Can I ask you something?" He leaned back, too comfortable. "Do you think someone's trying to sabotage you?"
+"Please. I just—" He ran a hand through his hair. The gesture was familiar, painfully so. "I didn't know you worked here. Not until after I accepted the offer. I should have done my homework, I was careless."
 
-The word hung there. Sabotage. She'd thought it a hundred times but never said it out loud to anyone who wasn't Claire.
+Anna studied him. He looked sincere. "What are you saying?"
 
-"I don't know."
+"I'm saying this is awkward for me too. And I want to make sure we're... okay. That we can work together."
 
-"Because from the outside, it looks like you're under a lot of stress. New role, high expectations. Sometimes stress manifests in ways we don't expect."
+She glanced at the elevator. "We're fine. It was twenty years ago."
 
-Anna's jaw tightened. "You think I'm imagining this."
+"I know. But people talk. And I don't want anyone—" He paused. "I don't want anyone talking about us."
 
-"I think you're brilliant and driven and maybe pushing yourself too hard." His voice was gentle. Patronizing. The same voice he'd used when he told her she was "too intense" about her career. When he'd suggested she'd be happier if she just relaxed her ambitions.
+Anna's chest tightened. He was worried. Little did he know she was far more concerned than he was. Her life was a mess and she still hadn't made SVP; the last thing she needed was romantic gossip floating around the office.
 
-"I'm managing, Jason."
+"I won't tell anyone," she said quietly. "Let's just pretend we knew each other from school and nothing else; keep it short and simple. That way no one will think twice about us."
 
-"If you say so." He stood. "But Anna, if you ever need someone to talk to—someone who knows you—I'm here."
+Relief flooded his face. "Thank you."
 
-After he left, she opened the folder on her laptop and added a new section: *Jason Timeline*. Monday: arrival. Tuesday: phantom meeting. Wednesday: showed up anyway.
+"But you need to stay away from me. We're colleagues. That's all."
 
-She didn't know what he was doing yet. But instinct said he was part of this.
+"Of course. I just—thank you, Anna. Really."
 
-That night, Andrew came home at ten-thirty. Shirt wrinkled. Smile guilty.
+She walked away without looking back. Got in the elevator. Pressed fifteen. Breathed.
 
-"Where were you?" Anna asked from the couch, laptop open, work that wasn't really work glowing on the screen.
+By the time she reached her office, her hands had stopped shaking.
 
-"Studio."
+The rest of the day went by without incident, but that night, Andrew said he was meeting someone about a commission. A potential buyer for one of the grief series pieces.
 
-"Your phone says you were in the West Village."
+"Where?" Anna asked, trying to sound casual.
 
-Andrew froze. "Are you tracking me?"
+"Coffee shop in Chelsea. Should be back by nine."
+
+"Which coffee shop?"
+
+He looked at her strangely. "Why does it matter?"
+
+"It doesn't. I'm just curious."
+
+"Grounded. On Eighth Avenue." He kissed her forehead — a gesture that felt automatic, empty. "I'll text you when I'm done."
+
+After he left, Anna sat at the kitchen table with her laptop and her phone. Sophie was doing homework in her room. Jake was watching a show in the living room. The apartment was full of people, but Anna had never felt more alone.
+
+She opened Find My Phone. Watched Andrew's location pin move through the city. Toward Chelsea. Toward Eighth Avenue.
+
+She told herself she was just checking. Just making sure he was safe. Just being practical.
+
+But that wasn't true.
+
+She was tracking him because she didn't trust him anymore. Because something between them had broken—maybe when Mia died, maybe after—and she couldn't fix it by working harder. In fact, her work situation, all the sabotage she had been a victim of, had only made her more paranoid; the more she lost control, the more she fought to gain it back.
+
+The pin stopped moving. She zoomed in.
+
+He wasn't at Grounded. He was three blocks away. Near Perry Street in the West Village.
+
+Anna's heart started racing. She pulled up Google Maps, checked the address. A residential building. No coffee shop. No gallery. Just apartments.
+
+She clicked on the building listing. Luxury one-bedrooms. Recently renovated.
+
+She didn't have to guess who lived there. She already knew.
+
+Jessica.
+
+Anna called Andrew. He didn't pick up. She tried again. Nothing.
+
+She opened her notebook, hands shaking, and wrote:
+
+*Wednesday 8:45pm - Andrew said Grounded on 8th. Location shows Perry Street. Residential building. Jessica's address?*
+
+She checked the company directory. Jessica lived at 128 Perry Street.
+
+The same building.
+
+Anna closed her eyes. Felt something crack inside her chest—not surprise, not even pain. Just cold, hard confirmation of what she'd already suspected.
+
+Andrew was with Jessica. In her apartment. While he'd told Anna he was meeting a buyer at a coffee shop.
+
+He'd lied. It had been a long time since she'd felt her rational self losing control, her emotions threatening to take over completely. At first she fought it, thought about the next rational thing to do, but eventually gave up and went to her bedroom to cry. The only thing lingering in her mind while she cried was the question of why she was doing it. Was it because she loved her husband, or because a divorce would be inconvenient for her at this stage of her career?
+
+Andrew came home at eleven-fifteen.
+
+Anna was sitting on the couch in the dark, no laptop,but phone in hand.
+
+"Sorry I'm late," he said, setting his keys on the counter. "The buyer wanted to see photos of the other pieces, so we went back to his place—"
+
+"Where were you?" Anna's voice was flat.
+
+"I just told you. With the buyer."
+
+"Where?" Anna said, barely holding herself together.
+
+Andrew hesitated. She could see him deciding whether to double down on the lie or admit the truth. "Chelsea. We went to a bar after the coffee shop."
+
+"Which bar?"
+
+"Anna, what is this?"
+
+She stood, held up her phone. The map glowed in the darkness, showing his location pin at 128 Perry Street. "You were at Jessica's apartment."
+
+Andrew's face went white. Then red. "Are you tracking me?"
 
 "Are you lying to me?"
 
-"Jesus, Anna." He set his keys down too hard. "I went to get dinner after. Is that a crime?"
+"You're tracking my location? Like I'm—what, a child? A suspect?"
 
-"Alone?"
+"Answer the question, Andrew. Were you at Jessica's apartment?"
 
-"Yes. Alone. I needed air. I needed to think."
+"Yes." He said it like a challenge. "Yes, I was. Because she's helping me with the gallery connection. She knows the buyer. She introduced us."
 
-"About what?"
+"At her apartment."
 
-"About how my wife has turned into someone I don't recognize!" His voice cracked. "You're paranoid, controlling, obsessed with work. When's the last time you asked me how I was doing? When's the last time you were present for dinner, for the kids, for anything that wasn't your fucking career?"
+"He lives in the building!"
 
-The words landed like slaps.
+"You lied to me."
 
-Anna stood. "I'm trying to hold our life together."
+"Because I knew you'd react like this!" Andrew's voice rose. "I knew you'd turn it into something it's not. Jessica is helping my career. She's being kind. And you've decided she's some kind of threat because you can't stand that someone else in my life actually listens to me!"
 
-"No. You're trying to control everything because you can't control yourself." Andrew's eyes were wet, his voice breaking. "I'm drowning, Anna. I lost my sister. Mia is dead. And I'm grieving alone because you're so busy building cases and tracking phones that you haven't even noticed."
+Anna felt cold. "I listen to you."
 
-"I noticed."
+"No, you don't. I can't believe it took my sister dying for me to realize you've never been there for me. You don't treat me like a husband. You manage me. You schedule me. You track me on your fucking phone like I'm an asset you need to monitor."
 
-"Did you?" He stepped closer, and she could see the genuine pain in his face. "Because from where I'm standing, you cared more about your email security than you did about me crying in the studio at three a.m. Mia died, and you made a checklist. That's who you've become."
+"I track you because you lie to me!"
 
-"That's not fair."
+"I lie because you don't trust me!"
 
-"None of this is fair." He grabbed his keys. "I'm staying at Ben's tonight."
+They stared at each other across the dark living room. Seventeen years of marriage, and it had come to this. Accusations and tracking apps and lies about coffee shops.
 
-"Andrew—"
+"Are you sleeping with her?" Anna asked quietly.
 
-"I need space. From you. From this." He gestured at the apartment, at her, at the life they'd built. "I don't know who you are anymore."
+Andrew's jaw tightened. "No."
 
-He left. The door closed with a soft, final sound.
+"Do you want to?"
 
-Anna stood in the empty apartment and felt the floor tilt.
+"Anna—"
 
-She checked his location. He wasn't going to Ben's. He was going to the West Village.
+"Answer the question."
 
-To Jessica.
+He looked at her for a long moment. And in that pause, Anna saw the truth. Not in words. Just in the way he couldn't say no fast enough.
 
-She opened the laptop. Added a new note: *Andrew admitted "drowning." Deflecting. Went to West Village despite claiming need for space. Affair confirmed?*
+"I'm leaving," he said finally.
 
-Then she searched: *How to prove adultery in New York.*
+"Where?"
 
-She read for an hour. Took notes. Made plans.
+"I don't know. Ben's, maybe. I just—I can't do this right now."
 
-Then she searched: *Jessica Hall address West Village.*
+He went to the bedroom, packed a bag. Anna stood in the hallway and watched him move through their life like a stranger. Grabbing clothes, his toothbrush, the book on his nightstand.
 
-Public records. Lease databases. A little social engineering.
+At the door, he turned. "You know what the worst part is? You don't even care that I'm leaving. You're just upset because it's inconvenient. Because a divorce would distract you from your precious SVP promotion."
 
-Found it. Apartment 4C, 128 Perry Street.
+Anna opened her mouth to deny it. But the words wouldn't come.
 
-Anna screenshot the address. Added it to the folder.
+Because he was right.
 
-Then she sat in the dark and thought about how easy it was to find someone. How much information was just out there, waiting to be collected. Birth records, lease agreements, building layouts, entry codes posted in tenant Facebook groups.
+She was thinking about the board. About how a separation would look. About whether Tom would think she was "struggling" if her marriage fell apart while she was being evaluated for SVP.
 
-A person's entire life, mapped out in searchable databases.
+Andrew saw it in her face. He shook his head. "I'll be at Ben's. I'll text you about seeing the kids."
 
-She thought about Jessica in that apartment right now. Probably with Andrew. Probably feeling safe. Probably thinking she'd won.
+The door closed behind him.
 
-Anna opened a new browser window. Incognito mode.
+Anna stood alone in the hallway. The apartment was silent except for the hum of the refrigerator and Sophie's music playing faintly through her bedroom door.
 
-*How to make someone disappear.*
+She walked to her office. Sat at her desk. Opened her notebook.
 
-Her finger hovered over the search button. She didn't press it. Not yet.
+*Wednesday 11:30pm - Andrew left. Says he's going to Ben's. Location tracker still active.*
 
-But she didn't close the window either.
+She watched the pin move through the city. Away from their building. Toward Brooklyn. Toward Ben's neighborhood.
 
-She sat there in the empty apartment, in the dark, with Andrew's location pin glowing on her phone and Jessica's address burning in her mind, and let herself think the thing she'd been circling around for weeks.
+At least he hadn't lied about that.
 
-Some problems couldn't be solved with documentation.
+Anna sat in the dark for a long time, watching Andrew's location pin glow on her screen.
 
-Some problems required elimination.
+She thought about Jason. 
 
+She thought about Jessica bringing Andrew coffee, sending him condolence notes, helping with his career. Listening about Mia in a way Anna apparently couldn't.
+
+She thought about Tom's careful comments. The sabotage that kept escalating no matter how many times she changed her passwords.
+
+And she thought about Andrew's face when she'd asked if he wanted to sleep with Jessica. The pause before he said no. The way he couldn't look at her.
+
+Everything was unraveling. Her marriage, her promotion, her sanity. And the worst part was that she couldn't tell which parts were sabotage and which parts were just her life naturally falling apart.
+
+A divorce right now would be catastrophic. The board wanted stability. Leadership. Someone who could handle pressure without cracking. A woman going through a messy separation while being evaluated for SVP? That was a liability. A distraction. Evidence that she couldn't balance her personal life.
+
+But what if the sabotage wasn't just at work — what if Jessica was deliberately fracturing her marriage? Getting close to Andrew, offering support, being everything Anna was too busy to be?
+
+Anna pulled up Jessica's employee file. She'd joined Henderson a few months ago. Impressive resume—MIT undergrad, Yale MBA, five years at top consultancy firm. Twenty-nine years old. Single.
+
+She clicked through Jessica's LinkedIn. Perfect profile. Professional headshot. Glowing recommendations.
+
+And a personal website linked in her bio. Anna clicked.
+
+*Jessica Hall - Gallery Consultant & Art Advisor*
+
+Anna's blood went cold.
+
+Art advisor. Gallery connections. Of course Andrew would be interested. Of course he'd trust her. She spoke his language in a way Anna never had.
+
+It wasn't an accident. Jessica getting close to Andrew. Offering help with his career. Sending condolence notes, texting about grief.
+
+It was deliberate.
+
+Anna opened a new page in her notebook.
+
+*Jessica Hall:*
+*- Just a Junior Project Manager, but very determined to grow in the company*
+*- Art advisor (Andrew's world)*
+*- Texting Andrew about grief*
+*- Gallery connections too convenient*
+*- Andrew at her apartment tonight*
+
+All suspicion of other people vanished. She underlined the last point twice.
+
+Then wrote:
+
+*When did the sabotage start? Before or after Jessica met Andrew? Could Jessica have been behind the sabotage just to ensure I would be emotionally unavailable to my husband?*
+
+It sounded paranoid. But so had the phantom emails and the corrupted files, and those had been real.
+
+Anna closed the notebook. Looked at Andrew's location pin, still glowing in Brooklyn.
+
+She couldn't get divorced. Not now. Not when she was this close to everything she'd worked for. A broken marriage would destroy her credibility. Make her look weak, distracted, unable to handle pressure.
+
+But she also couldn't live like this. Tracking her husband. Suspecting everyone. Documenting every conversation like evidence for a trial.
+
+She thought about the cost of ambition, about Jane. Jane had chosen her career over everything. She'd gotten an abortion at twenty-five to protect it. Never married. Never had kids. Never let anything interfere with the trajectory.
+
+And now she sat on the board. Powerful. Successful. Alone.
+
+Was that the only way? To sacrifice everything personal for professional success? To become so focused on winning that you lost everything worth having?
+
+Anna didn't know.
+
+But she knew one thing: she couldn't afford to fall apart. Not now. Not with Tom watching. Not with Jason in her building. Not with whoever was sabotaging her still out there, pulling strings.
+
+She would figure out what Jessica wanted. She would fix her marriage—or at least keep it intact long enough to secure the promotion. She would stop the sabotage. Emotional Anna was out of sight again, back to rational Anna, back to planning and executing.
+
+And she would do it all without anyone noticing she was drowning. 
+
+Because that was what successful women did. They kept all the plates spinning, even when their hands were bleeding.
+
+Anna closed her laptop. Checked Andrew's location one more time—still at Ben's—and went to bed.
+
+But sleep took a while to come. Because somewhere in this city, in her office, in her marriage, someone was orchestrating her destruction.
+
+And Anna was running out of time to figure out who.

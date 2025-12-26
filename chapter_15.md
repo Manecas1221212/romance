@@ -2,19 +2,17 @@
 
 Friday morning, Anna woke with clarity.
 
-The kind of clarity that comes after sleepless nights and impossible decisions. The kind that feels like ice water in your veins.
+The kind of clarity that comes after a good night's sleep and an important decision made. The kind that feels like ice water in your veins. She'd slept well for the first time in weeks—because she'd finally taken back control. Because she'd made up her mind about what needed to be done.
 
-She showered. Dressed carefully—dark jeans, a navy sweater, comfortable shoes. Nothing that would stand out. Nothing that would be remembered.
-
-She looked at herself in the mirror and barely recognized the woman looking back. Or maybe she recognized her for the first time. The version of herself she'd always kept buried under professionalism and propriety and the pretense of being civilized.
+She showered. Dressed for work—professional suit, polished shoes. Normal. Expected.
 
 At work, she was calm. Eerily calm. She finished three financial models, approved two client presentations, took four calls. Everyone remarked on the change.
 
 "You look better," Marcus said in the elevator.
 
-"I feel better," Anna replied. And it was true. The decision had lifted something—not quite a weight, but the exhausting burden of indecision.
+"I feel better," Anna replied. And it was true. The decision had lifted the exhausting feeling of being powerless, of watching everything slip through her fingers.
 
-She worked through lunch. At two-thirty, she told Denise she was leaving early.
+She worked through lunch. At four-thirty, she told Denise she was leaving early.
 
 "Doctor's appointment," Anna said. "That therapist I mentioned."
 
@@ -22,9 +20,13 @@ She worked through lunch. At two-thirty, she told Denise she was leaving early.
 
 Anna smiled. "Me too."
 
-She left the office and drove home, her mind already organizing the evening ahead into a timeline, a plan, a series of steps that couldn't be undone once started.
+She left the office and drove home. Changed into dark jeans, a navy sweater, comfortable shoes. Nothing that would stand out. Nothing that would be remembered.
 
-At five, she made dinner for Sophie and Jake—pasta with marinara sauce, garlic bread, their favorite simple meal. They ate together at the kitchen table like a normal family.
+She looked at herself in the mirror and barely recognized the woman looking back. Or maybe she recognized her for the first time. The version of herself she'd always kept buried under professionalism and propriety and the pretense of being civilized.
+
+Her mind already organizing the evening ahead into a timeline, a plan, a series of steps that couldn't be undone once started.
+
+At five thirty, she made dinner for Sophie and Jake—pasta with marinara sauce, garlic bread, their favorite simple meal. They ate together at the kitchen table like a normal family.
 
 "Where's Dad?" Jake asked, twirling spaghetti.
 
@@ -46,15 +48,13 @@ After dinner, Anna hugged them both longer than usual. Sophie tolerated it. Jake
 
 "Okay," Sophie said slowly, exchanging a glance with her brother. "We love you too."
 
-At seven, Claire arrived to stay with the kids for the evening, as they'd arranged. Anna had asked her yesterday—could she possibly watch Sophie and Jake Friday night? Just for a few hours?
+At six, Claire arrived. They chatted for a while—normal things, how the kids were doing, how work was going. Anna kept it light, surface-level. Then she grabbed her purse and keys.
 
-"Where are you going?" Claire had asked.
+"Where are you going?" Claire asked.
 
-"That therapy appointment I scheduled," Anna had lied smoothly. "The only slot she had was Friday at eight."
+"That therapy appointment I scheduled," Anna said smoothly. "The only slot she had was Friday at seven."
 
-Claire had been so pleased. So proud of Anna for "finally getting help."
-
-Now, as Anna grabbed her purse and keys, Claire gave her a warm hug. "I'm so glad you're doing this. It's going to help, I promise."
+Claire's face lit up. "Oh, Anna, I'm so glad you're doing this. It's going to help, I promise."
 
 "I know," Anna said. "Thank you for watching them."
 
@@ -64,19 +64,19 @@ Anna left before the guilt could catch up with her.
 
 In the car, she sat for a moment with her hands on the wheel, staring at nothing. She could still turn around. Could actually go to a coffee shop, sit there for two hours, come home and tell Claire the session went well.
 
-But she thought about Jessica's text from yesterday—the one that had sealed everything. *Working from home tomorrow night to finish the Meridian analysis. Going to be a long one!*
+But she thought about Jessica's text from yesterday—the one that had sealed everything. *Working from home tomorrow—need to receive some packages. Will finish the Meridian analysis remotely. Hope everyone has a good weekend.*
 
-Jessica. Alone in her apartment. Friday night. No witnesses.
+Anna pulled out her phone and checked Andrew's location. Ben's place in Brooklyn. Nowhere near Perry Street. Good. She knew Jessica would still be working—she'd said she was finishing the Meridian analysis—but she needed to be sure Andrew wasn't there.
 
-Jessica, who'd been sleeping with Andrew. Who had access to Anna's life, her home, her family. Who'd introduced Andrew to Jason at the gallery, creating connections, building a network.
+Jessica would be alone in her apartment. Friday night. No witnesses.
 
-Anna had seen them together—Jason, Andrew, Jessica. A triangle of conspiracy.
+Jessica, who'd been sleeping with Andrew. Who had access to Anna's life, her home, her family. Who'd probably orchestrated Jason's hiring. Anna had seen them together at the gallery—Jason, Andrew, Jessica. A triangle of conspiracy.
 
 As she drove toward the West Village, Anna's mind worked through the evidence like a prosecutor building a case:
 
-*The sabotage started when Jessica arrived. The phantom meetings. The corrupted files. The emails Anna didn't write.*
+*The sabotage starteda few months after Jessica arrived. The phantom meetings. The corrupted files. The emails Anna didn't write.*
 
-*Jessica had been in Anna's home. Had access to her computer, her passwords, her life.*
+*Jessica had access to her computer, her passwords, her life, all of it through work and Andrew.*
 
 *Jessica "befriended" Andrew right after Mia died—when he was vulnerable, grieving, easy to manipulate.*
 
@@ -108,15 +108,11 @@ The West Village streets were busy with Friday night energy—people heading to 
 
 Anna parked three blocks from 128 Perry Street. Checked her reflection in the rearview mirror. She looked calm. Composed. Like someone going to have a difficult but necessary conversation.
 
-Not like someone preparing to commit murder.
-
-(Was that what this was? She didn't let herself name it. Naming it would make it real. Would make it impossible to walk away from.)
-
 She got out of the car. Locked it. Started walking.
 
 Perry Street was tree-lined and pretty, with brownstones and small apartment buildings. Jessica's building was modest but well-maintained. A nice place for a junior PM who was sleeping with her boss's husband.
 
-Anna stood across the street for a moment. Watched the lit windows. Thought about Jessica inside, probably working on her laptop, thinking she was safe.
+Anna stood across the street for a moment. Watched the lit windows. Thought about Jessica inside, probably working on her laptop.
 
 Thinking Anna didn't know.
 
@@ -146,7 +142,7 @@ Hesitated.
 
 *Last chance. Walk away. Go home. Deal with this like a rational person. Report Jessica to HR. File for divorce. Find a therapist. Choose the normal path.*
 
-But the normal path meant losing. Meant letting Jessica win. Meant watching her marriage dissolve and her career implode while the person who'd orchestrated it all faced nothing worse than a professional reprimand.
+But the normal path was risky. She had no hard evidence—just theories, suspicions, patterns. Without proof, Jessica could deny everything. Report her to HR? She'd claim Anna was paranoid, unstable, making accusations because of the affair. Anna needed a confession. She needed Jessica to admit what she'd done.
 
 Anna had never been good at losing.
 

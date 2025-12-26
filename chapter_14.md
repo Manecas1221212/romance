@@ -1,4 +1,4 @@
-# Chapter 14: The Gallery
+# Chapter 14
 
 Wednesday night, Andrew texted Sophie: *Come to my gallery show tomorrow? 7pm. Bring Jake if he wants.*
 
@@ -16,7 +16,7 @@ But she knew she wouldn't. She wasn't welcome in Andrew's new life. Jessica woul
 
 Thursday came. Anna worked late, avoiding the empty apartment. At six-thirty, her phone buzzed.
 
-Jane: *Dinner? I'm near your office.*
+Jane: *Dinner? I'm near the office.*
 
 Anna met her at a place with dark corners and good wine. Jane looked immaculate as always, but something in her expression was off—tighter, sharper.
 
@@ -62,7 +62,7 @@ Anna's stomach dropped. "Who's saying that?"
 
 After Jane left, Anna sat alone and ordered another glass of wine she didn't want.
 
-Her phone buzzed. A text from Jessica: *Working from home tomorrow night to finish the Meridian analysis. Going to be a long one! Hope you have a good weekend.*
+Her phone buzzed. A text in the team group chat from Jessica: *Working from home tomorrow—need to receive some packages. Will finish the Meridian analysis remotely. Hope everyone has a good weekend.*
 
 Anna stared at the message. Jessica, alone in her apartment. Friday night. No witnesses.
 
@@ -72,7 +72,7 @@ Another buzz. Sophie: *Dad's show is amazing. Wish you were here.*
 
 Then another text, this one from an unknown number: *He looks happy without you.*
 
-Attached was a photo. Andrew at the gallery, smiling—really smiling, the kind of smile Anna hadn't seen in years. And next to him, close enough that their shoulders touched, was Jessica.
+Attached was a photo. Andrew at the gallery, smiling — really smiling, the kind of smile Anna hadn't seen in years. And in the background, was Jessica.
 
 Anna stared at the photo until the shapes stopped making sense.
 
@@ -84,19 +84,17 @@ She didn't plan to go to the gallery. But at eight-forty, she found herself park
 
 The space was small, intimate. Windows revealing the crowd inside—wine glasses, laughter, art on white walls. Anna stood across the street and watched.
 
-Andrew, holding court. Animated in a way he never was at home. Jessica beside him, touching his arm, laughing at something he said.
+Andrew, holding court. Animated in a way he never was at home. A group of adults gathered around him, listening. Jessica among them, not too close, just another face in the crowd.
 
 Sophie and Jake by the door, looking at their father like he was someone they recognized again.
 
 Anna watched for fifteen minutes. Invisible. Erased.
 
-She took photos. Evidence. Proof of the affair for divorce proceedings she hadn't filed yet.
-
 Then she saw something else.
 
 Jason.
 
-Jason Whitmore, walking into the gallery like he belonged there.
+Jason Whitmore, walking from another section of the gallery into the one where Andrew was holding court.
 
 Anna's heart stopped. What was Jason doing at Andrew's show? They didn't know each other. Unless—
 
@@ -108,7 +106,7 @@ Jessica appeared with drinks for both of them. The three of them together—Jess
 
 A conspiracy.
 
-Anna's phone felt like lead in her hand. She took more photos. Wide shots, close-ups, anything that might prove what she was seeing.
+Anna's phone felt like lead in her hand. She took photos. Wide shots, close-ups, anything that might prove what she was seeing.
 
 Then she turned and walked back to her car. Sat in the driver's seat with her hands on the wheel and her brain on fire.
 
@@ -118,11 +116,13 @@ Jessica.
 
 Jessica who was sleeping with Andrew. Jessica who worked for Anna. Jessica who had access to Anna's life, her schedule, her weaknesses.
 
+Jessica who had referenced Jason. Who had gotten Jameson fired—set him up, framed him for texting Tom's wife, created the opening. Jessica who had orchestrated Jason's recruitment, brought him into Anna's building, into her life.
+
 And now Jessica was introducing Andrew to Jason. Creating connections. Building a network around Anna while Anna fell apart.
 
-Anna opened the encrypted folder and started typing, her fingers flying:
+Anna opened her notebook and started writing, her pen moving fast:
 
-*Theory: Jessica orchestrated everything. Brought Jason to H&A through board contact (Jane?). Seduced Andrew to gain access to my home devices. Using both to destabilize me professionally and personally. Endgame: Take my position? Take my life?*
+*Theory: Jessica orchestrated everything. Referenced Jason to H&A, got Jameson fired to create the opening. Brought Jason in through board contact (Jane?). Seduced Andrew to gain access to my home devices. Using both to destabilize me professionally and personally. Endgame: Take my position? Take my life?*
 
 *Evidence needed: Proof of conspiracy. Proof of deliberate sabotage. Confession.*
 
@@ -130,15 +130,15 @@ Anna opened the encrypted folder and started typing, her fingers flying:
 
 Anna stared at the last word. *Elimination.*
 
-She sat with it. Let it settle.
-
-Then she saved the file and drove home.
+She sat with it. Let it settle. Then she drove home.
 
 In the apartment, she opened a bottle of wine and stood in front of Andrew's unfinished painting—the fractured woman's face, each piece reflecting a different emotion.
 
 Anna understood it now. The woman wasn't broken. She was breaking free. Shedding the pieces that didn't serve her.
 
-Anna finished the wine. Made a decision. Opened her calendar and created a new event for Friday night: *8pm—Resolution.*
+Anna finished the wine. Made a decision. An important one. The kind of decision that couldn't be undone once started. The kind that would change everything.
 
-Then she went to bed and dreamed of clean slates and empty apartments and silence that didn't echo.
+She opened her calendar and created a new event for Friday night: *8pm—Resolution.*
+
+Then she went to bed and slept. Really slept. For the first time in weeks, maybe months. The kind of deep, dreamless sleep that came from having made an important decision. From regaining control.
 

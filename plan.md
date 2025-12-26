@@ -1,102 +1,138 @@
 # Novel Structure Plan
 
-## **FULL NOVEL STRUCTURE (31 Chapters)**
+## **SUMMARY OF WRITTEN CHAPTERS (Chapters 1-9)**
 
----
+### **Chapter 1: Columbia, Year Two (Fall 2003)**
+- Anna Bennett, sophomore at Columbia: ambitious finance major from working-class Yonkers family
+- President of Women in Business, varsity tennis player, driven by desire to support her mother (cashier) and stepfather (mechanic)
+- Best friend Claire (also finance major), mentor Jane van Moore (3 years older, works at Henderson & Associates in M&A)
+- Dating Jason Whitmore: wealthy legacy student who treats Anna well but subtly tries to control/manage her
+- Anna is naturally striking—no makeup, effortless beauty—driven by lists and discipline
+- Gets first-round interview at Henderson & Associates
 
-### **BACKSTORY: Columbia Years (Chapters 1-3)**
+### **Chapter 2: The Real World (2003)**
+- Jane reveals she's pregnant and getting an abortion on Saturday to protect her career
+- Shows Anna the harsh reality: successful career means loneliness, sacrifice, impossible choices
+- Jane's advice: "Don't get pregnant. Don't let men control your calendar. Say no to the wrong things faster."
+- Jason offers to get Anna's mother a "better job" through his connections, wants to "help" Anna relax and delegate
+- Anna feels suffocated by his well-meaning control but stays with him
+- Anna works the Women in Business fundraiser, Jason shows possessive behavior
+- Jane's Saturday appointment happens off-screen—by Monday she's back at work
 
-**Chapter 1: Columbia, Year Two (Fall 2003)**
-- Anna at Columbia: ambitious, driven, middle-class background
-- Finance major, varsity tennis, president of Women in Business
-- Friend circle: Claire (best friend), Jane (mentor, 3 years older), Jason (boyfriend, rich legacy)
-- Anna is hungry, disciplined, wants power on her own terms
+### **Chapter 3: The Year Everything Shifted (Senior Year 2006)**
+- Senior spring: Anna gets Henderson & Associates offer (Junior Analyst, M&A)
+- Jason gets Goldman offer (via family connections), Claire gets med-tech strategy role
+- Jason pushes Anna to move in together, talks about marriage, children, Anna "stepping back" after a few years at Henderson
+- **THE BREAKUP:** Anna finally leaves Jason after realizing he's been planning her life without asking her—"I have always felt that he wanted to boss me around. I just couldn't take it anymore."
+- Jane and Claire support Anna through the breakup
+- Graduation: Anna's mother and stepfather attend (mother took unpaid day off, wore sale dress)
+- Anna chooses herself and her career over Jason's controlled vision of their future
 
-**Chapter 2: The Real World (2003)**
-- Jane reveals she's pregnant, getting abortion to protect career
-- Shows Anna the "price" of ambition
-- Jason continues treating Anna like an accessory to his plans
-- Anna sees what it costs to make it in finance
+### **Chapter 4: Twenty Years Later (Present Day)**
+- Anna is 42, VP of M&A at Henderson & Associates, eyeing SVP promotion
+- Married to Andrew Park (artist/sculptor) for 17 years, kids Sophie (14) and Jake (8)
+- Lives in Upper West Side apartment, polished professional appearance (complete transformation from natural college look)
+- Jane van Moore now sits on the board—powerful, cold, still Anna's champion
+- SVP meeting scheduled for next week
+- Anna's marriage functional but distant; Andrew handles home life while she works constantly
 
-**Chapter 3: The Year Everything Shifted (Senior Year 2006)**
-- Anna gets Henderson & Associates offer
-- Jason pushes living together, talks about her "stepping back" after marriage
-- **THE BREAKUP:** Anna finally leaves Jason after he reveals controlling future plans
-- Jane and Claire support her; Anna chooses herself
-- Graduation → new life begins
+### **Chapter 5: Strange Things**
+- Metallic-tasting coffee left anonymously at reception for Anna
+- Mysterious lemon tart with note "For the future SVP. Sweet things ahead" appears on her desk
+- Unsent email draft appears on Anna's computer (she didn't write it) addressed to Tom Harrison
+- Jessica Hall introduced: new junior project manager (3 months on team), too perfect, brings Anna coffee with exact order
+- Analysts gossip: **Jason Whitmore joining as SVP of Private Equity**—Columbia alum, Wharton MBA, old money, "referenced by someone on the board"
+- Unknown text to Anna: *"Congrats in advance"*
+- Anna realizes her college ex is coming to work in her building
 
----
+### **Chapter 6: The Sister**
+- Andrew's sister Mia dies of fentanyl overdose at 34 (had history of addiction)
+- Andrew devastated; Anna manages funeral logistics but can't emotionally connect
+- Anna's SVP meeting postponed indefinitely by Tom due to "Archer deal crisis"
+- Jessica sends Andrew condolence note, then starts texting him about Mia and his art
+- Jessica buys one of Andrew's pieces, visits his studio, says she "gets" his grief work
+- **Sabotage escalates:** phantom emails sent from Anna's account at 2am, corrupted presentations, fake client calls, office plant poisoned
+- Andrew tells Anna that Jessica "listens" about Mia in a way Anna doesn't
+- Anna confronts Jessica professionally, asks her to respect boundaries with Andrew
+- Anna and Andrew fight: "You're making this about you... You can't sit with me for five minutes without checking your email"
+- Andrew leaves angry; Anna works late, feels marriage cracking
+- Fake hospital call claiming Anna's mother had a fall (mother was fine, never admitted)
 
-### **ACT I: THE SETUP (Chapters 4-6)**
+### **Chapter 7: Fractures**
+- SVP promotion still not rescheduled three weeks after Mia's funeral; Tom keeps saying "when Archer stabilizes" (Archer already stable)
+- Anna feels nothing—"flat hum of another day"
+- Sabotage continues: files renamed, wrong client logos, voicemails with dead air
+- IT says no breach, suggests "user error"—Anna starting to look disorganized
+- Andrew becomes ghost at home: paints until midnight, barely speaks
+- Jessica still texting Andrew about gallery connections
+- Anna discovers Andrew still communicating with Jessica despite her asking Jessica to give him space
+- Andrew defends it: "She's helping my career. She asks about Mia. She doesn't treat my grief like something I need to hurry up and get over."
+- Anna and Andrew fight again; Andrew tells her to "Get out"
+- Midnight text from unknown number: *"You're losing him"* (then vanishes from phone)
+- **CRUCIAL MOMENT:** Anna checks Andrew's phone while he's asleep—sees innocent texts about gallery contacts and grief
+- **Anna concludes:** Andrew wasn't cheating, Jessica was just helping professionally and being kind about Mia—"she'd been so paranoid... that she'd turned genuine support into something sinister"
+- Anna decides to "do better" and stop seeing threats, but gets distracted by work crisis and forgets
 
-**Chapter 4: Twenty Years Later (Present Day)**
-- Anna is 42, VP of M&A at Henderson, eyeing SVP promotion
-- Married to Andrew Park (artist) 17 years, kids Sophie (14) and Jake (8)
-- Jane is now on the board (powerful, cold, whispered about)
+### **Chapter 8: The Unraveling**
+- Anna stops sleeping (fragments of 1-hour pieces)
+- **Sabotage escalates dramatically:**
+  - Presentation deck corrupted (every third slide blank) right before client meeting
+  - Corrupted file sent from Anna's email at 2:47 AM (she was asleep)
+  - Fake calendar invite to "Meridian Partners" call makes her miss actual Sanderson meeting
+  - Email to major client contains decimal point error ($45M instead of $4.5M)
+  - Files rename themselves seconds after saving
+  - Access badge stops working for executive floor
+  - Midnight calls to office phone with just breathing
+- Tom expresses concern about Anna's "focus"—IT found no breach, suggests Anna is the problem
+- Marcus (Anna's right hand) starts appearing in meetings she normally leads—sends message "She needs supervision"
+- Jessica beloved by team: "kind," "wonderful," brings bagels, helps junior analysts
+- Anna starts suspecting Marcus (he has access, would benefit from her failure)
+- Anna buys cash notebook at Target to document everything by hand
+- Claire calls worried, suggests therapy—Anna defensive
+- **Weekend shift:** Anna takes time off, attends Jake's soccer game, helps Sophie with homework, tries to be present
+- Anna sets up tracking: email forwarding rule to private Gmail, laptop tracking software
+- Watches Marcus lingering near her office after hours
+- Fake calendar invite: "Henderson Leadership Offsite—You've Been Removed" (Tom didn't send it)
+- Tom suggests "outside help" or "other resources" (therapy, medical leave)
 
-**Chapter 5: Stange things**
-- **STRANGE THINGS BEGIN:** Metallic coffee, mysterious gift, draft email she didn't write
-- Jessica Hall introduced: junior PM, too perfect, too helpful
-- **BOMBSHELL:** Jason Whitmore is joining as SVP of Private Equity
-
-**Chapter 6: The Sister**
-- Andrew's sister Mia dies of fentanyl overdose
-- Andrew is devastated and grieving deeply
-- Anna manages logistics but can't emotionally connect
-- **Jessica reaches out to Andrew** with condolence note
-- Jessica starts texting Andrew, buys his art, "gets him"
-- **Sabotage escalates:** phantom emails, corrupted decks, fake calendar invites
-- Andrew says Jessica "listens" about Mia in a way Anna doesn't
-- Anna and Andrew have a fight and Distance grows between Anna and Andrew
-- Anna says that Jessica shouldn't text her bosses husband
-
-**Chapter 7: Fractures**
-- Anna is getting further away from SVP promotion, feels nothing
-- Sabotage continues: files renamed, wrong logos, voicemails with dead air
-- IT says no breach—suggests "someone with physical access"
-- Andrew and Anna fight about Jessica; he says "Get out"
-- Midnight text from unknown: *"You're losing him"* (then vanishes)
-- **CRUCIAL ENDING:** Anna checks Andrew's phone, sees innocent texts with Jessica about art/grief
-- **Anna concludes:** "Andrew wasn't cheating. He was just sad. And she'd been so paranoid... that she'd turned his grief into evidence of something sinister."
-- **Resolution:** Anna decides to do better, stop seeing threats in shadows
-- But she gets distracted by work and forgets to follow through
-
----
-
-### **ACT II: THE SPIRAL (Chapters 8-15)**
-
-**Chapter 8: The Unraveling** ⚠️ **[NEEDS REWRITE]**
-
-- **Work sabotage intensifying** (main plot driver - more phantom emails, corrupted files, career crisis)
-- **Andrew's emotional distance/grief** (ambiguous, not affair-coded)
-- **Anna's insomnia/paranoia about WORK, not affair**
-- **Maybe a red herring** - could sabotage be from work rival? Marcus? Someone else?
+### **Chapter 9: The Arrival**
+- Email announcement: **Jason Whitmore officially joins as SVP, Private Equity**
+- Jane immediately texts Anna: *"ARE YOU OKAY??? Call me."*
+- Anna sees Jason in elevator—20 years have changed him: dark brown hair with grey, beard, more attractive, expensive suit, same confidence
+- Jason suggests coffee to "catch up"—Anna declines
+- Jane meets Anna for lunch: "If he tries anything, you tell me. He doesn't get to make you uncomfortable in your own building."
+- Andrew vague about evening plans: "meeting someone interested in grief series" at Manuel's gallery
+- Unknown text to Anna: *"He's not where he said he'd be"*
+- Anna checks Andrew's location on Find My Phone—he IS at Manuel's gallery where he said he'd be (text was lying, trying to manipulate her)
+- **New calendar invite appears:** VP Leadership Lunch Wednesday 12:30pm to welcome Jason (Tom scheduled it, doesn't know about Anna/Jason history)
+- Anna can't decline without looking suspicious—trapped into pretending she and Jason are strangers
+- Anna sits alone in dark apartment documenting in her notebook:
+  - **People who could access accounts:** IT, someone with passwords, physical access to devices, Andrew?
+  - **People who benefit from failure:** Marcus (wants SVP), Jessica (wants what?), Jason (revenge? to unsettle?)
+- Andrew comes home at 10:40pm from gallery meeting (exactly where he said he'd be)
+- Anna writes: *"Anonymous text tried to make me think Andrew was lying. He wasn't. Someone is watching us. Trying to destabilize me."*
+- Final note: *"Who benefits from making me paranoid? Who wants me to doubt Andrew? Who wants me to look unstable?"*
 
 
-**Chapter 9: The Arrival**
-- Jason officially arrives at Henderson
-- Anna sees him in elevator, he suggests coffee
-- Phantom meeting appears on calendar with Jason
-- Andrew mentions "studio thing" (vague, not explicitly Jessica)
-- More anonymous threatening texts
-- Anna feels control slipping - but focus is on Jason/work, not affair
-
-**Chapter 10: Surveillance**
-- Anna starts documenting everything (work sabotage focus)
-- Follows Andrew digitally (GPS tracking begins)
-- **NEW EVIDENCE emerges:** Andrew's location pings don't match his alibis
+**Chapter 10: Broken**
+- Starts with Wednesday with the executive lunch for the VP's to meet Jason
+- Lunch is tense, Anna seems nervous around him. Jason tries to talk to Anna and tell her not to tell about them to anyone.
+- Next day Andrew goes out at night. Anna keeps following Andrew digitally (GPS tracking) she had already done it last chapter
+- **NEW EVIDENCE emerges:** Andrew's location pings don't match his alibis, it suggests he is near Jessica's house
 - IT suggests someone with "physical access to devices" (home or office)
 - **ESCALATION:** Anna finds evidence pointing to affair
+- Once Andrew gets back they have a fight about it
 - Andrew leaves after confrontation about tracking
-- Anna starts thinking about "elimination"
+- Anna realises that Jessica won't stop talking to Andrew, and Andrew does not seem interested in stop talking to her either. A broken marrige/divorce is the last thing she needs right now, it would distract her from her goasl, plus, a divorce looks bad to the board. 
+- Anna comes up with a motive for Jessica to do the sabbotage : *When did the sabotage start? Before or after Jessica met Andrew? Could Jessica have been behind the sabotage just to ensure I would be emotionally unavailable to my husband?*
 
-**Chapter 11: Fractures**
-- Andrew leaves, he will be out for a week, staying at "Ben's"
+**Chapter 11: TBD**
 - Anna obsessively working and documenting
 - Meeting scheduled with Tom/Jessica (turns out to be fake)
 - **Café confrontation:** Andrew and Anna meet
 - Andrew admits **"emotional affair"** - says Jessica listens, makes him feel seen
 - He won't confirm physical affair but admits closeness
+- Anna tracks Andrew to Perry Street (Jessica's building)
 - Anna receives text: *"He's mine now"*
 - Phantom email sent from her account to Tom about "taking leave"
 
@@ -105,8 +141,7 @@
 - Tom suggests Anna is "struggling" - considering forced leave
 - Jessica brings Anna tea (Anna doesn't drink it)
 - Anna confronts Jessica about knowing her address and Jessica seems worried and affraid (she is not confrontational though and just tries to please Anna)
-- Anna tracks Andrew to Perry Street (Jessica's building)
-- **Anna goes to Jessica's building, listens at door, hears conversation** She understands Andrew and Jessica are getting along, but still no evidence of physical love.
+- **Anna goes to Jessica's building, listens at door, hears conversation** She understands Andrew and Jessica are getting along, but still no hard evidence of physical love.
 - Anna sees Andrew leaving Jessica's appartment, get a cab close to the river sitting there by himself and crying.
 
 **Chapter 13: Parallel Lives**
@@ -154,8 +189,8 @@
 - Anna cleans scene, stages body, removes evidence
 
 **8:15 PM — The Bar (PARALLEL NARRATIVE):**
-- Andrew at bar after a gallery show, the gallery went terribly, he is also super sad Jessica could not come
-- Jason Whitmore approaches him
+- Andrew at bar after Jessica had not show up to the movies the had planed to see, he is also super sad Jessica could not come
+- Jason Whitmore approaches him, what a coincidence, they had jsut met the previous night in Andrew's gallery show
 - Jason reveals he's Anna's ex from Columbia
 - **Jason tells twisted version of their breakup** - claims Anna was controlling, obsessive, hacked his accounts, tried to sabotage his internships and was pissed when he got better grades than her
 - Makes Andrew doubt Anna, but overall Jason shows his respects for the family and says he hopes they can all get along ( the seed of mistrust has, however, been planted in Andrew's mind)

@@ -1,38 +1,37 @@
-# Chapter 11: Fractures
+# Chapter 11: TBD
 
-Andrew didn't come home for three days.
+Andrew didn't come home for a week.
 
-He texted the kids. Told Sophie he loved her. Told Jake he'd be at his game Saturday. He didn't text Anna at all.
+He texted the kids. Told Sophie he loved her. Told Jake he'd be at his game Saturday. He didn't text Anna at all. She didn't text him either.
 
-She didn't text him either.
+The kids asked questions about Dad—why he left, when he would come back—but neither Andrew nor Anna was ready to answer.
+She asked her mom to come over to take care of the kids while she worked. Late nights, early mornings, weekends bled into weekdays. There was a new deal that was bleeding red ink, and Anna stitched it together with spreadsheets and phone calls to London at hours when sane people slept.
 
-Instead, she worked. Late nights, early mornings, weekends bled into weekdays. The Archer deal was bleeding red ink, and Anna stitched it together with spreadsheets and phone calls to London at hours when sane people slept.
-
-"You look terrible," Marcus said on Thursday, startling her out of a model.
+"You look terrible," Marcus said on Thursday morning, startling her out of a model.
 
 "Thanks."
 
-"I'm serious. When's the last time you went home?"
+"I'm serious. When's the last time you had proper sleep?"
 
-Anna glanced at the window. Still dark. She'd been here since five. Or was it yesterday's five? "I'll go soon."
+Anna glanced at the window. Still dark. She'd been here since five. "I'll go soon."
 
 "Anna." Marcus sat. "What's going on? And don't say 'nothing.' You're not yourself."
 
 She almost told him. Almost opened the folder and showed him the evidence—the emails, the texts, the trail of lies and breadcrumbs that pointed to Jessica. But the words caught.
 
-If she said it out loud, it became real. If it was real, she had to act. And she didn't know what action looked like yet.
+If she said it out loud, it became real. If it was real, she had to act. And she didn't know what action looked like yet. Besides, what if it wasn't real, or what if she was actually losing it? She couldn't tell anyone else; she needed to look professional.
 
-"Just stress," she said. "The new role. I'm figuring it out."
+"Just stress," she said. "The new deal. I'm figuring it out."
 
 Marcus didn't look convinced, but he let it go. "Tom's asking questions."
 
 "About?"
 
-"You. Whether you're settling in okay. Whether the SVP title was premature."
+"You. Whether you're settling in okay. Whether you're ready to become an SVP. He knows you're an amazing VP, but lately he seems worried that SVP might be too much—maybe just for now, given your family situation."
 
-Anna's blood went cold. "What did you tell him?"
+Anna's blood went cold. "What did you tell him? What do you know about my family situation?"
 
-"That you're handling the biggest deals we've got and closing them brilliantly. Which is true. But Anna, you need to be visible right now. Meetings, face time, looking like you've slept in the last week."
+"Your sister-in-law's passing, of course. I only told him that you're handling the biggest deals we've got and closing them brilliantly. Which is true—but even if it weren't, you know I'd always cover for you. But Anna, you need to be more visible right now. Meetings, face time, looking like you've slept in the last week."
 
 "I'll handle it."
 
@@ -60,23 +59,13 @@ Denise called back five minutes later. "Barbara says Tom doesn't have it on his 
 
 "Delete it. Tell Barbara it was a mistake."
 
-But the damage was there—someone scheduling fake meetings with her CEO. Someone making her look disorganized. Unreliable. Cracking.
+But the damage was there, again — someone scheduling fake meetings with the Head of M&A. Someone making her look disorganized. Unreliable. Cracking.
 
-Anna pulled up the access logs for her email. All logins from her IP addresses—office and home. Whoever was doing this had physical access to her devices.
+Anna pulled up the access logs for her email. All logins from her IP addresses — office and home. Whoever was doing this had physical access to her devices.
 
 She thought about Andrew. About the nights he'd stayed late in her office, borrowing her laptop. About the mornings she'd left for work before him, her computer open on the counter.
 
 She thought about Jessica. About how often she "stopped by" with coffee. About how she always seemed to be near Anna's desk, near her office, near her life.
-
-She opened the folder. Added a new section: *Who Benefits?*
-
-**Jessica:** Access through Andrew. Motive—wants Anna's job? Wants Anna's life?
-
-**Andrew:** Access to home devices. Motive—resentment? Revenge? Control?
-
-**Jason:** Access through firm systems. Motive—old grudge? Professional rivalry?
-
-Three suspects. Or maybe they were all working together.
 
 Anna's phone buzzed. Andrew: *Can we talk?*
 
@@ -94,7 +83,7 @@ She spent the rest of the day rehearsing. What to say. What not to say. How to a
 
 At 7:45, she left the office. At 7:58, she sat in the back of Café Mogador and ordered mint tea she didn't drink.
 
-Andrew arrived at 8:07. He looked tired. Thinner. Older than he had two weeks ago.
+Andrew arrived at 8:07. He looked tired. Thinner. Older than he had one week ago.
 
 "Hi," he said.
 
@@ -114,7 +103,7 @@ They stared at each other across the table, and Anna thought about how you could
 
 Anna's throat tightened. "I see you."
 
-"Do you?" He leaned in. "Because I lost my sister, Anna. She died. And you made a list for the funeral and went back to work the next day."
+"Do you?" He leaned in. "Because I lost my sister, Anna. She died. And you made a list for the funeral and went back to work right after."
 
 "I was trying to be strong."
 
@@ -134,7 +123,7 @@ Tears stung Anna's eyes. "I didn't know how."
 
 Anna opened her mouth. Closed it. She didn't remember.
 
-"I'm not the villain here," Andrew said quietly. "I'm just the man who's been waiting for you to come home for seventeen years."
+"I'm not the villain here," Andrew said quietly. "I'm just the man who's been waiting for you to come home for a few years now."
 
 "I'm home every night."
 
@@ -150,7 +139,7 @@ Andrew's jaw tightened. "With who?"
 
 He didn't answer immediately. The pause said everything.
 
-"I don't know what this is," he said finally. "With Jessica. She... she listens. When Mia died, she sent me that note, and then we just started talking. About art. About grief. About things I couldn't talk to you about because you were already gone."
+"I don't know what this is," he said finally. "With Jessica. She... she listens. When Mia died, she sent me that note, and then we just started talking. About art. About grief. About things I couldn't talk to you about because you were always gone."
 
 "Andrew—"
 
@@ -164,7 +153,7 @@ Anna felt something crack inside her chest. "So you're having an affair."
 
 "None of this is fair." He pulled his hand back completely. "But I can't keep doing this. I can't keep being the husband you check off a list. The background character in your success story."
 
-"Are you leaving me?" she asked.
+"Are you leaving me?" she asked, her voice breaking. "After everything we've built together?"
 
 "I don't know." He stood. "I just know I can't keep disappearing while you chase ghosts."
 
