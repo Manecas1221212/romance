@@ -26,11 +26,11 @@ Jessica's face went pale. "Anna, I'm so sorry. I never meant—"
 
 Jessica shook her head. "Anna, I don't know what you're talking about. I would never—"
 
-"Stop lying!" Anna's control cracked. Just a little. "You've been sabotaging me. You've been working with Jason. You orchestrated everything—the affair, the career destruction, all of it."
+"Stop lying!" Anna's control cracked. Just a little. "You've been sabotaging me. You orchestrated everything—the affair, the career destruction, all of it."
 
 "No." Jessica's voice was firm now. "No, Anna. I'm not lying. Yes, I had an affair with Andrew. I'm sorry. It was wrong. I know it was wrong. But I didn't sabotage you. I would never do that. I don't even know what you're talking about."
 
-Anna stared at her. The calm facade slipping. "You're confessing to the affair but not the sabotage."
+Anna stared at her. The calm facade slipping. "So you admit the affair, but you're still lying about everything else."
 
 "Because I didn't do it!" Jessica's voice rose. "I slept with your husband. I'm a terrible person for that. But I didn't sabotage your career. I don't know anything about corrupted files or phantom meetings. I swear to God, Anna, I'm telling you the truth."
 
@@ -40,27 +40,23 @@ Anna's hands clenched. Her breathing quickened.
 
 "I'm not. I messed up. But I didn't sabotage you. I don't know who did, but it wasn't me."
 
-That was when Anna lost it.
+Anna took a step closer. "Do you know what I can do to you? I can have you fired. Not just from Henderson. I can make sure you never work in finance again. I have connections. I can destroy your career completely."
 
-The careful control she'd maintained shattered. The rage she'd been holding back broke through.
+Jessica's eyes widened. "Anna, please. I'll quit. I'll resign tomorrow. I'll leave Andrew. I'll never see him again. I'll move—out of the city, out of state if you want. I'll start over somewhere else. Just... please don't do this."
 
-"You're still lying," Anna snarled. "You're still protecting yourself. You think confessing to the affair is enough? You think that makes you honest? You're still hiding the real crime."
+"You think that's enough?" Anna's voice was cold. "You think quitting and leaving fixes what you did? You think that undoes the sabotage?"
 
-"Anna, please—"
+"I didn't sabotage you! I swear, Anna. I'll quit. I'll leave. I'll disappear. You'll never have to see me again. Just please, don't ruin my life."
 
-Anna reached into her bag. Pulled out the gloves. Put them on with deliberate, methodical movements.
+Anna stared at her. The offer hung in the air between them. Jessica would quit. Leave Andrew. Move away. Start over.
 
-Jessica's eyes widened. "Anna, what are you doing? What are those for?"
+It should have been enough.
 
-"Making sure you tell me everything," Anna said. Her voice was cold now. Dead. "Since you won't confess voluntarily, I'll make you."
+But Anna thought about what Jessica had already destroyed. "Do you know what you've done? My marriage is broken. My husband is in love with you. My reputation at the firm is smeared. Everyone knows about the affair—or they suspect. It would take a miracle for me to get that SVP promotion now. You've destroyed everything."
 
-"Anna, stop. We can talk about this. Please—"
+"I'm sorry," Jessica said, tears in her eyes. "I'm so sorry. I'll fix it. I'll leave. I'll make it right."
 
-Anna moved fast. Jessica stumbled backward, hit the counter. Reached for her phone.
-
-Anna grabbed her wrist. Twisted. The phone clattered to the floor.
-
-"Please," Jessica said. "Please don't—"
+"You can't fix it," Anna said. Her voice was flat. "You can't undo what you've done."
 
 ---
 
@@ -102,51 +98,51 @@ Andrew's blood went cold. "You're the ex."
 
 ---
 
-**8:22 PM — Jessica's Apartment**
+**8:18 PM — Jessica's Apartment**
 
-Jessica fought. Harder than Anna expected.
+Anna looked at Jessica, who was still standing there, waiting. "You brought Jason to the firm."
 
-But Anna was stronger. Fueled by rage and purpose and the kind of focus that came from having nothing left to lose.
+Jessica's face went blank. "What?"
 
-She got Jessica on the ground. Pulled out the zip ties. White plastic strips. She looped one around Jessica's wrists, pulled it tight. The plastic bit into skin. Then another around her ankles. Efficient. Clinical.
+"Jason Whitmore. You brought him to Henderson. You orchestrated that too."
 
-"Anna, stop," Jessica was sobbing. "Stop, please. I told you the truth. I confessed to the affair. What more do you want?"
+"I don't—Anna, I don't know what you're talking about. Who's Jason Whitmore?"
 
-"You didn't confess to everything," Anna said, her voice cold. "You're still lying. You're still protecting yourself."
+"Don't play dumb. You introduced him. You brought him into my life. Into my firm."
 
-"I'm not lying! I don't know anything about sabotage. Please, Anna, just listen to me—"
+Jessica shook her head, confused. "Anna, I only met Jason the other night. At Andrew's gallery show. That's the first time I ever saw him. I swear."
 
-"Shut up." Anna's voice cracked with fury. "You think confessing to the affair makes you honest? You think that's enough? You destroyed my life and you won't even admit to all of it."
+Anna stared at her. "You're lying."
 
-"I'm telling you the truth!"
+"I'm not! I met him at the gallery opening. That was Thursday night. I'd never seen him before. I don't even know his last name—you said Whitmore? I didn't know that. I just met him at the show."
 
-"Liar!" Anna screamed it. The word ripped out of her. "You're a liar and you're going to confess to everything or I'll make you."
+Anna's hands clenched. Her breathing quickened.
 
-"Please," Jessica begged. "Please, Anna. I confessed to what I did. I'm sorry about Andrew. I'm so sorry. But I didn't sabotage you. I swear—"
+"You're lying," she said, but her voice wavered. "You have to be lying."
 
-Anna pressed duct tape over Jessica's mouth. Silenced the protests, the pleas, the lies.
+"I'm telling you the truth. I only met him Thursday night at the gallery. I don't know anything about bringing him to the firm. I don't even know how he got hired at Henderson."
 
-Jessica's eyes were wide. Terrified. Pleading.
+That was when Anna lost it.
 
-Anna looked at her. Bound. Gagged. Still denying.
+The careful control she'd maintained shattered. The rage she'd been holding back broke through.
 
-Still lying.
+"You're still lying," Anna snarled. "You're still protecting yourself. You think confessing to the affair is enough? You think I'm stupid? You brought Jason back into my life. You orchestrated everything."
 
-Anna's rage crystallized into something cold and absolute.
+"Anna, please—"
 
-But she stopped. Hesitated.
+Anna reached into her bag. Pulled out the gloves. Put them on with deliberate, methodical movements.
 
-Jessica was bound. Gagged. Helpless. But still alive.
+Jessica's eyes widened. "Anna, what are you doing? What are those for?"
 
-Anna looked at her. Thought about what came next. The line she was about to cross.
+"Making sure you tell me everything," Anna said. Her voice was cold now. Dead. "Since you won't confess voluntarily, I'll make you."
 
-She pulled out her phone. Checked Andrew's location. A bar in Midtown. Three blocks from the gallery. Probably drowning his sorrows. Good. He was nowhere near Perry Street.
+"Anna, stop. We can talk about this. Please—"
 
-But something made her pause. Made her wait.
+Anna moved fast. Jessica stumbled backward, hit the counter. Reached for her phone.
 
-She'd restrain Jessica. Make her helpless. But she wouldn't cross that final line. Not yet.
+Anna grabbed her wrist. Twisted. The phone clattered to the floor.
 
-Not until she was sure there was no going back.
+"Please," Jessica said. "Please don't—"
 
 ---
 
@@ -194,21 +190,55 @@ Jason leaned back. "Because we met last night at your gallery. And I saw the way
 
 "I'm not warning you." Jason signaled for the check. "I'm just sharing my experience. What you do with it is your choice. Maybe she's different now. Maybe I was the problem. I don't know." He stood, extending his hand. "I hope things work out for all of you. I really do. I mean that."
 
+---
+
 **8:32 PM — Jessica's Apartment**
 
-Anna looked down at Jessica. Bound. Gagged. Still denying. Still lying.
+Jessica fought. Harder than Anna expected.
 
-If Jessica wouldn't confess to the sabotage, then she'd die knowing she'd been caught. She'd die knowing Anna knew everything, even if she wouldn't admit it.
+But Anna was stronger. Fueled by rage and purpose and the kind of focus that came from having nothing left to lose.
+
+She got Jessica on the ground. Pulled out the zip ties. White plastic strips. She looped one around Jessica's wrists, pulled it tight. The plastic bit into skin. Then another around her ankles. Efficient. Clinical.
+
+"Anna, stop," Jessica was sobbing. "Stop, please. I told you the truth. I confessed to the affair. What more do you want?"
+
+"You didn't confess to everything," Anna said, her voice cold. "You're still lying!"
+
+"I'm not lying! I don't know anything about sabotage. Please, Anna, just listen to me—"
+
+"Shut up." Anna's voice cracked with fury. "You think confessing to the affair makes you honest? You think that's enough? You destroyed my life and you won't even admit to all of it."
+
+"I'm telling you the truth!"
+
+"Liar!" Anna screamed it. The word ripped out of her. "You're a liar and you're going to confess to everything or I'll make you."
+
+Anna pressed duct tape over Jessica's mouth. Silenced the protests, the pleas, the lies.
+
+Jessica's eyes were wide. Terrified. Pleading.
+
+Anna looked at her. Bound. Gagged.
+
+Anna's rage crystallized into something cold and absolute.
+
+But she stopped. Hesitated.
+
+Jessica was bound. Gagged. Helpless.
+
+Anna looked at her. Thought about what came next. The line she was about to cross.
+
+She pulled out her phone. Checked Andrew's location. A bar in Midtown. Three blocks from the gallery. Probably drowning his sorrows. Good. He was nowhere near Perry Street.
+
+Then she thought about her husband. About how he'd taken this woman—this girl—into his arms. How he'd cared for her, loved her, in ways he hadn't loved Anna in years. How he'd looked at Jessica with tenderness Anna hadn't seen directed at her since before Mia died.
+
+Andrew was hers. Anna had built seventeen years of marriage with him. Seventeen years of shared history, shared dreams, shared life. And then this girl had appeared out of nowhere and torn it all apart. Who gave her the right? Who gave her the authority to destroy what Anna had built? To take what wasn't hers? To ruin Anna's marriage, her career, her carefully constructed life?
+
+It was time to take back what was rightfully hers.
 
 Anna pulled out another strip of tape. Wrapped it around Jessica's head, covering her nose.
 
 Jessica's eyes widened further. She struggled harder. Tried to shake her head. Tried to breathe.
 
-Anna held her down. Watched.
-
-This was what happened when you lied. When you destroyed someone's life and wouldn't even admit to all of it.
-
-Anna looked into Jessica's eyes—wide above the tape. Pleading. Animal panic.
+Anna held her down and looked into Jessica's eyes—wide above the tape. Pleading. Animal panic.
 
 She felt a flicker of something—not quite regret, but recognition.
 
@@ -216,11 +246,7 @@ This was the moment. The before and after. The line that couldn't be uncrossed.
 
 If she stopped now, she could walk away. Untape Jessica. Claim a breakdown. Get help. Save herself.
 
-Or she could finish what she started. Remove the threat. Reclaim control.
-
-Anna thought about Andrew. About Jessica naked in Andrew's arms. About how both had underestimated her. About how Jessica had confessed to the affair but not the sabotage. How she'd lied even at the end.
-
-Anna pressed harder. Made sure the tape sealed completely. No air getting through.
+Or she could finish what she started. Remove the threat. Reclaim control. And that is what she did. She pressed harder. Made sure the tape sealed completely. No air getting through.
 
 Jessica thrashed. Tried to shake her head. Tried to dislodge the tape. But Anna held firm.
 
@@ -262,11 +288,13 @@ He didn't know that tomorrow, Jessica wouldn't answer.
 
 He didn't know that by tomorrow, everything would be too late.
 
+---
+
 **8:45 PM — Jessica's Apartment**
 
 Anna worked methodically.
 
-Cleaned the surfaces Jessica had touched. Wiped down the duct tape, the gloves. Bagged everything in heavy-duty garbage bags—triple-layered, airtight.
+Cleaned the surfaces Jessica had touched. Wiped down the duct tape, the gloves. Wiped down Jessica's phone—the one that had clattered to the floor—and placed it back on the counter where it might have been. Bagged everything in heavy-duty garbage bags—triple-layered, airtight.
 
 Removed the zip ties from Jessica's wrists and ankles. Removed the tape from her face. Cleaned under her fingernails—no DNA evidence. Checked for fibers, hairs, anything that could trace back.
 

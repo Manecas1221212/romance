@@ -142,7 +142,7 @@ Hesitated.
 
 *Last chance. Walk away. Go home. Deal with this like a rational person. Report Jessica to HR. File for divorce. Find a therapist. Choose the normal path.*
 
-But the normal path was risky. She had no hard evidence—just theories, suspicions, patterns. Without proof, Jessica could deny everything. Report her to HR? She'd claim Anna was paranoid, unstable, making accusations because of the affair. Anna needed a confession. She needed Jessica to admit what she'd done.
+But the normal path was risky. She had no hard evidence—just theories, suspicions, patterns. Without proof, Jessica could deny everything. Report her to HR? She'd claim Anna was paranoid, unstable, making accusations because of the affair. Anna needed a confession. She needed Jessica to admit what she'd done, record it, and the show it to HR.
 
 Anna had never been good at losing.
 
