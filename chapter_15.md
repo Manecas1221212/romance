@@ -1,4 +1,4 @@
-# Chapter 15: Preparation
+# Chapter 15
 
 Friday morning, Anna woke with clarity.
 
@@ -52,7 +52,7 @@ At six, Claire arrived. They chatted for a while—normal things, how the kids w
 
 "Where are you going?" Claire asked.
 
-"That therapy appointment I scheduled," Anna said smoothly. "The only slot she had was Friday at seven."
+"That therapy appointment I scheduled," Anna said smoothly. "The only slot she had was Friday at seven." The appointment was actually booked for eight, but she'd told Claire seven to give herself more time. It was the plan's only vulnerability, but she knew it was unlikely to cause trouble. If anyone asked, she could claim she'd wanted to get familiar with the area first, was afraid of being late, and was nervous—it would be her first session, after all.
 
 Claire's face lit up. "Oh, Anna, I'm so glad you're doing this. It's going to help, I promise."
 
@@ -66,7 +66,7 @@ In the car, she sat for a moment with her hands on the wheel, staring at nothing
 
 But she thought about Jessica's text from yesterday—the one that had sealed everything. *Working from home tomorrow—need to receive some packages. Will finish the Meridian analysis remotely. Hope everyone has a good weekend.*
 
-Anna pulled out her phone and checked Andrew's location. Ben's place in Brooklyn. Nowhere near Perry Street. Good. She knew Jessica would still be working—she'd said she was finishing the Meridian analysis—but she needed to be sure Andrew wasn't there.
+Anna pulled out her phone and checked Andrew's location. He was in a bar near Ben's place in Brooklyn. Nowhere near Perry Street. Good. She knew Jessica would still be working—she'd said she was finishing the Meridian analysis—but she needed to be sure Andrew wasn't there.
 
 Jessica would be alone in her apartment. Friday night. No witnesses.
 

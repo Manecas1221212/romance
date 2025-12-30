@@ -1,4 +1,4 @@
-# Chapter 18: After
+# Chapter 18
 
 **Monday Morning — Henderson & Associates**
 
@@ -70,7 +70,7 @@ Anna felt everyone's eyes on her—the boss whose husband had been sleeping with
 
 Tom cleared his throat. "The police will want to speak with anyone who had recent contact with Jessica. They're treating it as a suspicious death until they complete their investigation."
 
-Marcus glanced at Anna. "Suspicious?"
+Marcus glanced at Tom. "Suspicious?"
 
 "Standard procedure," Tom said. "But they found a note. She was... struggling with personal issues."
 
@@ -82,7 +82,7 @@ Breathed.
 
 Counted to sixty.
 
-Emerged with red eyes and a composed expression.
+Emerged with red eyes and a composed expression. The perfect act.
 
 ---
 
@@ -92,29 +92,33 @@ Detective Morris interviewed Anna at 9 AM.
 
 "Mrs. Park, when did you last see Jessica Hall?"
 
-"At work. Thursday afternoon. By the elevators."
+Anna thought quickly. The last time she'd actually seen Jessica was at Andrew's gallery Thursday night, watching from across the street. But she couldn't say that. "I saw her at work earlier in the week. Wednesday, I think. We passed in the hallway."
 
 "Did you speak to her?"
 
-"Briefly. Just small talk. She mentioned working from home Friday."
+"Not really. Just a nod, maybe a hello. We hadn't been speaking much since... since I found out about the affair."
 
-"Were you aware of Ms. Hall's relationship with your husband?"
+"You were aware of Ms. Hall's relationship with your husband?"
 
 Anna paused. Looked down. "Yes. Andrew told me recently."
 
 "How did that make you feel?"
 
-"Betrayed. Angry. Hurt." The truth, actually. "But I didn't want her dead, Detective. I wanted my marriage fixed."
+"Betrayed. Angry. Hurt." The truth, actually. "But I didn't want her dead, Detective. I'm considering a divorce. So is Andrew."
 
-"Where were you Friday night between eight and ten PM?"
+"Where were you Friday night, say between seven and eleven PM?"
 
-"Home. Alone. My children were having dinner with a friend. Andrew was... I don't know where Andrew was."
+"I had a therapy appointment. It started at eight, took one hour and a half. I got home around ten."
 
-"You were home alone. Can anyone verify that?"
+"Can your therapist verify this?"
 
-"No." Anna met his eyes. "I was alone."
+Anna paused. "I'm sure she can. I can give you her details so yo ucan talk to her."
 
-Detective Morris made notes. "Did you go to Jessica Hall's apartment Friday evening?"
+"Did you speak to anyone else? See anyone?"
+
+"After the session I drove around for a bit after. I was upset. About the affair, about everything. I needed time to think, to breathe, but it didn't take more than 10 minutes. After that I headed straight home." Anna kept her voice steady. 
+
+Detective Morris made notes. "Did you ever go to Jessica Hall's apartment?"
 
 "No."
 

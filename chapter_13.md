@@ -161,7 +161,7 @@ She googled: *therapists near me accepting new patients*.
 
 Scrolled through profiles until she found someone who looked competent, professional, not too warm. Dr. Sarah Chen, cognitive behavioral therapy, executive clients.
 
-Anna filled out the intake form. Booked an appointment for next Friday at 7 PM. Put it in her calendar: *Dr. Chen—Initial consultation*.
+Anna filled out the intake form. Booked an appointment for next Friday at 8 PM. Put it in her calendar: *Dr. Chen—Initial consultation*.
 
 She stared at it. Felt something like relief, or maybe just exhaustion.
 

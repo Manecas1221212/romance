@@ -332,15 +332,35 @@ Walked three blocks to her car. Drove away.
 
 The city was alive with Friday night energy. People laughing, living, loving. None of them knowing what she'd just done three blocks away.
 
-Anna kept driving.
+Anna kept driving. Headed toward the meeting point. The prostitute would be waiting. The final piece of the alibi.
 
-By 9:25, she was home. The house was quiet. Claire had put the kids to bed. Everything was normal. Everything was exactly as it should be.
+At 9:37, she pulled up to the corner where she'd dropped the woman off earlier. The prostitute was there, looking relieved to see her.
 
-By 9:30, she was in her shower. Hot water. Soap. Scrubbing every inch of skin. Washing away the evening. Watching evidence circle the drain—water, soap, the last traces of what she'd done.
+"How did it go?" Anna asked.
+
+"Fine. She was nice. Asked a lot of questions, but I kept it vague like you said. Told her I was stressed about work, having trouble sleeping. She said I seemed really open, really willing to engage. That's a good sign, apparently."
+
+Anna nodded. "Perfect."
+
+"How did it go with your ex?" the woman asked. "You came earlier. Did you meet him?"
+
+Anna paused. The lie came easily. "It didn't go as expected."
+
+The woman's expression softened with sympathy. "With ex boyfriends, it never does."
+
+Anna nodded. Reached into her purse, counted out three hundred-dollar bills. Handed them over. "As promised."
+
+The woman took the money, counted it quickly. "Thanks. Good luck with everything. I hope you figure things out."
+
+Anna watched her walk away, then drove home.
+
+By 9:55, she was home. The house was quiet. Claire had put the kids to bed. Everything was normal. Everything was exactly as it should be.
+
+By 10:00, she was in her shower. Hot water. Soap. Scrubbing every inch of skin. Washing away the evening. Watching evidence circle the drain—water, soap, the last traces of what she'd done.
 
 She stepped out. Dried off. Put on clean pajamas. Normal. Routine. Like any other Friday night.
 
-By 10:00, she was in bed. Staring at the ceiling. Waiting to feel something—guilt, horror, regret, anything.
+By 10:30, she was in bed. Staring at the ceiling. Waiting to feel something—guilt, horror, regret, anything.
 
 She didn't.
 

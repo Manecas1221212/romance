@@ -168,7 +168,7 @@
 - Anna wakes with clarity, dresses for action
 - Leaves work early
 - Dinner with Sophie and Jake (says goodbye without them knowing)
-- Tells kids and Clair she's meeting her therapist
+- Tells kids and Clair she's meeting her therapist at 7pm, but the appointment is only at 8pm, this will buy her 1 hour to do what we reveal in chapter 17
 - But Anna is going to Jessica's apartment very determined to confront her, she knows she will be there because early that day she said she would be there by herself working hard on the client case Anna thinks she is corrupting (even thought it is friday). Note in this chapter Jessica does not mention her friday night to Jane directly, Anna is just remembering this
 - During the drive there Anna is piecing the story of how she is the one sabotaging her, she will confront her with all the evidence she has got
 
@@ -202,15 +202,18 @@
 - Home by 11pm, showers, goes to bed
 - Feels nothing, maybe because she herself is still in shock
 
-**Chapter 17: The Plan** (FLASHBACK)
-- Takes place day before (Thursday)
-- Anna can't sleep (so she cannot sleep from wednesday to thurday), runs through plan repeatedly
-- Thinks about whether she can actually do it
-- Asks Claire if it is ok for her to stay with her and the kids through the rest of the weekend as well ( so that she can look after them friday night while she is out killing Jessica)
-- Lunch with Jane at work (appearing normal)
-- Meets Jessica by elevators, Jessica talked about being alone at home on Friday, the next day, casually, mid conversation
-- Anna goes home, checks supplies one more time
-- Goes to bed thinking about the next day, about the moral consequences, about the fact that she will take a life ... wondering if the has got a conscience at all.
+**Chapter 17: The alibi**
+- At 7pm Anna was in a bad part of town, not very far from the therapy's office, but at least 10 minutes by car.
+- The plan was simple: find a prostitute that looked like her, give instructions to go to the psychiatrist and play Anna. Simple.
+- She finds a prostitute that looks like her, asks how much. She hooker says 200 dollars per hour, Anna says "get in".
+- "Where are we going" says the hooker.
+- "You are gonna be an actress for a night"
+- At first the hooker did not like the idea, asked to get out, though Anna was up for no good, maybe harm her. 
+- Anna offers 600 dollars for 2 hours (1 hour and a half for the therapist (first appointment is longer) and anotehr 30 minutes to wait for Anna) and explains she needs a solid alibi because she will cheat on her husband.
+- Complains, very convincivle, that her husband abuses her and is super controlling, but that her ex is in town and that she loves him and wants to meet him, maybe just for dinner, but maybe for sex as well. 
+- The hooker feels sorry for Anna, goes along with the idea and goes to the therapy to play Anna. Anna trains her for like 10 minutes to sound like her, professional, the hooker was doing very well at it.
+- After Anna comits murder and gets home she texts the therapist asking how the therapist saying that she does not want to do therapy anymore, that it is not for her. But what she really wants is indirect feedback from the therapist, to tell her how the session went with the hooker. 
+- The therapist replies saying she is very sorry to hear that and that she felt Anna really open up to her to way in a cordial way. Perfect
 
 **Chapter 18: After**
 - A week later, after not showing up to work for 5 days, the police find jessica still hanging in her apartment

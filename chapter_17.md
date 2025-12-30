@@ -1,175 +1,137 @@
-# Chapter 17: The Plan
+# Chapter 17: The Alibi
 
-Thursday night, the night before, Anna couldn't sleep.
+**7:00 PM — A Bad Part of Town**
 
-She lay in bed and ran through the plan again and again, looking for holes.
+Anna drove through a neighborhood not too far from the therapy office—maybe ten minutes by car. A place where no one would remember her. Where she wouldn't stand out. Where transactions happened quickly and were forgotten faster.
 
-8pm: Arrive at Jessica's apartment. Prepared.  
-8:15: Confrontation. Confession.  
-8:30: Act.  
-9:00: Clean. Remove evidence.  
-10:00: Leave. Drive rental car to New Jersey. Abandon in long-term parking at Newark Airport.  
-11:00: Uber back to Midtown garage. Retrieve own car.  
-11:30: Home. Shower. Destroy clothes. Sleep.
+The street was dimly lit, lined with check-cashing places and liquor stores. A few women stood on corners, waiting. Anna drove slowly, watching them, calculating. Looking for someone who could pass for her—similar height, similar build, similar coloring.
 
-Saturday morning: Normal. Breakfast with kids. Errands. Grocery shopping. Alibi of mundanity.
+She found her at the corner of 8th and 42nd. A woman in her mid thirties—though the lifestyle had aged her, made her look early forties—with dark hair pulled back, wearing a simple coat over jeans. She looked tired but alert. Professional, in her own way.
 
-The plan was clean. Simple. Executable.
+Anna pulled over and rolled down the window. "Excuse me?"
 
-The only variable was whether she could actually do it.
+The woman approached cautiously. "What do you need?"
 
-Anna got out of bed at three a.m. Went to the kitchen. Poured water she didn't drink. Stared out the window at the sleeping city.
+"How much?"
 
-She thought about Jessica—twenty-nine, whole life ahead, stupid choices but not evil. Caught in something bigger than she understood.
+"One hundred an hour."
 
-Collateral damage.
+Anna nodded. "Get in."
 
-Anna thought about Andrew—seventeen years of marriage, two children, vows that meant something once. Now sleeping with a woman barely older than his daughter's babysitter.
+The woman hesitated. "Where are we going?"
 
-Gone.
+"You're going to be an actress for a night."
 
-Anna thought about herself—forty-two, powerful, respected, teetering on the edge of losing everything she'd built. Career. Reputation. Family. Sanity.
+The woman's expression shifted—wariness, then something like fear. "I don't think so." She started to back away. "I'm not into anything weird. I'm not—"
 
-Worth protecting.
+"Six hundred dollars total," Anna said. "Three hundred now, three hundred when I pick you up. Two hours. That's it."
 
-The math was simple. One life to save three. Jessica's life to save Anna's, Sophie's, Jake's futures. A surgical removal of the tumor before it spread.
+The woman stopped. Six hundred was more than she'd make in a night, probably more than she'd make in two nights. "What do you want me to do?"
 
-Anna finished the water. Went back to bed. Slept dreamlessly until morning.
+Anna opened the passenger door. "Get in. I'll explain."
 
----
+The woman looked around—checking for witnesses, Anna realized. Making sure this wasn't a setup. Then she slid into the passenger seat. "I'm not doing anything illegal."
 
-Later that morning—Thursday morning—Anna went to work.
+"You're not," Anna said. "You're just going to pretend to be me for ninety minutes."
 
-She needed to appear normal. Functional. A woman dealing with marriage problems, not planning murder.
+"What?"
 
-At noon, she had lunch with Jane. She needed to be seen. Normal. Functional.
+Anna pulled away from the curb, drove toward the therapy office. "I have an appointment. A therapy appointment. I can't make it, but I need someone to go in my place. To be me. To talk to the therapist like I would."
 
-"You seem better," Jane observed.
+"That's insane."
 
-"I am. You were right. I was letting personal stuff bleed into work. I'm compartmentalizing now."
+"I know." Anna kept her eyes on the road. "But I need a solid alibi. My husband—he's abusive. Controlling. He tracks everything I do. If I miss this appointment, he'll know. He'll hurt me."
 
-"Good." Jane signaled for wine. "Have you figured out the sabotage situation?"
+The woman was quiet for a moment. "Why can't you just go?"
 
-"I think I was paranoid. Stress-induced pattern recognition. I'm letting it go."
+"Because my ex is in town. The one I actually loved. The one who got away. And I'm meeting him tonight—maybe just for dinner, maybe for more. I don't know. But I can't let my husband find out. If he does..." Anna let her voice break, just a little. "I just need someone to go to therapy so I have proof I was there. So I can show him the appointment confirmation, tell him how it went. So he doesn't suspect."
 
-"Smart." Jane raised her glass. "To forward momentum."
+The woman studied Anna's face. "You're serious."
 
-"To forward momentum," Anna echoed.
+"I'm desperate." Anna pulled over near the therapy office, still a block away. "Please. I'll pay you three hundred now, three hundred when I pick you up. Six hundred total. You go in, talk to the therapist for ninety minutes—first appointments are longer—then wait thirty minutes for me to pick you up. That's it. Two hours total."
 
-They talked about work, about deals, about the board's upcoming decisions. Normal colleague conversation. Nothing that suggested Anna had murder on her calendar.
+"What if she realizes I'm not you?"
 
-After lunch, Anna stopped by Tom's office.
+"She won't. It's a first appointment. She's never met me. She only has my name and basic information. You just need to sound professional. Calm. Like someone who works in finance."
 
-"Anna," he said, looking up with surprise. "Come in."
+The woman was quiet. Anna could see her calculating—the money, the risk, the story.
 
-"I wanted to apologize," Anna said. "For the past few weeks. I've been struggling with some personal issues and I let them affect my work. That was unprofessional."
+"Three hundred now," the woman said finally. "Three hundred when you pick me up. Cash."
 
-Tom looked relieved. "We all go through rough patches. I'm glad you're feeling more stable."
+Anna reached into her purse, counted out three hundred-dollar bills. Handed them over.
 
-"I am. And I want to keep my accounts. I can handle the workload. I was just... adjusting to the new role. I'm adjusted now."
+The woman counted them. Nodded. "What's your name?"
 
-"Good. That's really good to hear." Tom smiled. "Take the weekend. Come back Monday fresh. We'll get you back on track."
+"Anna Park."
 
-"Thank you."
+"Anna Park. Got it." The woman put the money in her pocket. "What do I say? What's my story?"
 
-On her way out, Anna ran into Jessica by the elevators.
+Anna thought quickly. "You're a VP at a finance firm. You're stressed. Work pressure. Marriage problems. You're considering therapy because you're having trouble sleeping, trouble focusing. You're not sure if it's work stress or something deeper. Keep it vague. Professional. Don't overshare."
 
-"Hey," Jessica said softly, looking uncomfortable. "How are you holding up?"
+"VP at a finance firm. Stressed. Marriage problems. Vague." The woman nodded. "I can do that."
 
-"I'm okay. Getting through it."
+"Good." Anna checked her watch. 7:15. The appointment was at 8:00. "We have forty-five minutes. Let me train you."
 
-"Yeah, I can imagine." Jessica shifted her weight. "I'm swamped this week. Tomorrow night I'll probably be working from home until midnight on that big Meridian deck."
+For the next ten minutes, Anna coached her. How to sit. How to speak—measured, controlled, articulate. How to answer questions without giving too much away. How to sound like someone who'd spent years in corporate environments, who knew how to present herself.
 
-"Sounds like a long night."
+The woman was good. Better than Anna expected. She picked up the cadence quickly, the professional distance, the way Anna would phrase things.
 
-"It will be. But you know how it is—gotta put in the work." Jessica gave a small, nervous smile. "Anyway, have a good rest of your day."
+"Good," Anna said again. "You're ready."
 
-"You too."
+She gave the woman the address, the therapist's name—Dr. Sarah Chen—the appointment time. "Go in at 8:00. Stay for ninety minutes. Then wait for me here at 10:00. I'll pick you up, and we're done."
 
-After Jessica walked away, Anna stood by the elevators, processing.
+"What if she asks something I can't answer?"
 
-Tomorrow night. Friday. Jessica would be home. Alone. Working late.
+"Say you're not comfortable discussing it yet. Say you need time to build trust. Therapists respect that."
 
-Perfect.
+The woman nodded. Got out of the car. "10:00. Here."
 
-Anna went back to her office. Closed the door. Sat at her desk and stared at the city beyond her window.
+"10:00," Anna confirmed.
 
-Tomorrow night. Friday night. Less than thirty hours from now.
+She watched the woman walk toward the therapy office, then pulled away. Drove toward the West Village. Toward Perry Street. Toward Jessica.
 
-The confirmation she'd needed had just walked away from her. Jessica would be home. Alone. Vulnerable.
+The alibi was set. The prostitute would go to therapy, play Anna for ninety minutes, then wait thirty minutes. By the time Anna would pick her up everything would be done. The murder. The cleanup. The staging.
 
-Anna opened her calendar. The entry was still there, created days ago: *Friday 8pm—Resolution.*
+And Anna would have proof she'd been at therapy. A witness who'd seen her—or someone who looked like her—at the appointment. Someone who could verify Anna's story if anyone asked.
 
-She'd thought about deleting it, worried it would look suspicious later. But no—it was vague enough. Could mean anything. A meeting. A decision. A turning point.
-
-Which, in a way, it was.
-
-Anna closed her laptop. Worked through the rest of the afternoon on autopilot. Left at five.
+It was perfect.
 
 ---
 
-At home that evening—Thursday evening—Anna called Claire.
+**10:40 PM — Home**
 
-"Claire, can you come stay with me and the kids tomorrow night? Through the weekend?"
+While lying in the bed, Anna pulled out her phone. Opened her messages. Found Dr. Sarah Chen's number.
 
-"Of course. What's going on?"
+She typed carefully:
 
-"I just... I need support right now. With Andrew. Everything's falling apart."
+*Dr. Chen, thank you for tonight's session. I've been thinking, and I don't think therapy is right for me. I appreciate your time, but I won't be scheduling another appointment. Thank you again. —Anna*
 
-"I'll be there tomorrow evening. Six o'clock. We'll get through this."
+She sent it. Waited.
 
-"Thank you."
+The response came five minutes later:
 
-Anna hung up and felt something like relief. Claire would be there Friday. A witness to Anna's normal behavior. Someone to watch the kids while Anna was "at her therapy appointment."
+*Anna, I'm sorry to hear that. I understand therapy isn't for everyone. I will say, though, that I was impressed by how open and engaged you were tonight. Many first-time clients struggle to connect, but you seemed genuinely ready to explore what's been troubling you. If you change your mind, my door is always open. Take care. —Dr. Chen*
 
-Perfect alibi wrapped in genuine friendship.
+Anna read it twice. Memorized it.
 
----
+*Open and engaged.* *Ready to explore.* *Genuinely connected.*
 
-That evening, Anna went to her closet. To the back corner, behind winter coats and storage boxes. Found the duffel bag she'd been packing over the past week.
+Perfect. If anyone asked—the police, Andrew, anyone—she could say she'd been at therapy. She could describe how it went. She could even quote the therapist's feedback.
 
-She opened it. Checked the contents one more time.
+The alibi was airtight.
 
-Garbage bags. Check.  
-Bleach. Check.  
-Gloves. Check.  
-Tape. Check.  
-Tarp. Check.  
-Change of clothes in a separate bag. Check.  
-Burner phone. Check.
+Anna put her phone down and got up. Looked at herself in the mirror. Her face was calm. Her eyes were clear. She looked like someone who'd just come home from a therapy session, someone who'd taken a step toward healing.
 
-Everything she needed to commit murder and disappear without a trace.
+She didn't look like someone who'd killed a woman two hours ago.
 
-Anna closed the bag. Pushed it back into the closet. Stood there in the dim light.
+She didn't look like someone who'd staged a suicide, cleaned a crime scene, disposed of evidence.
 
-Tomorrow night, she would become a murderer. She would take a human life. End Jessica Hall's existence. Twenty-nine years of memories, relationships, potential—snuffed out.
+She looked normal. Innocent. Like Anna Park, VP of M&A, mother of two, wife of seventeen years.
 
-She waited for the moral revulsion. The horror. The voice of conscience telling her to stop, to get help, to choose literally any other path.
+She went to bed. Closed her eyes. Waited for sleep.
 
-It didn't come.
+It came quickly. Dreamless. Deep.
 
-Instead, she felt only cold calculation. Jessica was a problem. Problems required solutions. This was simply execution—in every sense of the word.
+She'd done it. She'd eliminated the threat. She'd protected her career, her future, everything she'd built.
 
-Anna made a simple dinner. Ate mechanically, tasting nothing. Showered. Got into bed by ten.
-
-She lay in the dark, thinking about tomorrow. About the plan. About the moment she would cross the line that couldn't be uncrossed.
-
-She thought about the woman she'd been twenty years ago at Columbia—hungry, ambitious, determined to build something meaningful.
-
-That woman had wanted power. Success. Control.
-
-That woman would have been horrified by what Anna was about to do.
-
-Or maybe not.
-
-Maybe that woman had always been capable of this. Maybe ambition and ruthlessness were the same thing, just wearing different faces.
-
-Maybe Anna had always been exactly who she was about to become.
-
-She just hadn't known it yet.
-
-She closed her eyes.
-
-Tomorrow night, Jessica Hall would die.
-
-And Anna would find out what kind of person she really was.
+And she would get away with it.
