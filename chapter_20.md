@@ -1,6 +1,4 @@
-# Chapter 20: Suspicion
-
-**Week Five**
+# Chapter 20
 
 The email appeared in Anna's inbox on Monday morning.
 
@@ -8,7 +6,7 @@ The email appeared in Anna's inbox on Monday morning.
 *To: Tom Richards, Board Distribution*
 *Subject: Resignation Effective Immediately*
 
-Anna stared at the screen. Her hands went numb.
+Anna stared at the screen on her phone. Her hands went numb.
 
 She hadn't written this.
 
@@ -16,7 +14,7 @@ She hadn't written this.
 
 *After careful consideration, I have decided to resign from Henderson & Associates effective immediately. Recent personal circumstances have made it clear I can no longer fulfill my duties...*
 
-Anna's vision tunneled. She grabbed her phone. Called Tom.
+Anna's vision tunneled. She called Tom immediately.
 
 "I didn't send that."
 
@@ -52,17 +50,17 @@ But doubt crept in. Cold and insidious.
 
 What if she was?
 
----
+The question haunted her through the rest of Monday. Through the drive home. Through a sleepless night spent checking her phone, her laptop, her email again and again. By Tuesday morning, she'd almost convinced herself it had been a stress-induced hallucination.
 
-**Tuesday: Access Badge Deactivated**
+Almost.
 
-Anna swiped her badge at the parking garage. Red light. Access denied.
+Then she swiped her badge at the parking garage. Red light. Access denied.
 
 She tried again. Same result.
 
 Walked to the front desk. "My badge isn't working."
 
-Security checked the system. "Says here it was deactivated yesterday at 4 PM."
+Security checked the system. "Says here it was deactivated yesterday at 5 PM."
 
 "By who?"
 
@@ -72,13 +70,11 @@ Anna's badge had worked yesterday at 6 PM when she left. She'd used it.
 
 Or had she? She tried to remember. Andrew had called about Sophie. She'd been distracted. Had she actually swiped? Or had someone held the door?
 
-The doubt grew.
+The doubt grew.It followed her through Wednesday. Through meetings where she second-guessed every word. Through conversations where she wondered if she was remembering things correctly. By Thursday morning, she'd almost talked herself into believing it was all in her head.
 
----
+Almost.
 
-**Thursday: Files Deleted**
-
-The Meridian deck was gone. Three weeks of work. Disappeared from the shared drive.
+Then she opened the shared drive. The Meridian deck was gone. Three weeks of work. Disappeared.
 
 Anna checked version history. Last edit: *Anna Park, 11:47 PM Wednesday*.
 
@@ -88,15 +84,13 @@ Or had she been? She remembered lying in bed. But had she actually slept? Had sh
 
 She honestly didn't know anymore.
 
----
+That uncertainty carried her through Thursday afternoon. Through trying to recreate the Meridian deck from memory. Through pretending everything was normal. Through another night of fitful sleep where she questioned her own sanity.
 
-**Friday Morning**
-
-Anna sat in her new SVP office, hands shaking. The pattern was clear now. Undeniable.
+But Friday morning, sitting in her new SVP office, hands shaking, the pattern became clear. Undeniable.
 
 The sabotage had stopped after Jessica died.
 
-For three weeks, everything had been fine. Perfect. Normal.
+For over a month, everything had been fine. Perfect. Normal.
 
 And now it had started again.
 
@@ -114,29 +108,23 @@ Jessica, who'd admitted to the affair but *denied the sabotage*. Who'd looked ge
 
 Anna had killed the wrong person.
 
-She'd murdered an innocent woman. For nothing. Based on circumstantial evidence and paranoid assumptions and the fact that the sabotage had coincidentally stopped for three weeks.
+She'd murdered an innocent woman. For nothing. Based on circumstantial evidence and paranoid assumptions.
 
 Anna bent over her desk, trying to breathe. Trying not to be sick.
 
 *"I didn't do those things,"* Jessica had said. *"I don't know what you're talking about."*
 
-And Anna had killed her anyway.
-
----
-
-Anna forced herself to think. To push past the horror and guilt and focus.
-
-Someone was still sabotaging her. Someone with access. Someone who'd been doing this all along.
+And Anna had killed her anyway. She forced herself to think logically about the sabotaging, to push past the horror and guilt and focus. Someone was still sabotaging her. Someone with access. Someone who'd been doing this all along.
 
 She pulled out her old suspect list. Crossed off Jessica's name with a shaking hand.
 
 Who else had access? Who else had motive?
 
-Marcus? No—he'd left the firm six months ago.
+Marcus? No — he'd left the firm last week, could take Jessica's loss.
 
 Jason? Possible. But he was new. The sabotage had started before he arrived.
 
-Jane.
+The only person that knew about Jason, had access to her work and to her home would be... Jane.
 
 Anna stared at the name. Her mentor. The woman who'd brought her to Henderson. Who'd guided her career for fifteen years.
 
@@ -148,7 +136,7 @@ Jane, who could make changes that would look like they came from the user.
 
 Anna checked the metadata on the original sabotage emails. All sent from her IP addresses—office and home. But Jane had visited Anna's office. Multiple times. Could have installed keylogging software. Could have cloned her devices.
 
-The home access was trickier. Jane had never been to Anna's apartment. But—
+The home access was trickier. Jane had been to Anna's apartment, but could she have cloned a house key? That's hard to believe, they never stay for long and Anna never noticed a housekey gone.
 
 Anna thought about Mia's funeral. People coming and going. Jane had sent flowers. Had anyone checked if she'd actually come to the reception?
 
@@ -182,95 +170,75 @@ Because Jane could have accessed her home laptop during the funeral. While every
 
 She hung up.
 
----
-
 Anna needed proof. So she did what she always did when she needed information: she investigated.
 
 She checked Jane's schedule against the sabotage timeline. Every major incident coincided with Jane being in the office or having been in the office recently.
 
-The first email—sent two days after Jane visited Anna's office "to congratulate her on the SVP promotion."
+The first email incident—an unsent draft appearing on her computer the morning after Jane's lunch invitation, followed by emails sent from her account at 2 a.m. while she slept.
 
-The calendar chaos—started after a board meeting where Jane had access to the firm's master systems.
+The calendar chaos—fake invites appearing late at night: the "Performance Review" that vanished, the "Meridian Partners" call that made her miss the Sanderson meeting, the "Leadership Offsite - You've Been Removed" notice.
 
-The file deletions—occurred the morning after Jane had been working late. Anna checked the security logs. Jane had been on the fourteenth floor—Anna's floor—until 11 PM that night.
+The file incidents—the CONFIDENTIAL SVP materials appearing in the shared drive then vanishing, decks corrupted and sent while she slept, files renaming themselves seconds after she saved them.
 
 Circumstantial. But mounting.
 
-Anna needed more.
-
----
+Anna needed more. Anna needed a motive. Why would one of her friends seek to destroy her life ?
 
 She called Claire. First time since Jessica died.
 
-"I was wondering when you'd call," Claire said.
+"Anna," Claire said, her voice careful. "How are you holding up?"
 
-"I've been dealing with things."
+"I've been better. Listen, I was thinking—we should get together. The three of us. You, me, Jane. When was the last time you even saw Jane?"
 
-"By 'things' do you mean murder investigations?"
+Claire paused. "I don't know. A while, I guess. We don't really see each other much anymore."
 
-Anna went cold. "What did you hear?"
+"Right. I work with her, but it's all business. I miss the old days. Columbia." Anna kept her tone light, nostalgic. "Maybe we could do lunch or something."
 
-"That your husband's mistress died. That the police questioned you. That you have no alibi. Anna, what the fuck happened?"
+"That would be nice. But Jane's always so busy."
 
-"I didn't kill her."
+"She is. But still—it's been too long." Anna let the silence hang for a moment. "Actually, when did you last talk to her? Just curious if she's mentioned anything about getting together."
 
-"Did you?"
+Claire was quiet. "Actually, she came to me a few months ago. She was upset."
 
-"No." The lie came easier the second time.
+"Oh?" Anna tried to sound only mildly surprised. "What about?"
 
-"But you wanted to."
+"I don't really know. She was crying, but she didn't say much. Just that she was struggling with something personal. She asked me not to tell anyone."
 
-Anna closed her eyes. "Yes."
+"That's unlike her. Jane's usually so private."
 
-"Jesus, Anna." Claire's voice was equal parts horror and resignation. "What is happening to you?"
+"I know. I thought maybe it was work-related, or... I don't know. Loneliness, maybe? She dismissed it pretty quickly. Said it was nothing."
 
-"Someone's destroying my life. I thought it was Jessica. But she's gone and it's still happening."
+"Did she mention what kind of struggle?"
 
-"So you think it's someone else."
+"No. She was vague. You know Jane—she doesn't open up easily."
 
-"I know it's someone else. Jane van Moore. My mentor. The woman who brought me to Henderson."
+Anna paused. "That's too bad. I hope she's doing better now."
 
-"Why would Jane sabotage you?"
+"I think so. I haven't heard from her since. But you'd know better—you see her at work all the time."
 
-"I don't know yet. But I'm going to find out."
+"Well, maybe we should reach out. See if she wants to do that lunch."
 
-"Anna, listen to me. You need help. Real help. Therapy. Maybe medication. You're spiraling."
+"Sure. But Anna—are you okay? You sound..."
 
-"I'm not spiraling. I'm solving a problem."
+"I'm fine. Just been thinking about old friends. Listen, can we meet for coffee next week? I'd love to catch up properly."
 
-"The last time you 'solved a problem,' someone died."
+"Of course. When works for you?"
 
-The words hung there. True. Undeniable.
+"I'll text you. Thanks, Claire."
 
-"That was a mistake," Anna said quietly.
+"Anytime. And Anna—take care of yourself, okay?"
 
-"You think?" Claire's voice cracked. "Anna, I've known you since we were eighteen. You were always intense. Always driven. But you weren't... whatever you've become. Please. Stop this. Walk away. Get help."
+"I will."
 
-"I can't."
+She hung up. The information was there. Jane had been crying. Struggling with something personal. Something she didn't want anyone to know about.
 
-"Why not?"
-
-"Because if I stop, I lose everything. My career. My kids. My life. I have to prove I'm not crazy. I have to prove someone's been doing this to me."
-
-"And if you're wrong about Jane? If you kill another innocent person?"
-
-Anna didn't answer.
-
-"Anna?"
-
-"I have to go."
-
-She hung up. Blocked Claire's number. She couldn't afford doubt right now.
-
----
-
-Anna started following Jane.
+Anna just needed to find out what, so she started following Jane.
 
 Not obviously. Just... observing. Where she went for lunch. Who she met with. What she did on weekends.
 
-Jane lived in a penthouse in Tribeca. Never had visitors. Never went on dates. Just work and home and occasionally the gym.
+Jane lived in a penthouse in Tribeca. Never had visitors, just went on mysterious dates. Just work and home and occasionally the gym.
 
-Lonely, Anna thought. No wonder she's trying to destroy me. I have everything she never did.
+Lonely, Anna thought. That could be motive enough. I have everything she never did.
 
 On Saturday, Anna watched Jane leave her building at 10 AM. Dressed casually—yoga pants, oversized sweater. She walked to a coffee shop. Ordered a latte. Sat alone by the window for an hour, reading.
 
@@ -286,63 +254,11 @@ An affair? A daughter? A protégé?
 
 She'd find out.
 
----
+But was it really Jane? The timeline matched. The access was there. The motive—loneliness, jealousy, whatever Claire wasn't telling her—could exist.
 
-Monday, Anna had lunch with Tom.
+Or was Anna just desperate? Grasping at any explanation that meant she hadn't killed an innocent woman for nothing. That she wasn't losing her mind.
 
-"I need to talk to you about Jane van Moore," she said.
+She didn't know. Not yet.
 
-Tom's expression closed. "What about her?"
-
-"I think she's been sabotaging me. The emails, the calendar issues, the system access problems. She has the means and the access."
-
-"Jane has been a board member for ten years. She's one of our most trusted leaders."
-
-"She's also the only person with unrestricted system access who's been consistently present during every incident."
-
-"Anna." Tom's voice was patient but firm. "You accused Jessica. Now Jessica is dead and you're accusing Jane. Do you see a pattern here?"
-
-"The pattern is that someone is targeting me and everyone thinks I'm paranoid!"
-
-"Maybe because you're acting paranoid."
-
-Anna forced herself to breathe. Stay calm. Be logical.
-
-"Tom, please. Just check the access logs. See when Jane's been in the system during the times these emails were sent."
-
-Tom sighed. "Fine. I'll have IT run a report. But Anna, if this comes back clean—if there's no evidence—you need to stop. This obsession is destroying your credibility."
-
-"Thank you."
-
-After lunch, Anna felt lighter. Finally, someone was listening.
-
----
-
-The IT report came back Wednesday.
-
-Tom called Anna into his office. His expression told her everything before he spoke.
-
-"The report shows no suspicious access by Jane. She's used her board privileges appropriately. Every login was legitimate business."
-
-"But the timestamps—"
-
-"Don't line up with your incidents. Anna, there's no connection. Jane didn't do this."
-
-"Then who did?"
-
-"I don't know. Maybe no one. Maybe you're remembering things wrong. Maybe the stress of Jessica's death—"
-
-"I'm not imagining this!"
-
-"Then prove it. With real evidence. Not conspiracy theories."
-
-Anna left his office shaking.
-
-Jane was too smart to leave obvious trails. Of course the logs looked clean. She'd covered her tracks.
-
-But Anna would find the proof.
-
-She had to.
-
-Because the alternative—that no one was sabotaging her, that she'd killed Jessica for nothing, that she was actually losing her mind—was impossible to accept.
+But she would find out.
 

@@ -1,114 +1,121 @@
 # Chapter 21: The Coffee
 
-Claire showed up at Anna's apartment on Saturday morning unannounced.
+Claire showed up at Anna's apartment on Saturday morning. They'd arranged coffee, but Claire had come early, unannounced.
 
-"You blocked my number," Claire said when Anna opened the door. "So I drove here."
+"Sorry," Claire said when Anna opened the door. "I was in the neighborhood and thought we could start early."
 
-"Claire—"
-
-"Let me in. We're talking."
-
-Anna stepped aside. Claire walked in, took in the state of the place—dishes in the sink, papers everywhere, Anna in sweats she'd been wearing for two days.
+Anna stepped aside. Claire walked in, took in the state of the place—dishes in the sink, papers everywhere, Anna looking like she hadn't slept properly in weeks.
 
 "Where are the kids?"
 
 "Andrew's. They're with him this weekend."
 
-"And you're here doing what? Planning your next murder?"
+Claire nodded. They moved to the kitchen. Anna started making coffee, the familiar ritual giving her something to do with her hands.
 
-Anna flinched.
+"So," Claire said, settling at the kitchen table. "How are you really doing?"
 
-Claire sat on the couch. Waited.
+"I've been better."
 
-Anna joined her after a moment. They sat in silence.
+"I can see that." Claire's voice was gentle. Kind. She'd always been kind to Anna, even when Anna didn't deserve it. "Anna, I've been thinking about what you said on the phone. About Jane."
 
-"I made a mistake," Anna said finally.
+Anna turned, coffee grounds in hand. "What about her?"
 
-"That's the understatement of the century."
+"You asked if she'd been upset. If there was a reason she might... do something to you." Claire paused. "Anna, what if no one's doing anything? What if you've been sabotaging yourself?"
 
-"Jessica wasn't sabotaging me. Someone else is. I know it."
+The words hit like cold water. "What?"
 
-"Anna, listen to yourself. You killed someone because you were convinced she was destroying your life. Now the sabotage is back and you're looking for the next person to blame. Do you not see the pattern?"
+"Stress-induced memory issues. Self-sabotage. People do things when they're exhausted and don't remember. You've been under enormous pressure. Jessica's death. The investigation. Your marriage falling apart. That's enough to make anyone—"
 
-"What pattern?"
+"I'm not imagining this, Claire. The emails, the calendar issues, the files—they're real."
 
-"You see enemies everywhere. You can't accept that sometimes bad things just happen. That stress causes mistakes. That not everything is a conspiracy."
+"Are they? Or are they mistakes you made when you were tired and don't remember making? Anna, you're sleeping three hours a night. You're barely eating. That's the perfect recipe for dissociation."
 
-"But the emails—"
+Anna felt ice in her chest. "You think I'm having blackouts? Sending emails to myself?"
 
-"Could be you. Sending them when you're tired or stressed and not remembering. Anna, you're sleeping three hours a night. You're barely eating. You're obsessed. That's not rational behavior."
+"I think it's more likely than an elaborate conspiracy. Jessica had an affair with your husband. That was real. But the sabotage? What if that was all in your head?"
 
-Anna wanted to argue. But she looked at her reflection in the blank TV screen—gaunt, hollow-eyed, unraveling—and couldn't.
+Anna set down the coffee grounds. "It wasn't. Someone is doing this. And Jane has access. She has motive."
 
-"What if I'm wrong?" she whispered.
+"What motive?"
 
-"Then you killed an innocent woman and you need to turn yourself in."
+"That's what I'm trying to find out. You said she came to you crying. What was she upset about?"
 
-"I can't."
+Claire hesitated. "Anna, I don't think—"
 
-"Why not?"
+"Please. Just tell me. What did she say?"
 
-"Because of Sophie and Jake. They need me."
+"She was vague. She didn't really say much."
 
-"They need a mother who's not a murderer."
+"But you said she was crying. What about?"
 
-The words hung there. True. Terrible.
+Claire looked uncomfortable. "It was work-related, I think. She seemed to be on the brink of collapse. Honestly, it was strange—we're not even that close. She just had no one else to talk to."
 
-"I can't go to prison," Anna said. "I can't lose everything."
+"Work-related how?"
 
-"You already have." Claire's voice was gentle. Sad. "You've lost Andrew. You've lost your job security. You've lost yourself. The only question is whether you lose the kids too."
+"I don't know if I should—"
 
-"They'd take them away?"
+"Claire, please. I need to understand."
 
-"Of course they would. If you're convicted of murder, Andrew gets full custody. You'd see them in prison visits. Through glass. For the rest of their childhood."
+Claire sighed. "She said they were thinking about letting her go from the board."
 
-Anna felt something crack. The reality crashing through denial.
+Anna's pulse quickened. "Why?"
 
-"What do I do?"
+"She'd been sleeping with analysts. For years. People were starting to gossip. It was becoming a problem."
 
-"You stop. You get help. You try to hold onto whatever's left."
+Anna stared at Claire. "Jane was sleeping with analysts?"
 
-"And just let whoever's really doing this win?"
+"Multiple. Over the years. She said the board was concerned about optics. About liability. That they were considering asking her to step down."
 
-"Anna." Claire took her hands. "What if no one's doing anything? What if you've been sabotaging yourself and projecting it onto other people?"
+"And when was this?"
 
-"That's not—"
+"A few months ago. Maybe three? Four?"
 
-"It is possible. Stress-induced memory issues. Self-sabotage. People do things in fugue states and don't remember. You're exhausted, paranoid, barely sleeping. That's the perfect recipe for dissociation."
+Right around when the sabotage started escalating. Right when Anna's SVP promotion was being discussed.
 
-Anna felt ice in her chest. "You think I'm... what? Having blackouts? Sending emails to myself?"
+"Did she mention me? Did she say anything about me?"
 
-"I think it's more likely than an elaborate multi-year conspiracy by people who have no real motive to destroy you. Jessica had an affair with your husband. That was real. But the sabotage? Anna, what if that was all in your head?"
+"No. She was just... upset. Scared. She said she'd given everything to Henderson. That she had nothing else. No family. No real friends. Just her career. And they were going to take it away."
 
-Anna pulled her hands away. "You don't believe me."
+Anna felt something click into place. Jane, facing removal from the board. Jane, watching Anna rise. Anna, who had everything Jane didn't—a family, a stable life, a career trajectory that could lead to the board.
 
-"I believe you're in pain. I believe you need help. Real help—a psychiatrist, not a therapist. That's what I believe."
+But then—
 
-Claire stood to leave, but paused at the door.
+"What if I'm wrong?" Anna whispered. "What if Jessica was innocent? What if I killed an innocent woman?"
 
-"I'm not giving up on you," she said quietly. "Even when you give up on yourself. But I can't watch you destroy yourself anymore. Not unless you let me actually help."
+Claire's expression softened. "Anna—"
 
-"I don't know how," Anna whispered.
+"Don't. Just... what if I'm wrong about everything? What if I've been sabotaging myself this whole time? What if I'm losing my mind?"
 
-"Start by considering that maybe—just maybe—you need more help than you think."
+"Then you need help. Real help. A psychiatrist. Not just therapy."
 
-After Claire left, Anna sat alone and thought about everything.
+"And if I'm right? If someone really is doing this?"
 
-Maybe Claire was right. Maybe she was losing her mind. Maybe Jessica had been innocent. Maybe Jane was innocent. Maybe there was no conspiracy, just a woman falling apart and looking for someone to blame.
+"Then you need proof. Real proof. Not suspicion. Not circumstantial evidence."
 
-For the first time in months, Anna let herself consider that possibility.
+Anna sat down heavily. "I don't know what to believe anymore."
 
-And it was more terrifying than any enemy.
+"Maybe that's the point," Claire said quietly. "Maybe someone wants you to doubt yourself. To question your own sanity. That's more effective than any direct attack."
 
-Because if she was the problem—if she'd always been the problem—then Jessica's death wasn't a mistake.
+Anna looked at Claire. "You think someone's trying to make me think I'm crazy?"
 
-It was inevitable.
+"I think you need to consider all possibilities. Including that you might be the problem. And including that someone might be deliberately making you think you're the problem."
 
-The natural end point of who Anna really was.
+The most terrifying possibility: Anna was the problem, not external enemies. That she'd killed Jessica for nothing. That she was losing her mind.
+
+Or the equally terrifying possibility: someone was systematically destroying her, making her doubt herself, making her look unstable. And she was falling for it.
+
+She didn't know which was worse.
 
 ---
 
-Later that day, Anna unblocked Claire's number. She didn't call. She didn't text. But she left the door open.
+Later, after Claire left, Anna sat alone with her coffee gone cold.
 
-Just in case Claire was right about everything.
+Jane, facing removal from the board. Jane, sleeping with analysts. Jane, desperate and alone.
 
+It could be motive. It could explain everything.
+
+Or it could be nothing. Just a woman going through a hard time, reaching out to someone who'd listen.
+
+Anna didn't know.
+
+But she would find out.

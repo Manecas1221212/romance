@@ -238,14 +238,14 @@
 - Tom mentions board seat possibility in "a year or two", Anna's great goal. Her life was settling in just like she had planed.
 
 **Chapter 20: Suspicion**
-- **WEEK FIVE: Sabotage resumes** (phantom email about resigning)
+- **WEEK six: Sabotage resumes** (phantom email about resigning)
 - Anna realizes: Jessica was innocent, wasn't behind sabotage
 - **Anna understands she killed the wrong person**
 - Sabotage continues: fake resignation announcements, access badge deactivated, files deleted
 - Anna goes through suspect list again
 - **Focuses on Jane** - board access, system privileges, was at Mia's funeral reception
 - Checks timeline: all major incidents coincide with Jane being in office
-- Claire confronts Anna: *"The last time you 'solved a problem,' someone died."*
+- Anna calls Clair and asks her if she has talked to Jane recently, Anna wants to understand if Jane could have a reason to sabotagge her. Claire is vague, but says that a few months ago Jane went to her crying about ... she dismisses it. Says it's nothing, that Jane asked her not to share with Anyone. Anna books coffe time with Claire (chapter 21) to try to extract this info in person.
 - Anna starts following Jane
 
 **Chapter 21: The Coffee**
@@ -253,6 +253,8 @@
 - Claire: *"What if no one's doing anything? What if you've been sabotaging yourself?"*
 - Suggests stress-induced memory issues, self-sabotage
 - Anna considers possibility she's losing her mind
+- But Anna keeps pressing to try to find out why Jane was so upset
+- Claire confesses that it was work related, that she seemed to be on the brink of collapse, especially because she was not even that close to Claire, she just had no one to talk to. She adimited that they were thinking about letting her go from the board because she had been sleeping with analysts for years, and people were starting to gossip. 
 - Realizes if she was wrong about Jessica, she murdered an innocent woman
 - Most terrifying possibility: Anna is the problem, not external enemies
 
