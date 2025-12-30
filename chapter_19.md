@@ -1,6 +1,6 @@
 # Chapter 19: False Peace
 
-Three weeks after Jessica's death, life returned to an approximation of normal.
+Five weeks after Jessica's death, life returned to an approximation of normal.
 
 Anna went to work. Led meetings. Closed deals. Her calendar stayed stable. Her emails remained unsent unless she sent them. The whispers about her potential involvement in Jessica's death faded to background noise.
 
@@ -30,7 +30,7 @@ Anna returned to her coffee, the lie sitting comfortably on her tongue. She'd be
 
 ---
 
-At work, the team was subdued. Jessica's death had cast a shadow. Her desk sat empty. No one wanted to touch it. HR finally boxed up her things three weeks in.
+At work, the team was subdued. Jessica's death had cast a shadow. Her desk sat empty. No one wanted to touch it. HR finally boxed up her things five weeks in.
 
 Anna volunteered to take the box to Jessica's parents. It seemed like the right thing to do. The human thing.
 
@@ -40,13 +40,13 @@ Jessica's mother opened the door. Looked older than she had at the funeral. Grie
 
 "I brought Jessica's things from the office. I thought you might want them."
 
-"Thank you." Mrs. Hall took the box, eyes filling with tears. She set it down inside the doorway and turned back to Anna. "My daughter always spoke so highly of you. She admired you so much. She wanted to be like you someday."
+"Thank you." Mrs. Hall took the box, eyes filling with tears. She set it down inside the doorway and turned back to Anna. "My daughter always spoke so highly of you. She admired you so much. She wanted to be like you someday." She paused, her expression clouding. "Oh, but I've told you this before, haven't I? I'm sorry—my mind hasn't been quite right since..."
 
 The words hit Anna like a physical blow. Her throat tightened.
 
 "She was exceptionally talented," Anna managed. "She had such a bright future ahead of her."
 
-"She was so excited about working with you. She'd call me and tell me about the projects, about everything she was learning." Mrs. Hall's voice broke. "Thank you for mentoring her. Thank you for everything you did for her."
+"She was so excited about working with you. She'd call me every week and tell me about the projects, about everything she was learning from you." Mrs. Hall's voice broke. "Thank you for mentoring her. Thank you for everything you did for her."
 
 Anna felt something crack inside her chest. This woman—this grieving mother—was *thanking* her. For mentoring the daughter Anna had murdered.
 
@@ -56,9 +56,9 @@ Anna felt something crack inside her chest. This woman—this grieving mother—
 
 Anna hugged her. Let Jessica's mother cry on her shoulder for the second time. Felt the weight of what she'd done crushing down.
 
-When she finally pulled away, Mrs. Hall squeezed her hands. "You must miss her too. I know she looked up to you."
+When she finally pulled away, Mrs. Hall squeezed her hands, holding on like Anna was a lifeline. "You must miss her too. I know how much she meant to you. It's been so hard—losing her has been so hard."
 
-"Yes," Anna whispered. "I miss her very much."
+"Yes," Anna whispered, the words catching in her throat. "I miss her very much."
 
 It was the truest thing she'd said in weeks.
 
@@ -114,23 +114,13 @@ Anna pulled out her phone. Looked at the last text she'd sent to Jessica. A week
 
 Jessica had responded immediately: *Thank you! Happy to help. Let me know if you need anything else.*
 
-Anna deleted the thread. Closed the encrypted file where she'd documented all her "evidence" against Jessica. Shut down her laptop.
-
-Went home to her ghost of a husband and her children who were learning not to ask too many questions.
+Anna deleted the thread. Went home to her ghost of a husband and her children who were learning not to ask too many questions.
 
 And told herself that it had all been worth it.
 
 The sabotage had stopped. That proved Jessica had been behind it. That proved Anna had been right.
 
+The police would never be able to prove Jessica had been sabotaging Anna. Only she and Andrew knew about it, because they were the only ones who had believed there was sabotage in the first place. And even if Andrew told the police, no one would back him up. IT had found no evidence. No one had believed Anna when she'd mentioned it. It was perfect.
+
 She'd eliminated a threat. Solved a problem. Protected everything she'd built.
-
-She refused to consider any other possibility.
-
-Because if she'd been wrong—if Jessica had been innocent—then Anna wasn't a strategic problem-solver protecting her career.
-
-She was just a murderer who'd killed for nothing.
-
-And that was a truth she couldn't afford to face.
-
-Not yet.
 

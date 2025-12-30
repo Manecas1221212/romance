@@ -233,7 +233,7 @@
 - Anna works, Andrew lives like a ghost, barely speaking
 - Sophie asks if they're getting divorced, but Anna reasures her, they have always had the perfect life, it would not stop now
 - Anna returns Jessica's office belongings to her mother
-- Mrs. Hall is very friendly to Anna, "My daughter as always spoken very highly of you. Thank you for everything"
+- Mrs. Hall is very friendly to Anna
 - Anna promoted to full SVP
 - Tom mentions board seat possibility in "a year or two", Anna's great goal. Her life was settling in just like she had planed.
 

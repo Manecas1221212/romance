@@ -150,11 +150,9 @@ After two hours, Detective Morris let her go. "We'll be in touch if we have more
 
 They brought Andrew in next.
 
-Anna waited in her car across from the precinct, watching. Saw him arrive at 2 PM, looking devastated. Saw him leave three hours later, looking destroyed.
+Anna waited in her car across from the precinct, watching. Saw him arrive at 2 PM, looking devastated. 
 
-He walked right past her car. Didn't see her. Didn't see anything.
-
-She drove home. Made dinner. Set the table for two.
+She drove home, worked until 7pm and then made dinner. Set the table for two.
 
 When Andrew came home at eight, he stood in the doorway and stared at her like she was a stranger.
 
@@ -164,21 +162,21 @@ When Andrew came home at eight, he stood in the doorway and stared at her like s
 
 "The police keep asking questions. Like they don't believe it was really suicide."
 
-"They questioned me too." Anna kept her voice steady. "But Andrew, I was home. I didn't hurt Jessica."
+"They questioned me too." Anna kept her voice steady. "But Andrew, I was at a therapy session. I didn't hurt Jessica."
 
 "You tracked me. Followed me. Documented everything."
 
 "Because I was angry. Because I wanted evidence for a divorce. Not because I wanted her dead."
 
-Andrew moved to the window. Stood with his back to her. "The sabotage stopped."
+Andrew moved to the window. Stood with his back to her. "Did the sabotage stop?"
 
 "What?"
 
-"At work. The phantom emails. The calendar glitches. All of it stopped after Jessica died."
+"At work. The phantom emails. The calendar glitches. Did all of it stop after Jessica died?"
 
 Anna's stomach tightened. She hadn't thought about that. Hadn't considered how the timing would look.
 
-"That's coincidence," she said carefully.
+"Actually, it seems that way, but it's only been a week. I'm sure that it's just a coincidence," she said carefully.
 
 "Is it?" Andrew turned. "Or were you right all along? Was Jessica sabotaging you?"
 
@@ -252,11 +250,11 @@ Anna held her anyway.
 
 Andrew moved back home.
 
-Not because he forgave her. Not because he believed her. But because Ben's couch had a shelf life and the lawyers said splitting up during an active investigation looked suspicious.
+Not because he forgave her. Not because he believed her. But because he couldn't stay on Ben's couch forever, and because the kids needed him. Because maintaining some semblance of normalcy mattered, even if it was a lie.
 
 So they became roommates in their own home. Polite strangers who shared children and a mortgage.
 
-Andrew didn't believe Jessica had killed herself. He'd said as much, late one night when he couldn't sleep. "She was planning things. Excited about projects. People don't do that when they're suicidal."
+Andrew didn't believe Jessica had killed herself. He'd told Anna this late one night when he couldn't sleep, voice tight with something that might have been grief or accusation. "She was making plans. Talking about projects she was excited about. People who are suicidal don't do that."
 
 He slept in the guest room with the door locked.
 
@@ -266,7 +264,7 @@ He watched her like she was a dangerous animal. Careful. Calculating. Waiting fo
 
 Meanwhile, Anna's career stabilized. The sabotage stopped completely. No more phantom emails. No corrupted files. No mysterious calendar invites.
 
-Tom gave her back the Meridian account. The board mentioned her name again for the SVP promotion.
+Tom gave her back the an important account. The board mentioned her name again for the SVP promotion.
 
 Everything Anna had worked for was coming back. Because the threat—Jessica—was gone.
 
