@@ -54,17 +54,17 @@ And that scared her more than the murder itself.
 
 The next board meeting, they discussed succession planning.
 
-"Anna, you've been on the board for eighteen years," David said. He was eighty now. Retiring. "We'd like you to consider the chair position."
+"Anna, you've been on the board for eighteen years," David said. He was eighty now. Retiring soon. "The chair position will be opening up. You should consider putting your name forward."
 
 Board chair. The top. The absolute peak.
 
-"I'd be honored."
+"I'd be honored to be considered."
 
 "There's one concern." Patricia, now sixty-nine. "Some members feel your history—with Jane, with the incidents thirty years ago—raises questions about judgment."
 
 "Those incidents were thirty years ago," Anna said calmly. "I was the victim. Not the perpetrator."
 
-"Of course. But perception matters."
+"Of course. But perception matters. The vote won't be for another few months. Think about how you want to position yourself."
 
 "My record speaks for itself. Eighteen years on this board. Countless successful deals. Zero scandals. Whatever I was then, I'm not now."
 
@@ -72,13 +72,15 @@ Board chair. The top. The absolute peak.
 
 Anna met her eyes. "Effective."
 
-They voted two weeks later.
+After the meeting, David pulled her aside.
 
-Anna won by a single vote.
+"You have my support, Anna. But not everyone's convinced. Gerald Morrison has been pushing for Jason Whitmore. Says he's more... traditional."
 
-Board chair. At sixty.
+"Traditional."
 
-She'd done it. Reached the absolute top. The position Jane had once held. The power she'd sacrificed everything to attain.
+"You know what that means."
+
+Anna knew exactly what that meant.
 
 ---
 
@@ -86,17 +88,17 @@ That night, her phone rang. Unknown number.
 
 "Hello?"
 
-"Congratulations, Anna. Board chair. I always knew you'd reach the pinnacle."
+"Anna. It's Jane."
 
 Jane's voice. Older. Softer than it had been three years ago at their coffee meeting. Still with that edge of absolute certainty.
 
-"Jane. How did you—"
+"What do you want?"
 
-"I keep tabs. Even at sixty-three." A pause. "I wanted to tell you again how proud I am. But also how worried."
+"I heard David is retiring. That the chair position is opening up." A pause. "I wanted to tell you to be careful. And that I'm worried about you."
 
-"I don't need your pride or your worry."
+"I don't need your worry."
 
-"Your soul, Anna. It's in danger. More now than ever. You've reached the top, but you're standing on bones. Jessica's bones. Your humanity's bones."
+"Your soul, Anna. It's in danger. More now than ever. You're so close to the top, but you're standing on bones. Jessica's bones. Your humanity's bones."
 
 "We've had this conversation."
 
@@ -112,9 +114,9 @@ She stood at the window, looking at her reflection in the dark glass. Expensive 
 
 The city sprawled below. Millions of lights. Millions of lives.
 
-She'd conquered it. Climbed to the absolute top. Board chair of one of the most powerful firms in New York.
+She was so close to conquering it. So close to the absolute top. Board chair of one of the most powerful firms in New York.
 
-And she felt nothing.
+And already she felt nothing.
 
 Jane's words echoed. *You're standing on bones.*
 
@@ -130,13 +132,13 @@ Anna looked at herself in the reflection and tried to see the girl she'd been at
 
 That girl was gone.
 
-In her place stood a woman who'd built an empire on blood. Who'd murdered an innocent woman and felt nothing. Who'd sacrificed every relationship that mattered for power that meant nothing.
+In her place stood a woman who'd built an empire on blood. Who'd murdered an innocent woman and felt nothing. Who'd sacrificed every relationship that mattered for power that might still slip away.
 
 Jane had been right about one thing.
 
 Anna had become exactly what Jane had intended. A perfect reflection. A legacy.
 
-A monster with a corner office.
+A monster with a corner office, reaching for the final prize.
 
 The phone rang again. Jane's number.
 
@@ -150,15 +152,15 @@ The only proof that she'd once felt something strongly enough to kill for it. Ev
 
 At least it had been feeling.
 
-Now there was just empty silence. And the view from the top. And the knowledge that she'd traded everything real for everything hollow.
+Now there was just empty silence. And the view from almost-the-top. And the knowledge that she'd traded everything real for everything hollow—and still hadn't quite reached the peak.
 
 Anna looked at her reflection one more time.
 
-*Not a survivor. Not a victor.*
+*Not a survivor. Not a victor. Not yet.*
 
 *Just a murderer who'd built an empire on innocent blood.*
 
-*And there was no redemption for that. No forgiveness. No escape.*
+*Still climbing. Still hungry. Still empty.*
 
 She finished the scotch.
 

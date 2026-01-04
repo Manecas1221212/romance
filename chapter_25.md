@@ -16,7 +16,7 @@ Anna's eyes widened. "What?"
 
 "Why would she do this?"
 
-"I don't know. Professional jealousy? Psychological issues? The board is meeting this afternoon to discuss next steps."
+"I don't know. Professional jealousy? Psychological issues? The board is meeting this afternoon to discuss next steps." He rubbed his temples. "This is a nightmare for the firm. Henderson's name on every news channel, linked to murder. The partners are furious. Sponsors calling. Clients asking questions."
 
 After Tom, Anna called Andrew.
 
@@ -42,6 +42,16 @@ His voice cracked.
 
 "After she'd already been arrested. Very convenient."
 
+There was a long pause. When Andrew spoke again, his voice was different. Smaller.
+
+"And Jessica... Jane manipulated her too. Used her. And now she's dead."
+
+Anna heard it clearly—the grief in his voice. Not just for Mia. For Jessica. The woman he'd been falling for before she died.
+
+"Andrew—"
+
+"I'll call you when I'm ready."
+
 The line went dead.
 
 ---
@@ -51,6 +61,8 @@ The news broke Monday. *Henderson & Associates Board Member Arrested for Murder.
 The story had everything. Corporate intrigue. A respected executive. A drug overdose death. Psychological manipulation.
 
 Jane's face was everywhere. Calm, composed, beautiful. The media ate it up.
+
+Tom called three times that day. His voice tight with barely controlled fury. "This is a disaster. Twenty years of reputation, and now we're a punchline. The partners want blood. Gerald's talking about accelerated succession planning. David's fielding calls from institutional investors who want assurances." He wasn't asking how Anna was. He was managing a crisis.
 
 Anna's phone exploded. Reporters. Colleagues. Friends she hadn't spoken to in years. Everyone wanting the story.
 
@@ -106,11 +118,11 @@ She'd gotten everything she wanted.
 
 Except it came at a cost.
 
-Jessica, dead in her apartment. Innocent. Used.
+Jessica, dead in her apartment. Innocent. Used. Murdered by Anna's own hands.
 
-Mia, dead from fentanyl. Murdered by Jane but mourned by Andrew as if Anna bore responsibility too.
+Mia, dead from fentanyl. Murdered by Jane to break what Anna had built.
 
-Her marriage, shattered beyond repair.
+Her marriage, shattered beyond repair. Andrew still spoke to her like a stranger when he spoke at all. And when he thought she wasn't watching, she caught the grief on his face—not for their marriage, not for what they'd lost, but for Jessica. He still loved her. A dead woman held more of her husband's heart than Anna ever would again.
 
 Her soul—if she'd ever had one—hollowed out.
 

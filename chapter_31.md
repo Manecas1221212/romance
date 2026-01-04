@@ -1,118 +1,154 @@
 # Chapter 31: The Legacy
 
----
+The board chair vote was six weeks away.
 
-Anna served as board chair for eight years.
+Anna had done everything right. Eighteen years of flawless service. Zero scandals. A record that spoke for itself.
 
-Retired at sixty-eight with honors. Legacy intact. Reputation spotless.
-
-She wrote a memoir. *Breaking Glass: A Woman's Journey to the Top.*
-
-It became a bestseller. Women's leadership groups used it as a textbook. MBA programs assigned it.
-
-Young women wrote to her. Called her an inspiration. Asked for advice.
-
-And Anna gave it. Because that's what successful women did. They mentored. They lifted. They passed on knowledge.
-
-She never mentioned Jessica. Never mentioned Jane. Never mentioned the price she'd paid or the bodies she'd walked over.
-
-She just told them to be disciplined. Focused. Willing to sacrifice.
-
-The same advice Jane had given her.
+But she could feel it slipping away.
 
 ---
 
-Sophie visited once a year. Out of duty. They had lunch. Made small talk. Sophie's children—Anna's grandchildren—knew her as the rich grandmother who sent checks and didn't ask questions.
+Henderson & Associates' quarterly board dinner was at The Modern. Private room. Fifteen board members. Spouses optional.
 
-"Do you have regrets?" Sophie asked once, when Anna was seventy-two.
+Anna came alone. As always.
 
-"Everyone has regrets."
+Jason Whitmore sat across the table. Eight years on the board now. Gray temples. Distinguished. Still handsome in that old-money way that had once captivated her at Columbia.
 
-"What's yours?"
+They'd learned to coexist. Professional. Distant. Two people pretending their shared history didn't exist.
 
-Anna thought about Jessica. About Andrew. About the person she'd been at twenty and the monster she'd become at forty-two.
+Anna watched him charm the room. The easy laugh. The perfect anecdotes. The way he made everyone feel included.
 
-"That I won," she said honestly.
-
-Sophie looked confused. "What do you mean?"
-
-"I mean I got everything I wanted. And it wasn't worth what I paid for it."
-
-"Then why did you do it?"
-
-"Because by the time I realized the price, I'd already paid it."
-
-Sophie didn't understand. How could she? She'd chosen differently. Family. Medicine. Balance. All the things Anna had sacrificed.
-
-"Was I a good mother?" Anna asked.
-
-Sophie considered the question seriously. "You were present sometimes. Absent mostly. But you taught me what not to do. I suppose that's valuable."
-
-"I'm sorry."
-
-"For what specifically?"
-
-"For choosing power over you. Over Jake. Over everything that mattered."
-
-"Did you choose it? Or did you just become it?"
-
-Anna didn't have an answer.
+She'd once loved that about him. Before she understood what it masked.
 
 ---
 
-At seventy-five, Anna fell. Broken hip. Hospital. Complications.
+After dinner, Anna excused herself to the restroom.
 
-The end came slowly. Pneumonia. Organ failure. The body shutting down piece by piece.
+The hallway was quiet. Expensive carpet muffled footsteps. She was about to turn the corner when she heard voices from the private alcove.
 
-Sophie and Jake came. Sat with her. Held her hands. Claire came too, the friend who'd never abandoned her, even when she should have.
+Gerald Morrison. Seventy-two. Founding partner's grandson. Old guard.
 
-"We forgive you," Sophie said. "If that matters."
+And Richard Chen. David's nephew. The new generation that was really just the old generation with better suits.
 
-"It matters," Anna whispered.
+"I'm close to retiring now," Gerald was saying. "And I've been thinking about who should take David's chair when he steps down."
 
-But did they forgive her? Or were they just being kind to a dying woman?
+"Anyone in mind?"
 
-Claire squeezed her hand. Said nothing. Her presence was enough—a reminder of the person Anna could have been. Should have been.
+"Jason Whitmore. He's the right guy. The pedigree. The relationships. The vision. You don't take it personally, right?"
 
-And did Jessica forgive her? From wherever the dead went?
+"Never. I'm close to retiring myself." Richard paused. "But what about Anna? She's been working ferociously for this. Eighteen years on the board."
 
-Anna doubted it.
+Gerald laughed. The sound made Anna's blood freeze.
+
+"Anna? No, I wouldn't let a woman close to the seat. Not in my lifetime. Look, between us—chair is real power. The relationships I've built, the decisions that actually matter. Jason understands how this world works. Anna's... tolerated. There's a difference."
+
+"She's effective, though."
+
+"Effective isn't enough. Jason's one of us."
+
+Their voices faded as they walked away.
+
+Anna stood perfectly still. Not breathing. Not moving.
+
+Thirty-five years. Thirty-five years of sacrifice. Of climbing. Of murdering her own humanity to reach the top.
+
+And she was still just *tolerated*.
 
 ---
 
-In her last moments, morphine-clouded and fading, Anna saw them.
+She returned to the table. Smiled. Made conversation. Performed the role of board member with flawless precision.
 
-Mia, smiling. Forgiving.
+Inside, something cold and familiar was crystallizing.
 
-Andrew, aged but warm. Reaching for her hand.
+Jason caught her eye across the table. Raised his glass in a small toast.
 
-And Jessica. Young. Beautiful. Standing in the doorway of an apartment on Perry Street.
+She raised hers back.
 
-"I'm sorry," Anna tried to say. "I'm so sorry."
+*You have no idea what's coming.*
 
-Jessica didn't answer. Just looked at her with those wide, terrified eyes. The last expression she'd worn before Anna had stolen her breath.
+---
 
-Then the darkness came.
+That night, Anna sat in her penthouse with a glass of scotch and her old notebook. The one she'd started all those years ago, documenting the sabotage. The evidence. The suspicions.
 
-And Anna—powerful, successful, ruthless Anna—died in a hospital room, surrounded by her children who barely knew her anymore, and by Claire, the person she should have been but never became.
+She opened a fresh page.
 
-Her obituary called her a trailblazer. An inspiration. A woman who'd broken every barrier.
+*Jason Whitmore*, she wrote. *Assets: Board connections. Old money network. Gerald's endorsement.*
 
-Her tombstone said: *Anna Park. Beloved Mother. Successful Leader.*
+*Vulnerabilities: To be determined.*
 
-It didn't say: *Murderer. Monster. Victim of her own ambition.*
+She thought about Jane. About the fifteen years of careful manipulation. The patience. The precision.
 
-But maybe that was the last lie.
+Jane's only mistake had been getting caught.
 
-The final brick in an empire built on innocent blood and hollow victories.
+Anna wouldn't make that mistake.
 
-A woman who'd won everything that didn't matter and lost everything that did.
+---
 
-The end came.
+The next morning, she called her assistant.
 
-And in the dark, Anna finally found the peace she'd never had in life.
+"I need everything on Jason Whitmore's business dealings for the past decade. Quiet. Off the books. Personal project."
 
-Or maybe just the silence she'd earned.
+"Of course, Ms. Park."
 
-*The End*
+Anna hung up and looked out at the city.
+
+She was sixty years old. No husband. Estranged children. No friends who knew the real her.
+
+What did she have left to lose?
+
+Nothing.
+
+And that made her dangerous.
+
+---
+
+She thought about what Jane had said at their coffee meeting years ago. *You've become exactly what I created. A legacy.*
+
+Jane had been wrong about one thing.
+
+Anna wasn't just Jane's legacy.
+
+She was her improvement.
+
+Jane had orchestrated destruction and gotten caught. Had spent eighteen years in prison. Had found God and regret and all those soft, useless things.
+
+Anna would orchestrate destruction and succeed.
+
+*The only lesson that matters,* she wrote in her notebook, *is the one Jane failed to learn: Don't. Get. Caught.*
+
+She closed the notebook. Finished her scotch.
+
+Outside, the city hummed with millions of lives. People climbing. Scheming. Betraying.
+
+None of them would ever know they were watching history repeat itself.
+
+Jane had created a monster.
+
+That monster had learned.
+
+And now Jason Whitmore—the man who'd once tried to control a twenty-year-old Anna Bennett, the man who thought he could take what she'd spent thirty-five years bleeding for—was about to discover what she'd become.
+
+Anna smiled.
+
+For the first time in years, she felt something.
+
+Not joy. Not peace.
+
+Purpose.
+
+And that would have to be enough.
+
+---
+
+She picked up her phone. Thought about calling Claire. Put it down.
+
+Some bridges were already burned.
+
+Better to keep it that way.
+
+Anna walked to her desk and began to plan.
+
+The cycle was starting again.
+
+And this time, she would be the one pulling the strings.
 

@@ -58,7 +58,7 @@ Andrew had died two years ago. Heart attack. Sudden. Anna had gone to the funera
 
 "He never stopped loving you," Catherine had said. "Even after everything. He never mentioned your name, but I saw in his face his heart was not with me."
 
-Anna knew the truth Catherine didn't. Andrew had never stopped loving her, but she wasn't the woman he'd loved. That was Jessica. The woman Anna had murdered. The ghost that had haunted Andrew until his last breath.
+Anna knew the truth Catherine didn't. Andrew had never stopped loving someone, but it wasn't Anna he pined for. It was Jessica. The woman Anna had murdered. The ghost that had haunted Andrew until his last breath.
 
 ---
 

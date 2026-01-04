@@ -50,15 +50,15 @@ Jane sat across from her in an orange jumpsuit. No makeup. Hair pulled back. Sti
 
 Anna's face stayed blank. "It was sent anonymously."
 
-"Was it? How convenient. A mysterious source delivering exactly what you needed to destroy me." Jane's smile was cold. "You broke into my apartment. Wednesday morning. 6:15 AM. I have a security camera you didn't find. Saw you pick the lock. Saw you go through my files."
+"Was it? How convenient. A mysterious source delivering exactly what you needed to destroy me." Jane's smile was cold. "An anonymous whistleblower who happened to know exactly where I kept my files. Who knew about my locked drawers, my backup drives. Who knew my gym schedule." She tilted her head. "Wednesday mornings at six. Ninety minutes. Like clockwork."
 
-Anna's stomach dropped. "That's ridiculous."
+Anna's stomach dropped. "I don't know what you're implying."
 
-"Is it? I had the footage." Jane leaned back. "Past tense. There was a power surge two weeks ago. Corrupted the backup drive. I lost six months of recordings." She smiled thinly. "Ironic, isn't it? All my planning, all my surveillance—and a hardware failure saves you."
+"Don't you?" Jane's eyes bored into hers. "I don't have proof. But I'm not stupid, Anna. And neither are you."
 
-Anna's heart was pounding, but she kept her face neutral. "Then you have nothing."
+Anna's heart was pounding, but she kept her face neutral. "Someone at Henderson must have—"
 
-"Exactly. Lucky you." Jane's eyes were cold. "But I want you to understand something. I created you. Fifteen years ago, I brought you to Henderson. Mentored you. Guided your career. Made you who you are."
+"Please." Jane waved dismissively. "It doesn't matter now. The evidence is real. My lawyers can't argue it was planted without proving how, and I won't drag this out with speculation. But I want you to understand something. I created you. Fifteen years ago, I brought you to Henderson. Mentored you. Guided your career. Made you who you are."
 
 "By sabotaging me? By killing Mia?"
 
@@ -116,9 +116,9 @@ The words hit like bullets. But Anna didn't answer.
 
 She walked to the door. Stopped.
 
-"Even without the footage," she said, "you could tell your lawyers about the break-in. Try to discredit the evidence."
+"You could tell your lawyers you suspect how the evidence was found. Try to discredit it."
 
-Jane smiled. "And risk you explaining how you found proof I murdered your sister-in-law? No. I'll take my chances with the jury." She leaned forward. "Besides, watching you live with your choices—whatever they were—is more satisfying than revenge. You're going to climb to the top, Anna. Board seat, power, success. And every single day, you'll know what it cost. Who it cost."
+Jane smiled. "With what? A theory? Suspicion isn't proof, Anna. You know that better than anyone." She leaned forward. "Besides, watching you live with your choices—whatever they were—is more satisfying than revenge. You're going to climb to the top, Anna. Board seat, power, success. And every single day, you'll know what it cost. Who it cost."
 
 "You're going to prison."
 
@@ -134,7 +134,7 @@ Anna testified. Told her story. Cried appropriately. Showed devastation.
 
 The jury deliberated for three days.
 
-Guilty. First-degree murder. Twenty-five years to life.
+Guilty. First-degree murder. Fifteen years to life.
 
 Jane showed no emotion when the verdict was read.
 

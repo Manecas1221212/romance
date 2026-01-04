@@ -96,8 +96,6 @@ She sat in the car and thought about how many lives she'd destroyed in service o
 
 Jessica. Dead.
 
-Mia. Dead.
-
 Andrew. Broken.
 
 Sophie and Jake. Damaged.

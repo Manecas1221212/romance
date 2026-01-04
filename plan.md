@@ -312,20 +312,19 @@
 - Three weeks later: given Anna as been promoted a couple of months now and that there is a vacancie in the board, everything seems set to have Anna reaching for the sky.
 - Anna wins everything she wanted
 - But realizes cost: Jessica dead (innocent), Mia dead, marriage shattered (Andrew is still distant, clearly he still has feelings for Jessica), soul hollowed out
-- Anna deletes encrypted folder with Jessica murder plan on hidden partition
+
 
 **Chapter 26: Jane's Defense**
 - Preliminary hearing, Jane arrives composed
 - Jane's eyes find Anna's across courtroom - **smiles**
 - Jane's lawyer approaches: Jane wants to speak privately
-- **Jail meeting:** Jane reveals she has security camera footage of Anna breaking in, but that, lucky Anna, she had lost the fotage by pure mistake ( you can make something realistic up here)
-- Jane: *"I created you. Fifteen years of mentorship. I showed you what power really costs."*
+- **Jail meeting:** Jane: *"I created you. Fifteen years of mentorship. I showed you what power really costs."*
 - Jane admits she was always afraid Anna would take her place because her life was more stable, while herself was always having casual one night stands with people from the office
 - **Jane tells Anna she is quite sure she killed Jessica:** *"You murdered an innocent woman. That's on you."* Why does she believe this ? she does not know for sure, but she knows that she had been trying to get Anna to believe Jessica was the one sabotaging her, and all of the sudden a woman that is super happy dies of suicide ? She tries to get Anna to confess, but Anna does not. This is a very tense moment of conversation. 
 - Jane: *"I want you to know—you're just like me. The only difference is I owned it."*
 - Jane asks about the control Anna felt suffocating Jessica
-- Jane explains: *"Even though I can't have yo ulocked up, watching you become who you really are is more satisfying than revenge."*
-- **Trial:** Jury convicts Jane, 25 years to life
+- Jane explains: *"Even though I can't have you locked up, watching you become who you really are is more satisfying than revenge."*
+- **Trial:** Jury convicts Jane, 15 years to life
 - As Jane is led away, she mouths: **"Welcome to the board."**
 
 ---
@@ -354,17 +353,17 @@
 - Andrew remarries Catherine a year later
 - Sophie (15) talks about applying to colleges, wants medicine: *"You have everything you wanted and you're still empty."*
 - Jake (9) visits every other weekend out of obligation, they run out of things to say
-- Jake mentions: *"Dad cries about Jessica sometimes. He loved her."*
+- Jake mentions: *"Dad still cries sometimes."*
 - Anna realizes Andrew still grieves the woman she murdered
 - **Unknown text from Jane (from prison):** *"Congratulations on the board. I always knew you'd make it. —J"*
 - Anna doesn't reply but doesn't delete it
 - Dreams of Jessica's face - not with guilt, just cold recognition
 
 **Chapter 29: Fifteen Years Later**
-- Anna is 57, young analyst Emma asks for mentorship
-- Emma: *"How did you balance everything?"*
-- Anna could warn her, but instead says: *"Yes. It was worth it."*
-- Emma: *"I'll do whatever it takes."*
+- Anna is 57, young analyst Brian asks for mentorship
+- Brian: *"How did you balance everything?"*
+- Anna could warn him, but instead says: *"Yes. It was worth it."*
+- Brian: *"I'll do whatever it takes."*
 - Anna: *"Be careful with what you're willing to do."*
 - Photos on desk: Sophie (30, surgeon, married, 2 kids Anna barely knows), Jake (24, teaching art)
 - Andrew died 2 years ago (heart attack), Catherine was gracious
@@ -382,25 +381,14 @@
 - Board offers her **chair position** (the absolute top)
 - Patricia raises concerns about "history with Jane"
 - Anna: *"My record speaks for itself. Zero scandals."*
-- Wins by single vote, becomes board chair at 60
 - Jane calls Anna, still trying to get her to stat going to church to confess. Anna hangs up
 - Sees herself in mirror and starts doubting if this was actually the life she wanted: not survivor, just murderer who built empire on innocent blood
 
 **Chapter 31: The Legacy**
-- Anna serves as board chair for 8 years, retires at 68
-- **Writes bestselling memoir:** *Breaking Glass: A Woman's Journey to the Top*
-- Becomes inspiration to young women, gives mentorship (same advices Jane once gave her)
-- Never mentions Jessica, Jane, or bodies she walked over
-- Sophie visits once/year out of duty
-- Sophie asks: *"Do you have regrets?"*
-- Anna: *"That I won. I got everything I wanted. And it wasn't worth what I paid for it."*
-- At 75, Anna falls, broken hip, hospital, dying
-- Sophie and Jake say: *"We forgive you."*
-- Final moments: sees Mia (forgiving), Andrew (warm), **Jessica (terrified, as she died)**
-- Anna tries to apologize, Jessica doesn't answer
-- Dies at 75 surrounded by her children who barely saw her anymore and by the person she should have been, Claire
-- Obituary calls her trailblazer, tombstone says "Beloved Mother, Successful Leader"
-- Doesn't say: "Murderer. Monster. Victim of her own ambition."
-- **"A woman who'd won everything that didn't matter and lost everything that did."**
+- So Anna is now 60, no family, no love, alone. What could she want, out of pure habit she is aiming for the board chair. She doesn't even know why anymore, it is just blind ambition.
+- Jason had been a part of the board for 8 years now. And Jane overhears the board set guy saying to another board member "I'm close to retring now, and I was thinking about Jason for my place, I think he's the right guy, you ont take it personally right ? " - "never, I'm close to retiring myself, but what about Anna, she's been working ferociously" - "Anna ?! No, I would n't let a woman close to the seat, not in my lifetime"
+- Anna thinks to herself that it's time to do everything she learned from Jane, except being caught
+- Leave the end open for the reader to assume that Anna will now do to Jason what Jane had donne to her all those years ago.
+
 
 ---
