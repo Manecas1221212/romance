@@ -2,9 +2,7 @@
 
 Sunday came with the same false calm as a Sunday morning in Manhattan always did—brunch crowds, clean sidewalks, the city pretending it wasn’t a machine built to grind people down.
 
-Anna had chosen the restaurant herself. A French place in SoHo with white tablecloths and polished cutlery, the kind of room where everyone spoke just softly enough to sound important. Neutral ground. Public enough to keep Jane on her best behavior. Expensive enough that Claire wouldn’t feel like she’d been dragged into something cheap.
-
-And, if Anna was honest, far enough from her apartment that she couldn’t impulse-cancel without hating herself for it.
+Anna had chosen the restaurant herself. A French place in SoHo with white tablecloths and polished cutlery, the kind of room where everyone spoke just softly enough to sound important. Neutral ground. Public enough to keep Jane on her best behavior and expensive enough that she wouldn’t feel like she’d been dragged into something cheap.
 
 Claire arrived first. She hugged Anna quickly, like she didn’t want to make a scene out of concern.
 
@@ -12,59 +10,63 @@ Claire arrived first. She hugged Anna quickly, like she didn’t want to make a 
 
 Anna smiled like a woman who had slept. "Fine."
 
-Claire’s eyes narrowed, unconvinced, but she didn’t press. "So. Jane."
+They were led to a back corner table—quiet, good sightlines, neutral enough to feel like a negotiation room dressed up as brunch.
 
-"Just lunch," Anna said lightly. "I wanted you there. It’ll be… normal."
+Claire paused with her hand on the chair. "Should we sit?"
 
-Claire gave her a look that said *nothing about this is normal,* then nodded anyway.
+Anna’s smile stayed in place, but her stomach tightened. "We’re still waiting for Jane."
 
-Jane was already seated when they were led in—back corner, perfect sightline to the room, her phone face-down beside her water glass like she had nothing to prove. She stood when she saw them, expression warm in a way that would have been disarming if Anna hadn’t spent fifteen years learning that Jane’s warmth was always deliberate.
+For a second, Claire went numb, the way people did when they realized they were about to step into something they hadn’t agreed to. Her voice dropped. "You didn’t mention what I told you yesterday, right?"
 
-"Claire," Jane said, extending a hand. "Finally. Anna’s other anchor."
+"No," Anna said quickly. "Don’t worry. I just need a few hours with the Columbia girls. I’m trying to feel like myself again—like I did back then."
 
-Claire shook her hand. "Nice to meet you."
+Claire held Anna’s gaze a beat longer than normal, measuring the lie and the fear underneath it. Then she sat.
 
-"Likewise," Jane said, and her smile widened just enough to be read as generosity. "I’ve heard so much. You and Anna survived Columbia together, didn’t you?"
+Jane arrived a few minutes later, perfectly timed—coat neat, expression warm in a way that would have been disarming if Anna hadn’t spent fifteen years learning that Jane’s warmth was always deliberate. She slid into the corner with the practiced ease of someone who assumed the room arranged itself around her.
 
-Claire glanced at Anna, amused. "We did."
+"Claire," Jane said, her smile warm and easy—too easy, given what she'd confided just months before. "Good to see you again."
 
-They sat. Menus opened. Water poured. The waiter hovered at the right moments, then disappeared.
+Claire's handshake was brief, careful. "You too."
 
-Jane made small talk first—Claire’s flight, the cold snap, a comment about the neighborhood that made it sound like Jane owned the city instead of merely living in it. For ten minutes, it almost felt like what Anna had promised it would be: normal.
+Jane's gaze held hers a beat too long, as if checking whether Claire had kept her silence. Then the moment passed, and Jane slid into mentor mode like nothing had happened. "It's been too long since all three of us were in the same room. The Columbia girls, back together."
+
+Claire glanced at Anna but said nothing.
+
+Menus opened. Water poured. The waiter hovered at the right moments, then disappeared.
+
+Jane made small talk first—Claire’s traveling, the cold snap, a comment about the neighborhood that made it sound like Jane owned the city instead of merely living in it. For ten minutes, it almost felt like what Anna had promised it would be: normal.
 
 Then Jane turned her attention fully to Claire, like a spotlight tightening.
 
-"Tell me about your work," Jane said. "Anna said you’re in strategy."
+"So how's work?" Jane asked lightly. "Still at that little pharma company?"
 
-"MedTech," Claire replied. "Market expansion, product roadmaps, commercialization. Mostly for device companies."
+"Same one," Claire said. "Twelve years now."
 
-"Mm." Jane nodded as if she were tasting the words. "That sounds… steady. Useful work. The kind of career where you can have a life alongside it."
+"Mm." Jane nodded as if tasting the words. "And the salary? Keeping up with inflation?"
 
-Claire’s smile held. "I have a life because I built one."
+Claire's smile tightened. "We're doing fine."
 
-"Of course," Jane said, voice smooth. "That’s what I mean. Some people choose the structure that lets them sleep at night."
+"I'm sure you are," Jane said, voice smooth. "It's nice that you found a place with balance. Most people in this industry burn out chasing the next rung, but you found something… gentler. The kind of firm where you can actually have a life alongside it."
+
+Claire's eyes flicked, quick, assessing. "I have a life because I built one."
+
+"Of course," Jane said. "That's what I mean. Some people choose the structure that lets them sleep at night."
 
 Anna felt it—the small shift, the blade hidden under the compliment.
 
-Jane continued, conversational. "Marriage?"
+Jane continued, conversational. "How are the kids adjusting to you traveling so much? It must be hard on them."
 
-Claire’s eyes flicked, quick, assessing. "Yes."
+Claire's fork paused. "They're fine. We make it work."
 
-"Kids?"
-
-"No."
-
-"Pets, then," Jane said, as if she were joking, as if she weren’t cataloguing. "A golden retriever? A kitchen renovation? The joys of being… comfortable."
-
-Claire’s fork paused above her plate.
+"I'm sure," Jane said, as if she were being generous. "The joys of being… comfortable."
 
 Anna set her own fork down carefully. "Jane."
 
 Jane didn’t look at Anna. Her gaze stayed on Claire, polite, unblinking. "I’m not judging, Claire. I admire it. Most people crave the safety of a smaller life. It takes a certain temperament to be satisfied with that."
 
-Claire’s voice stayed even, but her cheeks flushed. "I’m a senior VP. I run a team. I’ve built a consultancy from nothing."
+Claire's voice stayed even, but her cheeks flushed. "I manage a team. I've been there twelve years. People respect me."
 
-"How wonderful," Jane said, and her tone made it sound like *how adorable.* "In your world, that’s real power."
+"I'm sure they do," Jane said, and her tone made it sound like *how adorable.* "In your world, that's real power."
 
 Silence tightened around the table.
 
@@ -74,25 +76,19 @@ Jane finally glanced at Anna, as if to include her. "Anna and I live in a differ
 
 Anna’s stomach turned. Jane could make cruelty sound like meteorology.
 
-Claire pushed her chair back an inch. "Did you invite me here to insult me?"
+Claire pushed her chair back an inch. "Funny. You weren't this condescending when you needed a shoulder to cry on."
 
-"I invited you here," Jane said, unruffled, "because I wanted to see what kind of person Anna keeps close when she’s under pressure."
+Jane's expression flickered—Loss of composure? Anger? gone before Anna could read it. Anna's heart thudded. She didn't want Jane to know that Claire had told her about the breakdown. That was still her edge.
 
-Anna’s heart thudded. That was the truth, and Jane had said it like it was a compliment.
+"Claire—" Anna kept her voice steady, careful.
 
-Claire looked at Anna. "Are you hearing this?"
-
-Anna forced her face to stay calm. "Claire—"
-
-"No," Claire said, standing. The movement was controlled, but her voice finally cracked with anger. "I’m not going to sit here while she narrates my life like it’s a consolation prize."
-
-She turned to Anna, eyes bright. "Call me when you’re done letting people test your loyalty like it’s a business exercise."
+Claire turned to her. "Are you hearing this?" She stood, controlled but final. "Don't invite me to anything that involves her. Ever."
 
 Then she walked out.
 
 Jane watched her go with the mild interest of someone observing weather.
 
-When the door closed, Jane lifted her napkin and dabbed at the corner of her mouth, calm as ever.
+When the door closed, Jane lifted her napkin and dabbed at the corner of her mouth, calm as ever. She didn't acknowledge Claire's accusation—acknowledging it would make it real.
 
 "You didn’t stop it," Jane said.
 
@@ -114,43 +110,25 @@ Jane’s smile was faint. "It’s human nature."
 
 Anna leaned back, trying to find the line between mentorship and threat. With Jane, the line always moved.
 
-"You brought up the board," Anna said carefully.
-
-Jane’s eyes sharpened, pleased. "Because you’re thinking about it."
-
-Anna didn’t answer.
-
-Jane took her silence as confirmation. "SVP is a doorway. The board is a throne. And you don’t sit there by collecting people who need you to stay soft."
-
-Anna’s hands clenched under the table. "Is that what you did? Collected people who kept you hard?"
-
-Jane’s gaze didn’t flicker. "I never married. I never had children. I didn’t build my life around anyone else’s needs. Was it lonely? Sometimes." She let the word hang for half a second, then smoothed it away. "Was it worth it? Absolutely."
-
-Anna heard Claire’s voice from yesterday—*You’re not alone*—and felt, suddenly, how expertly Jane was trying to make that untrue.
-
-"You think I can’t have it all," Anna said.
-
-"I think you’re trying to," Jane replied. "And I think something always breaks. Usually, it’s the person who believes she’s the exception."
-
-Anna met her eyes. "Is that advice?"
-
-Jane tilted her head. "It’s a reality check."
-
 The waiter appeared with the check, as if summoned by power.
 
 Jane signed without looking. Then she stood, slid her chair in neatly, and picked up her coat.
 
-"Text Claire an apology," Jane said, as if she were generous. "If it makes you feel better. But don’t confuse comfort with loyalty. And don’t confuse loyalty with strategy."
+"Text Claire an apology," Jane said, as if she were generous. "Go ahead, patch things up. But Claire will always love the version of you that stays small enough for her to understand."
 
 She left.
 
 Anna sat alone with untouched food and a cold, sick certainty settling into place.
 
-She had invited Jane to lunch to observe her.
+She had invited Jane to lunch to observe her. And she had. Jane had slipped. The attack on Claire was too obvious, too deliberate—a clumsy attempt to drive a wedge, maybe even bait Anna into siding with Claire and revealing her hand.
 
-Jane had used the lunch to observe *her.*
+Anna hadn't taken the bait. She loved Claire. That was real.
 
-Outside, the afternoon light on SoHo made the city look clean. Anna walked in it like she was moving through glass.
+But Jane—Jane was ice. The kind of person who could show up at Claire's door in tears, accept her kindness, her comfort, her silence—and then turn around weeks later and gut her in public like it cost nothing. If Jane could do that to someone who had only ever been gentle with her, what would she do to Anna? Especially if she saw Anna as a threat.
+
+Jane was now suspect number one.
+
+Anna left the restaurant. Outside, the afternoon light on SoHo made the city look clean. Anna walked in it like she was moving through glass.
 
 She texted Claire.
 

@@ -70,13 +70,14 @@
 ### Claire
 **Role:** Anna's best friend from Columbia
 **Age:** Same age as Anna (20 → 75+)
-**Occupation:** Finance major → Senior VP in MedTech strategy (medical device companies market expansion), runs consultancy with team of 30
+**Occupation:** Finance major → Mid-level manager at a small pharma company (regulatory affairs, product lifecycle)
 **Physical Description:** Natural blonde hair in practical bob, warm laugh
 **Key Traits:** 
 - Loyal friend who never abandons Anna despite everything
 - The moral conscience of the story
 - Has "comfortable" balanced life - stable marriage, becomes grandmother
 - Chosen family and balance over pure ambition
+- Works reasonable hours at a modest firm, prioritized life over career climb
 **Key Role:** Serves as foil to Anna - shows what Anna could have been
 **Arc:** Remains Anna's friend through everything, ultimately present at Anna's deathbed
 
