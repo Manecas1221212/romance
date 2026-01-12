@@ -4,17 +4,13 @@ The preliminary hearing was a media circus.
 
 Jane arrived in expensive tailored suits. Hair perfect. Makeup understated. She looked like a victim, not a monster.
 
-Her lawyers argued the evidence was circumstantial. The fentanyl receipt could have been forged. The communications could have been manufactured. The testimony from the dealer was from someone facing his own charges—unreliable.
+Her lawyers argued the evidence was circumstantial. The fentanyl receipt could have been forged. The communications could have been manufactured. The testimony from the dealer was from someone facing his own charges — unreliable.
 
 Anna sat in the gallery. Watched. Listened.
 
-Jane's eyes found hers across the courtroom. Held her gaze.
+Jane's eyes found hers across the courtroom. Held her gaze. And smiled. Not a smile of fear. Not a smile of desperation. A smile of recognition. Of satisfaction.
 
-And smiled.
-
-Anna's blood went cold.
-
----
+Anna's blood went cold. Her hands tightened on the bench. The courtroom faded — the judge's voice, the lawyers' arguments, the reporters scribbling notes. All of it disappeared until there was only Jane's eyes locked on hers, that knowing smile, and the terrible understanding that Jane wasn't afraid. She was proud.
 
 After the hearing, Jane's lawyer approached Anna in the hallway.
 
@@ -24,15 +20,13 @@ After the hearing, Jane's lawyer approached Anna in the hallway.
 
 "She says she has information you'd want to hear. About Jessica Hall."
 
-Anna's heart stopped.
+Anna's heart stopped. The hallway suddenly felt too small, too bright. She could hear her own pulse in her ears.
 
 "What about Jessica?"
 
-"She'll only discuss it with you. Directly."
+"I have no idea. She'll only discuss it with you. Directly."
 
----
-
-They arranged a meeting at the jail. Anna's lawyer advised against it. Andrew said it was insane.
+They arranged a meeting at the jail. Anna didn't tell Andrew what Jane's lawyer had said about Jessica. She just told him Jane wanted to talk. Andrew advised against it. Said it was insane.
 
 Anna went anyway.
 
@@ -46,49 +40,62 @@ Jane sat across from her in an orange jumpsuit. No makeup. Hair pulled back. Sti
 
 "You killed Mia. You destroyed my career. You have nothing I want to hear."
 
-"Don't I?" Jane leaned forward. "Tell me, Anna—how did you get that evidence?"
+"Don't I? Why are yo uhere then?" Jane leaned forward. "How did you get that evidence?"
 
 Anna's face stayed blank. "It was sent anonymously."
 
-"Was it? How convenient. A mysterious source delivering exactly what you needed to destroy me." Jane's smile was cold. "An anonymous whistleblower who happened to know exactly where I kept my files. Who knew about my locked drawers, my backup drives. Who knew my gym schedule." She tilted her head. "Wednesday mornings at six. Ninety minutes. Like clockwork."
+"Convenient." Jane's smile was cold. "An anonymous whistleblower who knew exactly where I kept my files. My locked drawers. My backup drives. My gym schedule — Wednesday mornings at six. Ninety minutes. Like clockwork."
 
-Anna's stomach dropped. "I don't know what you're implying."
+Anna's stomach dropped. She could feel the metal chair against her back, the guard watching from the corner. "I don't know what you're implying."
 
-"Don't you?" Jane's eyes bored into hers. "I don't have proof. But I'm not stupid, Anna. And neither are you."
+"Don't you?" Jane's eyes bored into hers. "I don't have proof. But I'm not stupid. And neither are you."
 
-Anna's heart was pounding, but she kept her face neutral. "Someone at Henderson must have—"
+Anna's heart hammered, but she kept her face neutral. "Someone at Henderson—"
 
-"Please." Jane waved dismissively. "It doesn't matter now. The evidence is real. My lawyers can't argue it was planted without proving how, and I won't drag this out with speculation. But I want you to understand something. I created you. Fifteen years ago, I brought you to Henderson. Mentored you. Guided your career. Made you who you are."
+"Please." Jane waved dismissively. "It doesn't matter. The evidence is real. My lawyers can't argue it was planted without proof. But I want you to understand something." She leaned closer, voice dropping. "I created you. Twenty years ago, I brought you to Henderson. Mentored you. Made you who you are."
 
 "By sabotaging me? By killing Mia?"
 
-"By showing you what power really costs." Jane leaned forward, eyes glittering. "Tell me something, Anna. Jessica Hall. Young, happy, excited about her career. And then—suicide? Right after you thought she was sleeping with Andrew? Right when you needed her gone?"
+"By showing you what power really costs." Jane leaned forward, eyes glittering. "Tell me something, Anna. Jessica Hall. She was young, happy, excited about her career. And then, out of the blue — suicide? Right after you thought she was sleeping with Andrew? Right when you needed her gone?"
 
-Anna's face stayed blank. "Jessica was struggling. The police ruled it suicide."
+Anna's face stayed blank. "Jessica was struggling. There was a whole investigation, remember? The police ruled it suicide."
 
 "Did they?" Jane's smile was knowing. "Or did they just not find evidence? There's a difference. A woman who sends cheerful texts about work projects one day doesn't usually hang herself the next. Unless someone helps her along."
 
 "That's a disgusting accusation."
 
-"Is it an accusation? Or an observation?" Jane tilted her head. "You tracked Andrew obsessively. You documented everything. You were spiraling, losing control. And then Jessica dies, and suddenly all the sabotage stops. Convenient, isn't it?"
+"Is it an accusation? Or an observation?" Jane tilted her head. "You tracked Andrew obsessively. You documented everything. You were spiraling, losing control. I did everything to lead your suspicions toward Jessica, and then she dies. Convenient, isn't it?"
 
 "I didn't kill Jessica," Anna said flatly.
 
-"No?" Jane's eyes searched hers. "You expect me to believe that? After I spent months pushing you to your breaking point? I orchestrated that affair, Anna. I encouraged Jessica to reach out to Andrew when he was vulnerable. I wanted you to feel threatened. I wanted to see what you'd do when you had no other options."
+"No?" Jane's eyes searched hers. "You expect me to believe that? After I spent months pushing you to your breaking point?"
 
-Anna felt sick. "You wanted me to—"
+She paused. Let the silence stretch. Then: "I orchestrated that affair, Anna."
 
-"I wanted to see who you really were. What you were capable of." Jane leaned back. "And you showed me. Whether you admit it or not."
+The words hit like a physical blow. Anna's breath caught.
+
+"I encouraged Jessica to reach out to Andrew when he was vulnerable. After Mia's death. When he was grieving, lost, needing someone to talk to. I suggested she reach out. Be supportive. Be there for him." Jane's voice was matter-of-fact. "I watched you track his phone. Read his messages. I watched you spiral. And I wanted to see what you'd do when you had no other options."
+
+Anna felt sick. The room tilted. "You wanted me to—"
+
+"I wanted to see who you really were. What you were capable of." Jane leaned back, studying Anna's face. "And you showed me. Whether you admit it or not."
 
 Anna's hands clenched under the table. "I. Didn't. Kill. Her."
 
 Jane studied her for a long moment. Then smiled. "Keep telling yourself that. But we both know the truth, don't we?"
 
 The silence stretched between them.
+A feverish chill ran down Anna's spine. Her vision swam; she felt seconds from fainting. Did Jane have proof she’d killed Jessica? If she did, nothing stood in her way — nothing to stop her from turning Anna in and tearing down everything Anna had fought to protect.
 
-Finally, Anna asked: "What do you want from me?"
+Anna opened her mouth, but no sound came out. She couldn’t tell whether she’d vomit or black out first. Her thoughts spiraled, too fast to catch. If Jane had evidence, then what? Have her silenced in jail — how, with no contacts and no time? Run? Canada? Mexico? Which border was closer? Or was it already over — had Jane already talked?
 
-"I want you to understand what I was teaching you. That power requires sacrifice. That to get to the top, you have to be willing to do terrible things. Whether or not you killed Jessica Hall, you're learning that lesson now."
+One thing was clear. Jane was enjoying this. She was baiting her, the same way she always had. Careless enough to get caught, yet somehow still in control. Even behind bars, Jane held the advantage. 
+
+Anna wiped the sweat from her palms and forced herself to breathe. When she finally spoke, her voice barely held steady.
+
+"What do you want from me?" The question broke from her like a cry for help.
+
+"I want you to understand what I was teaching you. Power demands sacrifice. To reach the top, you have to be willing to do terrible things. You’re learning that now." Jane’s eyes were sharp, mocking, savoring Anna’s pain.
 
 "You're insane."
 
@@ -100,25 +107,33 @@ Finally, Anna asked: "What do you want from me?"
 
 "We're nothing alike."
 
-"Aren't we?" Jane's expression shifted—something raw flickering beneath the control. "You want to know why I really did this? Why I destroyed you? Because I was terrified. For fifteen years, I watched you have everything I couldn't. The stable marriage. The children. The perfect life that made you seem... whole. While I was having casual one-night stands with whoever caught my eye at the office Christmas party. Empty. Alone."
+"Aren't we?" Jane's expression shifted—something raw flickering beneath the control. "You want to know why I really did this? Because I was terrified. For twenty years, I watched you have everything I couldn't. The stable marriage. The children. The perfect life that made you seem... whole. While I was having one-night stands with interns. Empty. Alone."
 
-She leaned forward. "I told myself I chose this. That I sacrificed personal life for power. But watching you—you were going to have both. The board seat and the family. You were going to prove I didn't have to give up everything. That my sacrifices were... unnecessary."
+She leaned forward. "I told myself I chose this. That I sacrificed personal life for power. But watching you—you were going to have both. The board seat and the family. You were going to prove my sacrifices were unnecessary."
 
 Anna stared. "So you destroyed me because I made you feel inadequate?"
 
-"I destroyed you because you were about to make me irrelevant. And I couldn't have that." Jane's smile returned, cold. "But here's the thing—whatever you did or didn't do to Jessica, we both know what it takes to get rid of a threat. I killed Mia to push you toward your potential. You... well. The timing speaks for itself."
+"I destroyed you because you were about to make me irrelevant." Jane's smile returned, cold. "But here's the thing—whatever you did or didn't do to Jessica, we both know what it takes to eliminate a threat. I killed Mia to push you toward your potential. You... well. The timing speaks for itself."
 
 Anna stood. "You're making assumptions."
 
 "Am I?" Jane's eyes gleamed. "Tell me, Anna—when you confronted Jessica that night, if you did... did you feel powerful? In control? Finally taking back what was yours?"
 
-The words hit like bullets. But Anna didn't answer.
+The words hit like bullets. Anna could feel every eye in the room—the guard, the other visitors, Jane's lawyer waiting outside. She could feel her own heartbeat, too fast, too loud.
+
+"Did you plan it?" Jane's voice was soft, almost gentle. "Or was it impulse? Did you go there meaning to talk, and then... something snapped?"
+
+Anna's hand was on the door handle. She could leave. Should leave.
+
+"Or maybe," Jane continued, "you didn't go there at all. Maybe you're telling the truth. But we both know what you're capable of now, don't we? What I taught you."
+
+Anna didn't answer. Couldn't answer.
 
 She walked to the door. Stopped.
 
 "You could tell your lawyers you suspect how the evidence was found. Try to discredit it."
 
-Jane smiled. "With what? A theory? Suspicion isn't proof, Anna. You know that better than anyone." She leaned forward. "Besides, watching you live with your choices—whatever they were—is more satisfying than revenge. You're going to climb to the top, Anna. Board seat, power, success. And every single day, you'll know what it cost. Who it cost."
+Jane smiled. "With what? A theory? Suspicion isn't proof. You know that better than anyone." She leaned forward. "Besides, watching you live with your choices—whatever they were—is more satisfying than revenge. You're going to climb to the top. Board seat, power, success. And every single day, you'll know what it cost. Who it cost."
 
 "You're going to prison."
 
@@ -136,15 +151,18 @@ The jury deliberated for three days.
 
 Guilty. First-degree murder. Fifteen years to life.
 
-Jane showed no emotion when the verdict was read.
+Jane showed no emotion when the verdict was read. No flinch. No surprise. Nothing.
 
 As they led her away, she looked at Anna one last time.
 
 Mouthed: *Welcome to the board.*
 
-And Anna knew—Jane had planned this too. Knew she'd be convicted. Knew her arrest would create the opening Anna needed.
+Anna felt the words like a physical blow. The courtroom was packed—reporters, lawyers, family members, curious onlookers. But in that moment, it felt like just the two of them. Jane being led away in handcuffs. Anna standing in the gallery, frozen.
 
-Had sacrificed herself to complete Anna's education.
+And Anna knew—Jane had planned this too. Knew she'd be convicted. Knew her arrest would create the opening Anna needed. Had sacrificed herself to complete Anna's education.
 
 The most terrifying mentorship Anna had ever received.
 
+She walked out of the courthouse into the blinding sunlight, reporters shouting questions, cameras flashing. But all she could hear was Jane's voice in her head: *Welcome to the board.*
+
+And she knew—she'd earned it. Every step of the way.
