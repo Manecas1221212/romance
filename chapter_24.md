@@ -10,7 +10,7 @@ She started with Andrew.
 
 "I need to tell you something," she said. They were in the apartment. Kids at school. Forced proximity in the ruins of their marriage.
 
-Andrew looked wary. "What."
+Andrew looked wary. "What?"
 
 "Jane van Moore killed your sister."
 
@@ -46,10 +46,6 @@ Andrew stood. Paced. Looked at the evidence again.
 
 "And you'll be arrested for breaking and entering. Possibly prosecuted."
 
-"I know."
-
-"And then they'll dig into everything. Including Jessica's death. Including our affair. Including all of it."
-
 Anna met his eyes. "I know."
 
 They sat in silence.
@@ -65,8 +61,6 @@ It could work.
 "We'd have to be convincing," Anna said.
 
 "We're both good at lying," Andrew said bitterly. "We've had practice."
-
----
 
 They made a plan.
 
@@ -84,9 +78,7 @@ It also meant lying to police. Obstruction. Conspiracy.
 
 But compared to murder?
 
-Anna could live with it.
-
----
+Andrew could live with it. He'd rationalize it later—necessary evil, justice served, ends justifying means. But Anna? Anna had crossed that line so long ago she couldn't even see it anymore.
 
 They spent Tuesday night preparing. Andrew printed the documents on a library computer. Anna typed the cover letter at a different library. They wore gloves. Used generic envelopes.
 
@@ -100,7 +92,7 @@ Anna explained. The sabotage that had been happening for months. The phantom ema
 
 Andrew was quiet for a moment. "Do you think Jane could have killed Jessica? To frame you?"
 
-Anna had thought about this. Searched the evidence for proof.
+Anna had thought about this. Framing a second murder on Jane would have been perfect, but Jessica's investigation had gone cold. Reopening it would only complicate things, draw unwanted attention. Better to leave it buried. 
 
 "I couldn't find evidence of it. But most likely, yes. Jessica's death looked like suicide, but... Jane had motive. She was manipulating everything else. Why not that too?"
 
@@ -118,17 +110,15 @@ Andrew looked at the documents spread across the table. Evidence of his sister's
 
 Anna thought about it. About Jane's empty apartment. Jane's comments about sacrifice. Jane's lonely lunches.
 
-"I think," Anna said slowly, "she saw me building what she gave up. Marriage. Kids. Career. All of it. And she couldn't handle it."
+"I think," Anna said slowly, "she saw me building what she gave up. Marriage. Kids. Career. All of it. And she couldn't handle it." She paused. "There was also talk around the board. If I succeeded as SVP, I'd likely take her seat. The board was done with her... indiscretions. The interns. The affairs."
 
-"So she destroyed it."
+"So she destroyed everything you've built."
 
 "No. She tried to make me destroy it. Make me choose. Prove that you can't have everything."
 
-"Well," Andrew said bitterly, "she succeeded."
+"Well," Andrew said bitterly, "I guess she succeeded."
 
 They finished the packet in silence.
-
----
 
 Wednesday morning at 5 AM, Anna drove to the 6th Precinct. Parked two blocks away. Walked to the station wearing a hoodie, head down.
 
