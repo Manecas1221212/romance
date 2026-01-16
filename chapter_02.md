@@ -1,4 +1,4 @@
-# Chapter 2: The Real World
+# Chapter 2
 
 **Fall 2003, The Next Morning**
 

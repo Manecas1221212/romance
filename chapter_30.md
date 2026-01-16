@@ -93,27 +93,25 @@ Jane's voice. Older. Softer than it had been three years ago at their coffee mee
 
 "What do you want?"
 
-"I heard David is retiring. That the chair position is opening up." A pause. "I wanted to tell you to be careful. And that I'm worried about you." Genuine concern in her voice.
+"I heard David is retiring. The chair will be opening." A soft pause. "Be careful, Anna. I'm… worried about you." The gentleness in her voice didn’t belong to the woman who'd once built knives out of meetings.
 
-"I don't need your worry." Anna's words sounded meaner than what she meant them to be.
+"I don't need your worry." It came out sharper than she meant.
 
-"Your soul, Anna. It's in danger. More now than ever. You're so close to the top, but you're standing on bones. Jessica's bones. Your humanity's bones."
+"Your soul, Anna. It's in danger. More now than ever. You're inches from the top, but you're standing on bones—Jessica's bones. Your humanity's."
 
-"We've had this conversation." Anna felt something again, for the first time in three years, when they had last spoken. Anna's soul was shaking somewhere, still alive, on hearing these words of care for it.
+"We've had this conversation." And yet something moved—first time in years. A tremor, small and undeniable, as if a part of her she'd buried stirred at the sound of someone naming it.
 
 "And you still won't listen. The church I attend—there's a wonderful priest. Father Michael. He understands complicated pasts. He could help you find a way to—"
 
 "To what? Confess? Atone? I'm not interested in redemption, Jane."
 
-"Then you're going to die empty. Just like I almost did. Don't you see? The power means nothing if—"
+"Then you'll die empty. Like I almost did. The power means nothing if—"
 
-Anna hung up.
+Anna hung up. Her cold rationale sealed itself over the small, shaking voice inside—the one that wanted Jane's help.
 
 She stood at the window, looking at her reflection in the dark glass. Expensive suit. Perfect hair. Empty eyes. Her face floated over a grid of headlights and fire escapes, a ghost superimposed on a living thing.
 
-The city sprawled below. Millions of lights. Millions of lives.
-
-She was so close to conquering it. So close to the absolute top. Board chair of one of the most powerful firms in New York.
+The city sprawled below. She was so close to conquering it. So close to the absolute top. Board chair of one of the most powerful firms in New York.
 
 And already she felt nothing.
 
@@ -153,17 +151,4 @@ At least it had been feeling.
 
 Now there was just empty silence. The faint cycle of the refrigerator. And the view from almost-the-top. And the knowledge that she'd traded everything real for everything hollow—and still hadn't quite reached the peak.
 
-Anna looked at her reflection one more time.
-
-*Not a survivor. Not a victor. Not yet.*
-
-*Just a murderer who'd built an empire on innocent blood.*
-
-*Still climbing. Still hungry. Still empty.*
-
-She finished the scotch.
-
-Went to bed.
-
-And dreamed, as always, of Jessica's face.
-
+Anna looked at her reflection one more time, finished the scotch, went to bed and dreamed, as always, of Jessica's face.

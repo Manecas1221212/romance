@@ -1,12 +1,10 @@
-# Chapter 31: The Legacy
+# Chapter 31
 
 The board chair vote was six weeks away.
 
 Anna had done everything right. Eighteen years of flawless service. Zero scandals. A record that spoke for itself.
 
 But she could feel it slipping away.
-
----
 
 Henderson & Associates' quarterly board dinner was at The Modern. Private room. Fifteen board members. Spouses optional.
 
@@ -18,25 +16,21 @@ They'd learned to coexist. Professional. Distant. Two people pretending their sh
 
 Anna watched him charm the room. The easy laugh. The perfect anecdotes. The way he made everyone feel included.
 
-She'd once loved that about him. Before she understood what it masked.
-
----
+She'd once loved that about him. Before, when she was capable of loving.
 
 After dinner, Anna excused herself to the restroom.
 
-The hallway was quiet. Expensive carpet muffled footsteps. She was about to turn the corner when she heard voices from the private alcove.
+The hallway held its breath. The carpet swallowed sound. She was about to turn the corner when a low thread of voices drifted from the private alcove.
 
-Gerald Morrison. Seventy-two. Founding partner's grandson. Old guard.
+Gerald Morrison—seventy-two, founding partner's grandson, old guard—and Richard Morrison, pushing seventy-five, old school to the bone.
 
-And Richard Chen. David's nephew. The new generation that was really just the old generation with better suits.
-
-"I'm close to retiring now," Gerald was saying. "And I've been thinking about who should take David's chair when he steps down."
+"I can't believe the chair is about to be vacant," Gerald was saying. "I've been thinking about who should take David's chair when he steps down."
 
 "Anyone in mind?"
 
-"Jason Whitmore. He's the right guy. The pedigree. The relationships. The vision. You don't take it personally, right?"
+"Jason Whitmore. The pedigree. The relationships. The vision. You won't take it personally, will you?"
 
-"Never. I'm close to retiring myself." Richard paused. "But what about Anna? She's been working ferociously for this. Eighteen years on the board."
+"Never. I'm close to retiring myself." Richard paused. "But what about Anna? She's been working ferociously for this—eighteen years on the board."
 
 Gerald laughed. The sound made Anna's blood freeze.
 
@@ -44,7 +38,7 @@ Gerald laughed. The sound made Anna's blood freeze.
 
 "She's effective, though."
 
-"Effective isn't enough. Jason's one of us."
+"Effective isn't enough. Jason's one of us. Forty years ago we allowed women on the board—isn't that enough? Power stays with us; only we have the cold rationale to make hard decisions."
 
 Their voices faded as they walked away.
 
@@ -52,9 +46,7 @@ Anna stood perfectly still. Not breathing. Not moving.
 
 Thirty-five years. Thirty-five years of sacrifice. Of climbing. Of murdering her own humanity to reach the top.
 
-And she was still just *tolerated*.
-
----
+And she was still just "tolerated".
 
 She returned to the table. Smiled. Made conversation. Performed the role of board member with flawless precision.
 
@@ -66,9 +58,7 @@ She raised hers back.
 
 *You have no idea what's coming.*
 
----
-
-That night, Anna sat in her penthouse with a glass of scotch and her old notebook. The one she'd started all those years ago, documenting the sabotage. The evidence. The suspicions.
+That night, Anna sat in her penthouse with a glass of scotch and a brand new notebook. Similar to the one she'd started all those years ago, documenting the sabotage. The evidence. The suspicions.
 
 She opened a fresh page.
 
@@ -76,13 +66,7 @@ She opened a fresh page.
 
 *Vulnerabilities: To be determined.*
 
-She thought about Jane. About the fifteen years of careful manipulation. The patience. The precision.
-
-Jane's only mistake had been getting caught.
-
-Anna wouldn't make that mistake.
-
----
+She thought about Jane. About the years of careful manipulation. The patience. The precision. Jane's only mistake had been getting caught. Anna wouldn't make that mistake.
 
 The next morning, she called her assistant.
 
@@ -92,17 +76,11 @@ The next morning, she called her assistant.
 
 Anna hung up and looked out at the city.
 
-She was sixty years old. No husband. Estranged children. No friends who knew the real her.
+She was over sixty years old. No husband. Estranged children. No friends who knew the real her. What did she have left to lose?
 
-What did she have left to lose?
+Nothing, and that made her dangerous.
 
-Nothing.
-
-And that made her dangerous.
-
----
-
-She thought about what Jane had said at their coffee meeting years ago. *You've become exactly what I created. A legacy.*
+She thought about what Jane had said at their coffee meeting years ago—how she’d admitted she’d made Anna into a monster, her legacy.
 
 Jane had been wrong about one thing.
 
@@ -112,33 +90,15 @@ She was her improvement.
 
 Jane had orchestrated destruction and gotten caught. Had spent eighteen years in prison. Had found God and regret and all those soft, useless things.
 
-Anna would orchestrate destruction and succeed.
+Anna would orchestrate destruction and succeed. Jane had created a monster. That monster had learned.
 
-*The only lesson that matters,* she wrote in her notebook, *is the one Jane failed to learn: Don't. Get. Caught.*
-
-She closed the notebook. Finished her scotch.
-
-Outside, the city hummed with millions of lives. People climbing. Scheming. Betraying.
-
-None of them would ever know they were watching history repeat itself.
-
-Jane had created a monster.
-
-That monster had learned.
-
-And now Jason Whitmore—the man who'd once tried to control a twenty-year-old Anna Bennett, the man who thought he could take what she'd spent thirty-five years bleeding for—was about to discover what she'd become.
+And now Jason Whitmore—the man who'd once offered a twenty-year-old Anna Bennett a better life, the man who thought he could buy what she'd spent thirty-five years bleeding for—was about to learn what that meant. By the time the vote was called, he would be out of the way: support evaporated, loyalties redirected, doors closing one by one. No scandal on her. No fingerprints. Only inevitability.
 
 Anna smiled.
 
 For the first time in years, she felt something.
 
-Not joy. Not peace.
-
-Purpose.
-
-And that would have to be enough.
-
----
+Not joy. Not peace. Purpose.
 
 She picked up her phone. Thought about calling Claire. Put it down.
 
@@ -150,5 +110,7 @@ Anna walked to her desk and began to plan.
 
 The cycle was starting again.
 
-And this time, she would be the one pulling the strings.
+This time she wouldn’t just pull the strings.
+
+She would take the chair.
 
