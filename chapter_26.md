@@ -26,9 +26,7 @@ Anna's heart stopped. The hallway suddenly felt too small, too bright. She could
 
 "I have no idea. She'll only discuss it with you. Directly."
 
-They arranged a meeting at the jail. Anna didn't tell Andrew what Jane's lawyer had said about Jessica. She just told him Jane wanted to talk. Andrew advised against it. Said it was insane.
-
-Anna went anyway.
+They arranged a meeting at the jail. Anna didn't tell Andrew what Jane's lawyer had said about Jessica. She just told him Jane wanted to talk. Andrew advised against it. Said it was insane, but anna went anyway.
 
 Jane sat across from her in an orange jumpsuit. No makeup. Hair pulled back. Still beautiful. Still controlled.
 
@@ -40,7 +38,7 @@ Jane sat across from her in an orange jumpsuit. No makeup. Hair pulled back. Sti
 
 "You killed Mia. You destroyed my career. You have nothing I want to hear."
 
-"Don't I? Why are yo uhere then?" Jane leaned forward. "How did you get that evidence?"
+"Don't I? Why are you here then?" Jane leaned forward. "How did you get that evidence?"
 
 Anna's face stayed blank. "It was sent anonymously."
 
@@ -87,9 +85,9 @@ Jane studied her for a long moment. Then smiled. "Keep telling yourself that. Bu
 The silence stretched between them.
 A feverish chill ran down Anna's spine. Her vision swam; she felt seconds from fainting. Did Jane have proof she’d killed Jessica? If she did, nothing stood in her way — nothing to stop her from turning Anna in and tearing down everything Anna had fought to protect.
 
-Anna opened her mouth, but no sound came out. She couldn’t tell whether she’d vomit or black out first. Her thoughts spiraled, too fast to catch. If Jane had evidence, then what? Have her silenced in jail — how, with no contacts and no time? Run? Canada? Mexico? Which border was closer? Or was it already over — had Jane already talked?
+Anna opened her mouth, but no sound came out. She couldn’t tell whether she'd vomit or black out first. Her thoughts spiraled, too fast to catch. If Jane had evidence, then what? Have her silenced in jail — how, with no contacts and no time? Run? Canada? Mexico? Which border was closer? Or was it already over — had Jane already talked?
 
-One thing was clear. Jane was enjoying this. She was baiting her, the same way she always had. Careless enough to get caught, yet somehow still in control. Even behind bars, Jane held the advantage. 
+One thing was clear. Jane was enjoying this. She was baiting her, the same way she always had. Careless enough to get caught, yet somehow still in control. Even behind bars, Jane held the advantage.
 
 Anna wiped the sweat from her palms and forced herself to breathe. When she finally spoke, her voice barely held steady.
 
@@ -101,19 +99,29 @@ Anna wiped the sweat from her palms and forced herself to breathe. When she fina
 
 "Am I? Or am I just honest?" Jane leaned back. "Here's what's going to happen. I'm going to trial. You're going to testify. You'll say I destroyed your life. The jury will convict me. I'll go to prison."
 
+Jane felt the hook loosen in her hand. She had tightened the line and, with deliberate calm, let it slip—showing her cards and knowing they were theater, not evidence; pressure applied, pressure released.
+
+Anna felt it land like a poker player raking a million‑dollar pot—oxygen flooding back, pulse settling. Not safe. Not absolved. Only reprieved.
+
 "Then why are we talking?"
 
 "Because I want you to know—you're just like me. The only difference is I owned it. You're still pretending to be the victim."
 
 "We're nothing alike."
 
-"Aren't we?" Jane's expression shifted—something raw flickering beneath the control. "You want to know why I really did this? Because I was terrified. For twenty years, I watched you have everything I couldn't. The stable marriage. The children. The perfect life that made you seem... whole. While I was having one-night stands with interns. Empty. Alone."
+"Aren't we?" Jane's expression shifted—something raw flickering beneath the control. 
 
-She leaned forward. "I told myself I chose this. That I sacrificed personal life for power. But watching you—you were going to have both. The board seat and the family. You were going to prove my sacrifices were unnecessary."
+Anna leaned in, voice low. "You want to know why you did this? You were terrified. For twenty years, you watched me have what you couldn't. The stable marriage. The children. The gallery openings and school plays that made it look whole. And you—you were cycling through one-night stands with interns. Empty. Alone."
 
-Anna stared. "So you destroyed me because I made you feel inadequate?"
+Jane's mouth curved, unbothered. "If that helps you sleep, keep it."
 
-"I destroyed you because you were about to make me irrelevant." Jane's smile returned, cold. "But here's the thing—whatever you did or didn't do to Jessica, we both know what it takes to eliminate a threat. I killed Mia to push you toward your potential. You... well. The timing speaks for itself."
+Anna didn't blink. "You told yourself you chose it, that you sacrificed for power. But I was going to have both—the board seat and the family. I was proof your sacrifices were unnecessary."
+
+Jane let the words hang, then smiled with that small, surgical amusement. "Believe whatever narrative keeps you upright."
+
+Anna stared. "So you destroyed me because I made you feel inadequate."
+
+Jane's smile returned, cold. "I don't do inadequate. I do outcomes. You were a contradiction to be resolved." She tilted her head. "But here's the thing—whatever you did or didn't do to Jessica, we both know what it takes to eliminate a threat. I killed Mia to push you toward your potential. You... well. The timing speaks for itself."
 
 Anna stood. "You're making assumptions."
 
@@ -123,13 +131,13 @@ The words hit like bullets. Anna could feel every eye in the room—the guard, t
 
 "Did you plan it?" Jane's voice was soft, almost gentle. "Or was it impulse? Did you go there meaning to talk, and then... something snapped?"
 
-Anna's hand was on the door handle. She could leave. Should leave.
+Heat climbed her throat; the room seemed to tilt inward. The metal chair pinched at the backs of her legs, the air warm and used, fluorescent lights buzzing like a trapped fly. Somewhere the guard shifted; a radio sighed and went quiet. Ten steps to the door. One handle. An exit shaped like mercy. She could leave. Should leave. The thought pressed hard against her ribs until breath felt rationed.
 
 "Or maybe," Jane continued, "you didn't go there at all. Maybe you're telling the truth. But we both know what you're capable of now, don't we? What I taught you."
 
 Anna didn't answer. Couldn't answer.
 
-She walked to the door. Stopped.
+She walked to the door. Stopped. For once, she wanted to take control—to stand before the woman who'd made her monstrous—her Victor Frankenstein—and refuse the script.
 
 "You could tell your lawyers you suspect how the evidence was found. Try to discredit it."
 
@@ -139,9 +147,11 @@ Jane smiled. "With what? A theory? Suspicion isn't proof. You know that better t
 
 "So what? I already won. I made you into exactly what I wanted you to be. Whether you admit what you did or not, you know. And that knowledge will eat at you for the rest of your life."
 
+Anna said nothing. In her mind the future arranged itself like a cold diagram: badge scans and board votes; an apartment that hummed when it was empty; Sophie’s careful distance, Jake’s polite nods; Andrew checking locks; a cell door closing on Jane. No winners. Just wreckage moving forward under different names.
+
 Anna left without responding.
 
----
+Outside, days slipped into one another—forms to sign, calls to return, silence settling where voices used to be.
 
 The trial started six weeks later.
 
@@ -159,7 +169,7 @@ Mouthed: *Welcome to the board.*
 
 Anna felt the words like a physical blow. The courtroom was packed—reporters, lawyers, family members, curious onlookers. But in that moment, it felt like just the two of them. Jane being led away in handcuffs. Anna standing in the gallery, frozen.
 
-And Anna knew—Jane had planned this too. Knew she'd be convicted. Knew her arrest would create the opening Anna needed. Had sacrificed herself to complete Anna's education.
+And Anna thought that maybe Jane had planned this too. Maybe she knew she'd be convicted, and that her arrest would create the opening Anna needed. Had sacrificed herself to complete Anna's education.
 
 The most terrifying mentorship Anna had ever received.
 

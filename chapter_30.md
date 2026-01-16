@@ -1,24 +1,24 @@
-# Chapter 30: Mirrors
+# Chapter 30
 
-Anna turned sixty in a penthouse that cost more than most people made in a lifetime.
+Anna turned sixty in a penthouse that cost more than most people made in a lifetime. Floor-to-ceiling glass made the skyline feel curated behind her reflection; the air held a polite chill that kept the lilies crisp and sweat from ever forming.
 
-The party was corporate. Colleagues. Board members. Strategic connections. Everyone came because it was expected.
+The party was corporate. Colleagues. Board members. Strategic connections. Everyone came because it was expected. Laughter traveled in neat, professional bursts, the clink of glass echoing off stone and glass, perfume braided through the cold air and gone.
 
 No one came because they loved her.
 
 Sophie and Jake sent gifts. Didn't attend. Had excuses that were probably true.
 
-Claire came. She always did. Now sixty-two, gray-haired, a grandmother three times over. Her life was small. Happy. Full of love Anna would never understand.
+Claire came. She always did. Now sixty as well, gray-haired, a grandmother three times over. Her life was small. Happy. Full of love Anna would never understand.
 
-They had coffee after the others left.
+They had coffee after the others left. Steam lifted in thin ribbons; porcelain touched marble with a patient tap.
 
-"How are you?" Claire asked.
+"How are you?" Claire asked, hands cupped around the mug as if convincing it to stay warm.
 
 "Fine. Good."
 
 "Anna."
 
-"Really. I'm fine."
+"Really. I'm fine." The lie sat perfectly in her mouth, polished with decades of use.
 
 Claire looked at her with the same expression she'd had at Columbia. The one that said she knew Anna was lying but wouldn't push.
 
@@ -28,9 +28,10 @@ Claire looked at her with the same expression she'd had at Columbia. The one tha
 
 They both knew Anna wouldn't.
 
-After Claire left, Anna stood in her empty penthouse and felt the silence settle like snow.
+After Claire left, Anna stood in her empty penthouse and felt the silence settle like snow. The place smelled faintly of cut lilies and cold stone.
 
-Andrew was gone. Dead five years now. Catherine had passed two years after him, cancer. The people who'd known Anna when she was human were disappearing.
+Andrew was gone. Dead over four years now. Catherine had passed last year, cancer. The people who'd known Anna when she was human were disappearing.
+Sometimes she still reached for his chipped blue mug, long ago boxed.
 
 Soon, only the monster would remain.
 
@@ -38,13 +39,11 @@ Soon, only the monster would remain.
 
 That night, alone, Anna did what she did every year on her birthday.
 
-She opened the drawer where she kept Jessica's photo. The one from the company directory. Professional. Smiling. Young.
+She opened the soft-close drawer where she kept Jessica's photo. The one from the company directory. Professional. Smiling. Young. The paper felt colder than it should have, the ink at the corners beginning to fade.
 
-Anna looked at that face. Remembered that night with perfect clarity. The fear in Jessica's eyes. The plastic. The moment life became death.
+Anna looked at that face. Remembered that night with perfect clarity. The fear in Jessica's eyes. The moment life became death.
 
-She waited for guilt. For horror. For regret.
-
-Felt nothing.
+She waited for guilt. For horror. For regret. Felt nothing.
 
 Just the cold certainty that she'd do it again if necessary.
 
@@ -52,17 +51,17 @@ And that scared her more than the murder itself.
 
 ---
 
-The next board meeting, they discussed succession planning.
+The next board meeting, they discussed succession planning. The room was kept at a strategic sixty-eight degrees; beyond the glass, the river looked small and obedient.
 
-"Anna, you've been on the board for eighteen years," David said. He was eighty now. Retiring soon. "The chair position will be opening up. You should consider putting your name forward."
+"Anna, you've been on the board for eighteen years," David said. He was eighty now. Retiring soon. His voice had thinned, papery against the air vents. "The chair position will be opening up. You should consider putting your name forward."
 
 Board chair. The top. The absolute peak.
 
 "I'd be honored to be considered."
 
-"There's one concern." Patricia, now sixty-nine. "Some members feel your history—with Jane, with the incidents thirty years ago—raises questions about judgment."
+"There's one concern." Patricia, now sixty-nine. "Some members feel your history—with Jane, with the incidents twenty years ago—raises questions about judgment."
 
-"Those incidents were thirty years ago," Anna said calmly. "I was the victim. Not the perpetrator."
+"Those incidents were twenty years ago," Anna said calmly. "I was the victim. Not the perpetrator."
 
 "Of course. But perception matters. The vote won't be for another few months. Think about how you want to position yourself."
 
@@ -72,7 +71,7 @@ Board chair. The top. The absolute peak.
 
 Anna met her eyes. "Effective."
 
-After the meeting, David pulled her aside.
+After the meeting, David pulled her aside. The hallway carpet swallowed footsteps; framed tombstones of past deals lined the walls, silver plaques that pretended to be art.
 
 "You have my support, Anna. But not everyone's convinced. Gerald Morrison has been pushing for Jason Whitmore. Says he's more... traditional."
 
@@ -84,7 +83,7 @@ Anna knew exactly what that meant.
 
 ---
 
-That night, her phone rang. Unknown number.
+That night, her phone rang. Unknown number. The line carried the hush of a chapel even before anyone spoke.
 
 "Hello?"
 
@@ -94,13 +93,13 @@ Jane's voice. Older. Softer than it had been three years ago at their coffee mee
 
 "What do you want?"
 
-"I heard David is retiring. That the chair position is opening up." A pause. "I wanted to tell you to be careful. And that I'm worried about you."
+"I heard David is retiring. That the chair position is opening up." A pause. "I wanted to tell you to be careful. And that I'm worried about you." Genuine concern in her voice.
 
-"I don't need your worry."
+"I don't need your worry." Anna's words sounded meaner than what she meant them to be.
 
 "Your soul, Anna. It's in danger. More now than ever. You're so close to the top, but you're standing on bones. Jessica's bones. Your humanity's bones."
 
-"We've had this conversation."
+"We've had this conversation." Anna felt something again, for the first time in three years, when they had last spoken. Anna's soul was shaking somewhere, still alive, on hearing these words of care for it.
 
 "And you still won't listen. The church I attend—there's a wonderful priest. Father Michael. He understands complicated pasts. He could help you find a way to—"
 
@@ -110,7 +109,7 @@ Jane's voice. Older. Softer than it had been three years ago at their coffee mee
 
 Anna hung up.
 
-She stood at the window, looking at her reflection in the dark glass. Expensive suit. Perfect hair. Empty eyes.
+She stood at the window, looking at her reflection in the dark glass. Expensive suit. Perfect hair. Empty eyes. Her face floated over a grid of headlights and fire escapes, a ghost superimposed on a living thing.
 
 The city sprawled below. Millions of lights. Millions of lives.
 
@@ -118,7 +117,7 @@ She was so close to conquering it. So close to the absolute top. Board chair of 
 
 And already she felt nothing.
 
-Jane's words echoed. *You're standing on bones.*
+Jane's words echoed. *You're standing on bones.* Foundations poured and polished over them; the building held because something once living had been packed into silence.
 
 Jessica's bones. An innocent woman—not innocent of the affair, that had been real, orchestrated by Jane but real nonetheless—but innocent of the sabotage. Anna had killed the wrong person for the wrong reason. And when she'd discovered the truth, she'd felt nothing. Done nothing. Just continued climbing.
 
@@ -144,7 +143,7 @@ The phone rang again. Jane's number.
 
 Anna didn't answer.
 
-She poured expensive scotch. Sat in the dark. Thought about the photo she kept in her drawer. Jessica's face. The evidence of her crime that she couldn't bring herself to discard.
+She poured expensive scotch. Peat and smoke sat heavy on her tongue; the ice chimed once in the glass and refused to melt quickly. She sat in the dark and thought about the photo she kept in her drawer. Jessica's face. The evidence of her crime that she couldn't bring herself to discard.
 
 Maybe because it was the only honest thing left in her life.
 
@@ -152,7 +151,7 @@ The only proof that she'd once felt something strongly enough to kill for it. Ev
 
 At least it had been feeling.
 
-Now there was just empty silence. And the view from almost-the-top. And the knowledge that she'd traded everything real for everything hollow—and still hadn't quite reached the peak.
+Now there was just empty silence. The faint cycle of the refrigerator. And the view from almost-the-top. And the knowledge that she'd traded everything real for everything hollow—and still hadn't quite reached the peak.
 
 Anna looked at her reflection one more time.
 

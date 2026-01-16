@@ -360,7 +360,7 @@
 - Dreams of Jessica's face - not with guilt, just cold recognition
 
 **Chapter 29: Fifteen Years Later**
-- Anna is 57, young analyst Brian asks for mentorship
+- Anna is 58, young analyst Brian asks for mentorship
 - Brian: *"How did you balance everything?"*
 - Anna could warn him, but instead says: *"Yes. It was worth it."*
 - Brian: *"I'll do whatever it takes."*
@@ -369,7 +369,7 @@
 - Andrew died 2 years ago (heart attack), Catherine was gracious
 - Catherine said: *"He never stopped loving you. Even after everything. He never mentioned your name, but I saw in his face his heart was not with me"* 
 - Anna knew she was not the one Andrew loved, but rather Jessica
-- **Jane released from prison after 18 years for good behavior** (age 60)
+- **Jane released from prison after 18 years for good behavior** (age 61)
 - Coffee meeting: Jane seems different, she is all religious now, and it seems honest.
 - Jane is worried about Anna's soul, but Anna is cold about it
 

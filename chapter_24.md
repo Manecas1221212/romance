@@ -4,11 +4,15 @@ Anna spent two days building her case.
 
 Not just evidence against Jane—evidence that protected Anna.
 
+Night after night, the apartment held its breath while she sorted photos and timelines under the lamplight. Paper edges nicked her fingers; a thin burn of toner hung in the air from the cheap desktop printer in the corner. The silence was not peace—it was the careful quiet of someone moving pieces on a board where every move mattered.
+
 She couldn't turn in the files directly. That would reveal the break-in. But she could... launder them.
 
 She started with Andrew.
 
 "I need to tell you something," she said. They were in the apartment. Kids at school. Forced proximity in the ruins of their marriage.
+
+The living room felt smaller than it had ever been. Afternoon light flattened across the wood floor, dulling the shine on the coffee table where she laid out the evidence. In the kitchen, the refrigerator hummed like a clock ticking down.
 
 Andrew looked wary. "What?"
 
@@ -16,11 +20,13 @@ Andrew looked wary. "What?"
 
 The words hung there.
 
+Between them, the air seemed to thin. A car horn down on Columbus echoed once and faded.
+
 Andrew's expression didn't change for a long moment. Then: "What the fuck are you talking about?"
 
 Anna showed him. The photos from Jane's apartment. The receipts. The notes. The timeline.
 
-Andrew read in silence. His face went white. Then gray.
+He stood over the table, hands on either side of the file like he was steadying himself against a wave. As he read, the color slid from his face—white, then gray. The pages whispered when he turned them.
 
 "She... she deliberately..."
 
@@ -40,6 +46,8 @@ Andrew looked up. "How did you get this?"
 
 Andrew stood. Paced. Looked at the evidence again.
 
+His footsteps mapped an anxious path from window to hallway. The radiator clicked once, like a stray thought.
+
 "If we go to the police with this, they'll ask how we got it."
 
 "I know."
@@ -49,6 +57,8 @@ Andrew stood. Paced. Looked at the evidence again.
 Anna met his eyes. "I know."
 
 They sat in silence.
+
+It wasn't empty—there were things in it: history, resentment, love that had curdled. Anna felt each second pass like a bead she couldn't stop counting.
 
 "What if," Andrew said slowly, "we don't admit where the evidence came from? What if we say it was sent to us? Anonymously?"
 
@@ -66,6 +76,8 @@ They made a plan.
 
 First: clean copies of all evidence. Printed on generic paper. No fingerprints. No metadata.
 
+She pictured stacks of white paper like snow—identical, anonymous, the kind that left no trace of the storm that made it.
+
 Second: anonymous delivery. Drop everything at the police station with a cover letter explaining the contents. Typed. Untraceable.
 
 Third: wait. Let the police investigate. Act surprised when they come asking questions.
@@ -80,7 +92,9 @@ But compared to murder?
 
 Andrew could live with it. He'd rationalize it later—necessary evil, justice served, ends justifying means. But Anna? Anna had crossed that line so long ago she couldn't even see it anymore.
 
-They spent Tuesday night preparing. Andrew printed the documents on a library computer. Anna typed the cover letter at a different library. They wore gloves. Used generic envelopes.
+They spent Tuesday night preparing. Andrew printed the documents on a library computer. Anna typed the cover letter at a the same library. They wore gloves. Used generic envelopes.
+
+The library smelled like dust and old bindings. Fluorescent lights buzzed with the faint insistence of insects. Anna watched her words appear on the screen in a dingy corner terminal, each sentence careful, clean, impersonal. Andrew fed bills into a printer with a flimsy plastic tray that rattled with every page; he wiped the edges with alcohol until his fingers stung.
 
 "Why did you break into her apartment in the first place?" Andrew asked as they worked. "I mean, what made you suspect Jane specifically?"
 
@@ -92,7 +106,7 @@ Anna explained. The sabotage that had been happening for months. The phantom ema
 
 Andrew was quiet for a moment. "Do you think Jane could have killed Jessica? To frame you?"
 
-Anna had thought about this. Framing a second murder on Jane would have been perfect, but Jessica's investigation had gone cold. Reopening it would only complicate things, draw unwanted attention. Better to leave it buried. 
+Anna had thought about this. Framing a second murder on Jane would have been perfect, but Jessica's investigation had gone cold. Reopening it would only complicate things, draw unwanted attention. Better to leave it buried.
 
 "I couldn't find evidence of it. But most likely, yes. Jessica's death looked like suicide, but... Jane had motive. She was manipulating everything else. Why not that too?"
 
@@ -102,6 +116,8 @@ Anna had thought about this. Framing a second murder on Jane would have been per
 
 Andrew looked at the documents spread across the table. Evidence of his sister's murder. Evidence of a conspiracy that had destroyed their marriage.
 
+He touched the cover letter draft like it might be hot. Anna watched the way his throat worked when he swallowed.
+
 "Why did she do it?" he asked quietly. "What did you do to make her hate you this much?"
 
 "Nothing. I was her protégé. Her success story."
@@ -109,6 +125,8 @@ Andrew looked at the documents spread across the table. Evidence of his sister's
 "So why?"
 
 Anna thought about it. About Jane's empty apartment. Jane's comments about sacrifice. Jane's lonely lunches.
+
+The memory of the Tribeca windows—mirror-clean, reflecting a city full of choice that Jane had trained herself not to see.
 
 "I think," Anna said slowly, "she saw me building what she gave up. Marriage. Kids. Career. All of it. And she couldn't handle it." She paused. "There was also talk around the board. If I succeeded as SVP, I'd likely take her seat. The board was done with her... indiscretions. The interns. The affairs."
 
@@ -122,13 +140,21 @@ They finished the packet in silence.
 
 Wednesday morning at 5 AM, Anna drove to the 6th Precinct. Parked two blocks away. Walked to the station wearing a hoodie, head down.
 
-Dropped the envelope in the night deposit box. Walked away.
+The city was a dim watercolor at that hour: steam rising from grates, a bakery somewhere exhaling warm sugar into cold air. Her breath fogged and evaporated. A patrol car idled with its lights off.
+
+She slid the envelope into the night deposit slot and kept walking.
+
+The metal slot bit the edge of the envelope and then swallowed it with a soft scrape. For a beat, she watched her reflection warp in the brushed steel—anonymous in the sweatshirt, faceless in the hour before names.
 
 By 6 AM, she was home. By 7 AM, she was at work. Acting normal.
+
+In the elevator, a woman with a red tote bag asked about the Archer deal. She answered on autopilot, her mind retracing the route—deposit box, door, ignition.
 
 By noon, her phone rang.
 
 Detective Morris. Jessica's case.
+
+The ring pinned a needle through her composure. She let it ring once, twice, then lifted it with a hand that did not shake.
 
 "Ms. Park, we need you to come in. We've received some information about a case."
 
@@ -141,6 +167,8 @@ Anna's heart raced. "Of course. Is everything okay?"
 "Just need to ask some questions."
 
 At 3 PM, Anna sat in the same interview room where Andrew had been questioned about Jessica.
+
+The fluorescent light hummed above scuffed linoleum. A recorder sat on the table, its small red eye fixed on her. The walls were the color of old manila folders.
 
 Detective Morris sat across from her with a thick file.
 
@@ -156,6 +184,8 @@ Anna let her face show shock. Horror. "What? Who?"
 
 Anna's hand went to her mouth. Perfect performance. "No. That's... Jane wouldn't..."
 
+She felt the mask settle—precise muscles lifting, the right breath caught. She had practiced this in mirrors, in quiet moments between emails and crisis.
+
 "The evidence is substantial. Receipts. Communications. A documented plan to destabilize you and your husband through your sister-in-law's death."
 
 "I don't understand. Why would Jane..."
@@ -163,6 +193,8 @@ Anna's hand went to her mouth. Perfect performance. "No. That's... Jane wouldn't
 "That's what we're trying to figure out. Did you have any sense that Ms. van Moore wished you harm?"
 
 Anna thought carefully. Threaded truth and lies.
+
+She pulled threads from memory—the lunches, the advice, the soft directives that had felt like support until they tightened.
 
 "She'd been... protective lately. Overly involved in my personal life. Giving advice about my marriage, my career, my friendships. I thought she was mentoring me."
 
@@ -172,6 +204,8 @@ Anna thought carefully. Threaded truth and lies.
 
 They asked more questions. Anna answered carefully. Showed appropriate emotion. Confusion. Betrayal. Grief.
 
+The detective's pen made a steady taxicab sound against the paper. Anna matched her breath to it.
+
 After two hours, they let her go.
 
 "We'll be in touch. And Ms. Park—don't discuss this with anyone. Especially not Jane van Moore."
@@ -179,6 +213,8 @@ After two hours, they let her go.
 "Of course."
 
 Anna left the station and breathed for the first time in hours.
+
+Outside, late sun cut clean rectangles across the sidewalk. People moved through them like pieces on a board. She could feel the plan clicking forward, teeth fitting teeth.
 
 It was working.
 
