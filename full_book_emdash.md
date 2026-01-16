@@ -1,4 +1,6 @@
-﻿# Chapter 1
+﻿# The Chair
+
+# Chapter 1
 
 **Fall 2003**
 
