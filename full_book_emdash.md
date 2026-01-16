@@ -1,4 +1,4 @@
-# Chapter 1
+﻿# Chapter 1
 
 **Fall 2003**
 
@@ -12,49 +12,49 @@ By sophomore year, she had a system.
 
 Wake before the city. Lace up. Run Riverside, past dog walkers and joggers and the kind of men who read the Wall Street Journal as they walked. Shower. Hair in a high ponytail that said I don’t have time for nonsense. Espresso from the cart on Broadway. A banana grabbed from the sorority house kitchen. Then class—Corporate Finance at 8:40, where half the room pretended they weren’t intimidated by the problem sets.
 
-“You’re early,” Claire said, sliding into the seat next to her and bumping shoulders like they’d done since freshman orientation.
+— You’re early, Claire said, sliding into the seat next to her and bumping shoulders like they’d done since freshman orientation.
 
-“I like the front row.”
+— I like the front row.
 
-“You like intimidating professors into A’s.”
+— You like intimidating professors into A’s.
 
-“Both can be true.”
+— Both can be true.
 
-Claire was the friend who always had an extra lip balm and an opinion. Claire was the same age, same year, with natural blonde hair cut into a practical bob and a laugh that made boys look over to see what they were missing. They were different in almost every way—Anna was intense, Claire was easy; Anna ran toward pressure, Claire navigated around it—but they matched in the only ways that mattered: both finance majors, both girls without legacy money or family connections, both building futures from scratch. 
+Claire was the friend who always had an extra lip balm and an opinion. Claire was the same age, same year, with natural blonde hair cut into a practical bob and a laugh that made boys look over to see what they were missing. They were different in almost every way—Anna was intense, Claire was easy; Anna ran toward pressure, Claire navigated around it—but they matched in the only ways that mattered: both finance majors, both girls without legacy money or family connections, both building futures from scratch.
 
 Jason slid into the row behind them, bringing the smell of expensive cologne and confidence. "Ladies," he said, grinning.
 
 Anna turned. Jason Whitmore. Finance, like her. Legacy, unlike her. His watch cost more than her stepfather's car, and he wore his ambition like a fitted shirt.
 
-"Hey, so I was thinking dinner tonight," he said, leaning forward. "Capitol on 82nd? I heard the food's insane."
+— Hey, so I was thinking dinner tonight, he said, leaning forward. Capitol on 82nd? I heard the food's insane.
 
 Anna hesitated. Capitol was the kind of place where entrees cost more than her weekly grocery budget. "That's a little—"
 
-"On me," he cut in, easy, like it was nothing. "Come on, My treat."
+— On me, he cut in, easy, like it was nothing. Come on, My treat.
 
-"You don't have to do that."
+— You don't have to do that.
 
-"I know. I want to." He smiled, and it was genuine—the kind of smile that made you forget he'd probably never worried about money in his life. "Besides, you can get the next one."
+— I know. I want to. He smiled, and it was genuine—the kind of smile that made you forget he'd probably never worried about money in his life. Besides, you can get the next one.
 
 Claire coughed into her notebook. "Gross."
 
 Anna hid her grin and opened her notebook. "Fine. But I'm picking the place next time."
 
-"Deal." Jason leaned back, satisfied.
+— Deal. Jason leaned back, satisfied.
 
 Professor Rosen started class with a case about hostile takeovers and stakeholder value. Anna lived for this. Numbers that turned into stories. Stories that turned into power. She took notes at a pace that made Claire’s wrist ache just watching her, asked the first question, then the second, then the one nobody expected.
 
 After class, tennis. Dodge Fitness Center courts were always booked, but Coach made room for Anna. She was good—fluid baseline, a violent forehand when she needed it, patience when she didn’t. She had learned early that winning was mostly about choosing when to go for the line and when to keep the ball deep.
 
-“You’re late for lives,” Coach Martha called as Anna jogged in.
+— You’re late for lives, Coach Martha called as Anna jogged in.
 
-“Corporate Finance ran long.”
+— Corporate Finance ran long.
 
-“Tell your corporate fiancé to wrap it up.”
+— Tell your corporate fiancé to wrap it up.
 
-“He’s not my fiancé,” Anna said too quickly.
+— He’s not my fiancé, Anna said too quickly.
 
-“Mmm.” Coach Martha threw her a ball basket. “Then stop looking at the stands and start looking at the lines.”
+— Mmm. Coach Martha threw her a ball basket. Then stop looking at the stands and start looking at the lines.
 
 Anna hit until her shoulders burned and the world narrowed to rhythm. Ball, footwork, breath. By the time she finished, she checked her laptop in the locker room—the heavy ThinkPad she'd saved up for, worth every dollar—her email inbox was full of messages from the Women in Business board. WiB, the club she'd joined as a freshman and somehow, by sophomore spring, found herself running. The email threads were chaotic. Food budget. Speaker honorarium. A sophomore who wanted to host a "Vision Board Night" in Low Library.
 
@@ -62,11 +62,11 @@ Anna typed back quickly, perched on a bench. "Pick nibbles, not a full dinner. T
 
 Her phone rang—her flip phone, the silver Motorola her mother had sent for emergencies. Claire's name on the tiny screen.
 
-"Do you ever get tired?" Claire asked when Anna picked up.
+— Do you ever get tired? Claire asked when Anna picked up.
 
-"Not until the work is done," Anna said, tucking the phone against her ear.
+— Not until the work is done, Anna said, tucking the phone against her ear.
 
-“You sound like Jane,” Claire said when she caught up, cheeks flushed, scarf thrown around her neck five ways before class.
+— You sound like Jane, Claire said when she caught up, cheeks flushed, scarf thrown around her neck five ways before class.
 
 The name carried weight between them. Jane van Moore—three years older, already a legend by the time Anna arrived on campus. Jane had run WiB like a Fortune 500 and captained the career fair like a field marshal. When Jane spoke at the sorority house, girls actually stopped talking and listened. Now she worked downtown. Henderson & Associates. Mergers & Aquisitions. She'd done it. She'd jumped from campus to the bloodstream of the city.
 
@@ -76,31 +76,31 @@ What do you actually want, Anna?
 
 How much are you willing to trade?
 
-“I don’t sound like Jane,” Anna said. “I sound like me.”
+— I don’t sound like Jane, Anna said. I sound like me.
 
-“You sound like you if you were wearing better shoes.”
+— You sound like you if you were wearing better shoes.
 
-“Rude.”
+— Rude.
 
-“Accurate.”
+— Accurate.
 
 They laughed and went to lecture.
 
 The rest of the day passed in a blur of classes, problem sets, and the kind of focus that made hours feel like minutes. By evening, Anna was back at the sorority house, and it hummed like a beehive. The sisters joked it was a fraternity with better lighting, and they weren't wrong. Girls in oversized sweaters and fresh blowouts traded mascara wands and gossip. Music poured down from the third floor. Perfume hung thick in the hallway.
 
-“Capitol, capital, whatever,” Claire sang, popping into Anna’s doorway. “Are you wearing that?”
+— Capitol, capital, whatever, Claire sang, popping into Anna’s doorway. Are you wearing that?
 
 Anna looked at herself. Black dress. Clean lines. Hair down. She wore a necklace her mother bought at a department store with a coupon and a prayer. "Is it too much?"
 
-“It’s exactly enough.” Claire stepped in and fixed the clasp. “You look like a woman with options.”
+— It’s exactly enough. Claire stepped in and fixed the clasp. You look like a woman with options.
 
 Jason's car smelled like leather and something woodsy. The restaurant was candlelit and pretending not to be loud. He ordered oysters. She let him. He talked internships. She talked about wanting to build something real, something that would mean her mom could finally stop working double shifts, that her stepfather could retire from the garage before his back gave out completely. The way her mind clicked into place when a valuation finally told the truth—because numbers didn't lie, and if she could master them, she could change everything.
 
-"You know what I like about you?" he said, leaning back in his chair. "You're real. Most people here, they're trying so hard to seem impressive. But you—you just are. You don't need to prove anything."
+— You know what I like about you? he said, leaning back in his chair. You're real. Most people here, they're trying so hard to seem impressive. But you—you just are. You don't need to prove anything.
 
 Anna smiled, swirling her wine. "I'm not sure I'd go that far."
 
-"Not like that. You're not pretentious. You're just... you." He took her hand like it already belonged to him. "It's refreshing. Most girls I know would be name-dropping internships or talking about their family connections. You talk about your mom and stepfather like they matter. Like you're doing this for them."
+— Not like that. You're not pretentious. You're just... you. He took her hand like it already belonged to him. It's refreshing. Most girls I know would be name-dropping internships or talking about their family connections. You talk about your mom and stepfather like they matter. Like you're doing this for them.
 
 Anna smiled and gently slid her hand back for her water glass. "They do matter. That's the whole point."
 
@@ -108,29 +108,29 @@ On the sidewalk after, he kissed her under a streetlamp like a scene from someon
 
 Anna liked him. She also liked the way the city looked over his shoulder—big, bright, busy with a thousand doors she intended to open.
 
-"Come to Beta?" he asked, already pulling out his phone to call his friends.
+— Come to Beta? he asked, already pulling out his phone to call his friends.
 
-"Briefly," she said. She had a problem set due at midnight.
+— Briefly, she said. She had a problem set due at midnight.
 
 Beta smelled like cologne and spilled beer. Boys who were going to be bankers practiced being important in rooms full of people who let them. Girls balanced plastic cups and futures on tiny heels.
 
-"Anna!" someone shouted, as if her name were a chant. "President of WiB, breaking hearts and taking names!"
+— Anna! someone shouted, as if her name were a chant. President of WiB, breaking hearts and taking names!
 
 She grinned, hugged too many people, promised to mentor a freshman who didn't need mentoring so much as a calendar, and found Claire on a couch, scrolling through her Sidekick, avoiding a boy who kept staring at her.
 
-“Tell me that you’re leaving in fifteen,” Claire said.
+— Tell me that you’re leaving in fifteen, Claire said.
 
-“Twelve.”
+— Twelve.
 
-“Bless you.”
+— Bless you.
 
 Jason draped an arm over Anna's shoulders in a way that read as possession to anyone paying attention. Anna noticed. She always noticed. She also let it slide—pick your battles. Tonight, she was choosing grace.
 
 They left. Claire peeled off to the house. Jason walked Anna to Butler Library, the city crisp and electric around them.
 
-"Text me when you're done?" he said at the steps.
+— Text me when you're done? he said at the steps.
 
-"Will do." She kissed him quickly and headed inside.
+— Will do. She kissed him quickly and headed inside.
 
 He watched her go, then turned toward his dorm.
 
@@ -138,23 +138,23 @@ She studied until midnight under chandeliers in the kind of quiet that felt like
 
 On the way back to the sorority house, her phone rang. Jane. Anna answered, stepping to the side of the sidewalk.
 
-"Tomorrow, 7:30 a.m., Cafe Lalo," Jane said without preamble.
+— Tomorrow, 7:30 a.m., Cafe Lalo, Jane said without preamble.
 
-"I have class at 9:10."
+— I have class at 9:10.
 
-"We'll be done by 8:15. Class is not negotiable. Neither is breakfast." Jane hung up.
+— We'll be done by 8:15. Class is not negotiable. Neither is breakfast. Jane hung up.
 
 Anna smiled into the dark. She set an alarm for 6:20 and made another list. What to ask. What not to say. What to say when she accidentally said the thing she wasn’t going to say.
 
 In the sorority house hallway, a freshman stopped her. "Are you Anna Bennett?"
 
-“Sometimes.”
+— Sometimes.
 
-“I heard you got a first-round for Henderson. How?”
+— I heard you got a first-round for Henderson. How?
 
 Anna thought of the jar of dollar bills under a bed that was now hundreds of miles away. Of her mother’s hands after a twelve-hour shift. Of the feeling of control she got when numbers aligned with reality.
 
-“I asked,” Anna said simply. “A lot of people don’t.”
+— I asked, Anna said simply. A lot of people don’t.
 
 The freshman nodded like Anna had handed her a secret. Maybe she had. Secrets weren’t magic. They were mostly the courage to do the obvious thing first.
 
@@ -172,7 +172,7 @@ She threw on jeans and a t-shirt—her usual breakfast-with-a-friend outfit. No 
 
 Cafe Lalo at 7:30 was croissants and morning light. Jane was already there, and she looked—off. Her hair was perfect, her blazer sharp, but there was something tight around her eyes, something that hadn't been there at their last coffee.
 
-"Sit," Jane said, and Anna sat.
+— Sit, Jane said, and Anna sat.
 
 Jane's eyes flicked over Anna's jeans and t-shirt, a small smile playing on her lips. "Cute. Very... you."
 
@@ -180,41 +180,41 @@ Anna laughed. "What, you expected me to dress up for breakfast?"
 
 Jane ordered them both espresso and pain au chocolat without asking, then leaned back and exhaled like she'd been holding her breath since Monday.
 
-"I'm pregnant," Jane said. "Or I was. Or—I'm dealing with it on Saturday."
+— I'm pregnant, Jane said. Or I was. Or—I'm dealing with it on Saturday.
 
 Anna's brain stuttered. Of all the things she'd expected—interview advice, networking tips, a lecture on time management—this was not on the list.
 
-"Oh," Anna said, then realized how useless that was. "Are you—do you need—"
+— Oh, Anna said, then realized how useless that was. Are you—do you need—
 
-"I need to tell someone who won't cry or try to fix me," Jane said. Her voice was steady, businesslike, the same tone she used for quarterly reviews. "My roommate is Catholic. My mother would have me married by Thanksgiving. And the guy—" She laughed, sharp and bitter. "The guy is a manager at another firm I met at some networking event. He doesn't know. He's not going to."
+— I need to tell someone who won't cry or try to fix me, Jane said. Her voice was steady, businesslike, the same tone she used for quarterly reviews. My roommate is Catholic. My mother would have me married by Thanksgiving. And the guy— She laughed, sharp and bitter. The guy is a manager at another firm I met at some networking event. He doesn't know. He's not going to.
 
 Anna set down her coffee carefully. "Okay."
 
-"It was stupid. I know better. I should be on the pill, I just—" Jane waved a hand like she was swatting away her own excuse. "He was smart. He smelled expensive. We went back to his place and I told myself it was networking."
+— It was stupid. I know better. I should be on the pill, I just— Jane waved a hand like she was swatting away her own excuse. He was smart. He smelled expensive. We went back to his place and I told myself it was networking.
 
-"Was it?"
+— Was it?
 
-"No. It was being twenty-five and tired and wanting to feel like someone who gets to want things." Jane looked at Anna, really looked at her. "You know what they don't tell you? About making it? It's that you can have the job, the salary, the apartment in Tribeca, and you still can't have a Saturday morning where you sleep in and eat pancakes and don't think about analyst reports."
+— No. It was being twenty-five and tired and wanting to feel like someone who gets to want things. Jane looked at Anna, really looked at her. You know what they don't tell you? About making it? It's that you can have the job, the salary, the apartment in Tribeca, and you still can't have a Saturday morning where you sleep in and eat pancakes and don't think about analyst reports.
 
 Anna didn't know what to say, so she said the truth. "That sounds lonely."
 
-"It is." Jane picked at her pastry. "But it's also everything I wanted. And I'm not giving it up because I was careless once."
+— It is. Jane picked at her pastry. But it's also everything I wanted. And I'm not giving it up because I was careless once.
 
 The silence hung between them like weather.
 
-"Saturday at eleven," Jane said. "It's a clinic in Brooklyn. I'll take a car. I'll be back to work Monday." She said it like an itinerary. Like it was just another appointment between meetings.
+— Saturday at eleven, Jane said. It's a clinic in Brooklyn. I'll take a car. I'll be back to work Monday. She said it like an itinerary. Like it was just another appointment between meetings.
 
-"Do you want me to—I could come with you," Anna offered, not sure if she meant it or just felt like she should mean it.
+— Do you want me to—I could come with you, Anna offered, not sure if she meant it or just felt like she should mean it.
 
 Jane's expression softened, just slightly. "No. But thank you. I just needed to tell someone who wouldn't make it a referendum on my life choices." She sipped her espresso. "You're going to be in rooms like mine soon. Rooms where everyone is brilliant and vicious and exhausted. You'll meet men who seem like gods until you sleep with them and realize they're just good at Excel. You'll have nights where you work until three a.m. and then go home alone and wonder if this is what winning feels like."
 
-"And is it?" Anna asked. "Worth it?"
+— And is it? Anna asked. Worth it?
 
 Jane considered. "Ask me when I make partner. Or ask me when I'm forty and single and own a co-op with a view of the park." She smiled, and it almost reached her eyes. "The answer might be the same either way."
 
 They finished breakfast talking about other things. Jane asked about Anna's first-round interview—when it was (in two weeks), what she'd wear (the outfit Anna had on right now was far from perfect), how to she planned to answer the culture questions without sounding too earnest or naive. Jane told her about the Henderson analysts, about which managing directors were brilliant and which were just loud, about how to survive recruiting season without losing your mind or your GPA.
 
-"This is sophomore year," Jane said as they stood to leave. "Your internship summer is next year. Between now and then, keep your grades pristine, make the partners at Henderson remember your name, and for the love of God, don't get pregnant."
+— This is sophomore year, Jane said as they stood to leave. Your internship summer is next year. Between now and then, keep your grades pristine, make the partners at Henderson remember your name, and for the love of God, don't get pregnant.
 
 Anna laughed despite herself. "Noted."
 
@@ -226,31 +226,31 @@ She made it with two minutes to spare, sliding into Corporate Finance still thin
 
 Microeconomics after that. Then a sandwich eaten while walking to a Women in Business board meeting in a seminar room nobody had booked but Anna had commandeered anyway. She ran it like a deal call. Assignments, deadlines, accountability. 
 
-"We're done at 5:20," she said. "If it's not important enough for this room, it's an email."
+— We're done at 5:20, she said. If it's not important enough for this room, it's an email.
 
 But she couldn't quite focus. Jane's words kept looping in her head—the way she'd talked about men and ambition, about the price of wanting everything. Not bitter, just factual. Like she'd discovered the exchange rate for success and was reporting the numbers.
 
 After the meeting, Claire looped an arm through hers as they walked back toward the house. "You've been weird all day."
 
-"I'm not weird."
+— I'm not weird.
 
-"You let Rebecca talk for six minutes about vision boards. You're either sick or distracted."
+— You let Rebecca talk for six minutes about vision boards. You're either sick or distracted.
 
 Anna smiled despite herself. "I had breakfast with Jane this morning."
 
-"Ah. And she told you that sleep is for the weak and networking is a blood sport?"
+— Ah. And she told you that sleep is for the weak and networking is a blood sport?
 
-"Something like that." Anna paused. She wanted to tell Claire, but it wasn't her story to tell. "She's just—she's really alone, you know? She has everything. The job, the apartment, the salary. And she's alone."
+— Something like that. Anna paused. She wanted to tell Claire, but it wasn't her story to tell. She's just—she's really alone, you know? She has everything. The job, the apartment, the salary. And she's alone.
 
 Claire was quiet for a moment. "Do you want to end up like her?"
 
-"I don't know," Anna said honestly. "Sometimes I think I do."
+— I don't know, Anna said honestly. Sometimes I think I do.
 
 They walked past Butler Library, past students in Columbia sweatshirts who hadn't yet learned to dress like they were auditioning for their futures. The campus felt enormous and small at the same time—full of people performing ambition, practicing for lives they hadn't earned yet.
 
-"Do you think she regrets it?" Claire asked quietly.
+— Do you think she regrets it? Claire asked quietly.
 
-"No," Anna said. "I don't think she regrets anything. That's what makes it so—" She searched for the word. "Honest. She's not trying to warn me away from wanting what she has. She's just showing me what the price tag looks like."
+— No, Anna said. I don't think she regrets anything. That's what makes it so— She searched for the word. Honest. She's not trying to warn me away from wanting what she has. She's just showing me what the price tag looks like.
 
 Claire linked their arms together, the way they used to walk in freshman year when everything felt possible and nothing felt decided yet. "And are you willing to pay it?"
 
@@ -260,11 +260,11 @@ Claire squeezed her arm once, then let go. They parted ways at the library steps
 
 At the tennis courts, Anna changed quickly and grabbed a racket. Practice was wind sprints and second serves until her legs felt like someone else's. Coach Martha watched from the baseline, arms crossed, eyes narrowed in that way that meant she was cataloging every weak shot, every hesitation.
 
-"You play like you're angry," Coach called after Anna double-faulted for the third time.
+— You play like you're angry, Coach called after Anna double-faulted for the third time.
 
-"I'm focused."
+— I'm focused.
 
-"Same thing. Use it." Coach tossed her another ball. "Whatever's in your head, put it in the serve."
+— Same thing. Use it. Coach tossed her another ball. Whatever's in your head, put it in the serve.
 
 Anna did. The ball cracked against the court like punctuation.
 
@@ -290,15 +290,15 @@ By Friday, Anna had thrown herself into fundraiser prep with the kind of focus t
 
 The dean came for twenty minutes, which was exactly the goal. Anna made sure to introduce three freshmen to three alumni who mattered, deflected a junior's pitch for a "wellness seminar," and then escaped to the kitchen to eat a brownie the size of her palm when nobody was looking.
 
-"You throw a good party," someone said from the doorway.
+— You throw a good party, someone said from the doorway.
 
 Anna turned. Not Jane—thank God. A senior named Melissa who'd graduated last year and now worked in consulting. "It's a fundraiser."
 
-"Same thing." Melissa grabbed a brownie. "You're Anna, right? Jane mentions you constantly. Said you're the one to watch."
+— Same thing. Melissa grabbed a brownie. You're Anna, right? Jane mentions you constantly. Said you're the one to watch.
 
-"Jane talks about me?"
+— Jane talks about me?
 
-"Only when she's three drinks in and feeling sentimental. Which is rare." Melissa smiled. "She doesn't mentor many people. You're lucky."
+— Only when she's three drinks in and feeling sentimental. Which is rare. Melissa smiled. She doesn't mentor many people. You're lucky.
 
 Anna thought about Jane at that cafe again. The tightness around her eyes. The clinic appointment on Saturday. "Yeah," Anna said quietly. "Lucky."
 
@@ -306,29 +306,29 @@ Back in the main room, the party had reached that stage where everyone was buzze
 
 And there, by the door, was Jason. In a jacket that said his parents had a townhouse, scanning the room like he was deciding whether it was worth his time. When he saw Anna, he crossed to her and kissed her in front of everyone—possessive, like a claim—and whispered, "You look incredible," like an indulgence he was allowing himself.
 
-"You came," Anna said, surprised despite herself.
+— You came, Anna said, surprised despite herself.
 
-"You're here. So I'm here." He said it like it was romantic, but it felt like monitoring. "Maison is still holding a table. We could make dessert."
+— You're here. So I'm here. He said it like it was romantic, but it felt like monitoring. Maison is still holding a table. We could make dessert.
 
 Anna looked around. The banner was down. The kitchen was clean. Claire had the interns counting cash. Work was, technically, done.
 
-"Okay," she said.
+— Okay, she said.
 
 Maison was late seating and low lighting that made everyone look like they were in a perfume ad. Jason ordered in French that sounded practiced, held court with the waiter, and then, like a spotlight swiveling, turned his full attention on her.
 
-"Tell me your plans for the future."
+— Tell me your plans for the future.
 
-"Henderson & Associates," she said. "Get the internship next summer, then full-time after graduation. Learn everything. Deals, mergers, the models. Work my way up. Vice president by thirty-five, maybe board by fifty." She said it like it was simple, like it wasn't everything.
+— Henderson & Associates, she said. Get the internship next summer, then full-time after graduation. Learn everything. Deals, mergers, the models. Work my way up. Vice president by thirty-five, maybe board by fifty. She said it like it was simple, like it wasn't everything.
 
 Jason leaned back, considering. "That's a lot."
 
-"It's what I want."
+— It's what I want.
 
-"I know, but—" He reached across the table, his hand covering hers. "Look, I've been thinking. Your mom's working herself to death at that cashier job. My dad knows people. We could get her something better. A secretary position, maybe. Regular hours. Or my parents could help out with money. Take some of the weight off your shoulders."
+— I know, but— He reached across the table, his hand covering hers. Look, I've been thinking. Your mom's working herself to death at that cashier job. My dad knows people. We could get her something better. A secretary position, maybe. Regular hours. Or my parents could help out with money. Take some of the weight off your shoulders.
 
 Anna's hand went still. "That's really nice of you, but we're managing."
 
-"You don't have to manage," he said, his thumb moving over her knuckles. "You could just... relax. Have fun. You're always so stressed. Let me help."
+— You don't have to manage, he said, his thumb moving over her knuckles. You could just... relax. Have fun. You're always so stressed. Let me help.
 
 It was sweet. It was also suffocating. Anna pulled her hand back to pick up her wine glass. "I appreciate it. Really. But I've got it."
 
@@ -342,17 +342,17 @@ Anna woke the next morning thinking about her. At eleven, she'd be at a clinic i
 
 Anna didn't know what to do with that information. So she did what she always did when she felt powerless: she worked. Problem sets, recruiting prep, email triage. She called her mother while walking uptown to grab lunch.
 
-"Are you eating?" her mother asked, as if Anna were still seventeen and forgetting meals between tennis practice and debate.
+— Are you eating? her mother asked, as if Anna were still seventeen and forgetting meals between tennis practice and debate.
 
-"I'm eating. I'm sleeping. I'm making good choices."
+— I'm eating. I'm sleeping. I'm making good choices.
 
-"Good. Your stepdad says hi. He fixed a Lexus today and thinks he's a surgeon."
+— Good. Your stepdad says hi. He fixed a Lexus today and thinks he's a surgeon.
 
-"Tell him surgeons wish they had his job security."
+— Tell him surgeons wish they had his job security.
 
 Her mother laughed, tired and warm. "I miss you, baby."
 
-"I know. I miss you too."
+— I know. I miss you too.
 
 After they hung up, Anna bought a croissant and ate it on a stoop, watching the city move. A child dropped a stuffed rabbit and howled like the world was ending. A woman in a red coat ran a meeting into her phone, striding like the sidewalk was a treadmill and she was winning. New York pulsed around her—indifferent and perfect.
 
@@ -360,15 +360,15 @@ She spent the rest of Saturday working, then sleeping fitfully, dreaming about c
 
 When she finally made it back to her room, Jason was waiting outside her door with takeout containers and a movie tucked under his arm. He rearranged her textbooks into a stack that pleased his sense of order and sprawled on her bed like he lived there.
 
-"You work too much," he said, not for the first time. "You can still be the best without killing yourself. Delegate."
+— You work too much, he said, not for the first time. You can still be the best without killing yourself. Delegate.
 
-"I will when I trust other people to care as much as I do."
+— I will when I trust other people to care as much as I do.
 
-"Not everything has to be a battle, Anna."
+— Not everything has to be a battle, Anna.
 
-"It's not a battle," she said, keeping her voice light. "It's a plan. And I'm executing it."
+— It's not a battle, she said, keeping her voice light. It's a plan. And I'm executing it.
 
-"Well, my plan," he said, pulling her down next to him and kissing her forehead like a benediction, "is to make sure you don't burn out before you get everything you want."
+— Well, my plan, he said, pulling her down next to him and kissing her forehead like a benediction, is to make sure you don't burn out before you get everything you want.
 
 She smiled because the intention was sweet. But the phrasing stuck in her throat. *Before you get everything you want.* As if he were the gatekeeper. As if her ambition needed his permission to exist.
 
@@ -376,13 +376,13 @@ Someone knocked. Claire's voice, urgent through the door: "Anna? Can you come do
 
 Anna excused herself and found Claire on the stoop in pajama pants and a sweatshirt, arms wrapped around herself against the October cold.
 
-"What happened?"
+— What happened?
 
-"Nothing. Everything. I just—" Claire exhaled hard. "Do you ever feel like you're rehearsing a life someone else wrote for you?"
+— Nothing. Everything. I just— Claire exhaled hard. Do you ever feel like you're rehearsing a life someone else wrote for you?
 
-"Sometimes," Anna admitted. "Yeah."
+— Sometimes, Anna admitted. Yeah.
 
-"I don't want to be anyone's plus-one," Claire said fiercely. "I want to be the reason someone needs an extra chair."
+— I don't want to be anyone's plus-one, Claire said fiercely. I want to be the reason someone needs an extra chair.
 
 Anna laughed, soft and surprised. "Put that on a tote bag. I'll be the first customer."
 
@@ -418,33 +418,33 @@ Senior spring came with absurd sunshine. The kind that made the steps of Low Lib
 
 Anna and Claire were about to graduate. Jason too. Jane was thriving at Henderson—closing deals, on track for early promotion, becoming the story girls in pencil skirts told each other to prove it could be done.
 
-"We should move in together next year," Jason said in March, as if it were a to-do on Anna's list. They were walking past the Alma Mater, coffees in hand, her tote too heavy with printouts she'd highlighted within an inch of their lives. "Find a place in the West Village. I'll be at Goldman by July. You'll be at Henderson by August. It's perfect."
+— We should move in together next year, Jason said in March, as if it were a to-do on Anna's list. They were walking past the Alma Mater, coffees in hand, her tote too heavy with printouts she'd highlighted within an inch of their lives. Find a place in the West Village. I'll be at Goldman by July. You'll be at Henderson by August. It's perfect.
 
-“We could,” Anna said lightly.
+— We could, Anna said lightly.
 
-“We should,” he pressed. “Unless you want to do that roommate thing.”
+— We should, he pressed. Unless you want to do that roommate thing.
 
-“Claire’s my best friend.”
+— Claire’s my best friend.
 
-"Sure. But we're building a life together." He squeezed her waist in a way that read "be reasonable".
+— Sure. But we're building a life together. He squeezed her waist in a way that read be reasonable.
 
 She smiled and changed the subject to commencement tickets. She'd learned to pick her moments.
 
 The offers came. Henderson & Associates for her — Junior Analyst in M&A, the email that made her sit down on the floor and laugh until she cried. Jason's offer from Goldman (his family's connections), was no surprise. Claire accepted a junior strategy associate role at a med-tech firm that made devices small enough to feel like miracles.
 
-“We’re doing it,” Claire kept saying. “We actually did it.”
+— We’re doing it, Claire kept saying. We actually did it.
 
 There were dinners and speeches and a thousand photos where everyone looked both young and like they were trying on the next decade to see how it fit.
 
 Jane took Anna for martinis at a hotel bar where the chairs were velvet and the bartenders pretended they didn’t notice anyone. “Congratulations,” Jane said, power coiled and casual. “Now the real test. Say no to the wrong things faster.”
 
-“Such as?”
+— Such as?
 
-"Men who want to control your calendar. Committees that want your unpaid labor disguised as networking. Parties in which you're decoration, not a guest. And anyone who asks for a 'quick coffee' when they really just want to take from you without giving anything back."
+— Men who want to control your calendar. Committees that want your unpaid labor disguised as networking. Parties in which you're decoration, not a guest. And anyone who asks for a 'quick coffee' when they really just want to take from you without giving anything back.
 
-"That's specific."
+— That's specific.
 
-"That's three years of experience," Jane said dryly.
+— That's three years of experience, Jane said dryly.
 
 By May, everything seemed to be falling into place. Degrees confirmed, job offers accepted, apartment hunting underway. If Anna occasionally felt a knot of dread in quiet moments, she told herself it was just pre-graduation nerves. Starting a new life was supposed to feel overwhelming.
 
@@ -452,43 +452,43 @@ Then came the fight. A Tuesday night in her sorority room.
 
 Anna's eyes were swollen in a way makeup couldn't fix. She was on the floor with her back against her bed, a blanket around her shoulders, hair a total mess. Claire sat cross-legged, passing tissues like rations.
 
-"It started about apartment hunting," Anna said, voice raw, words sliding out like they had been waiting for permission. "Then it became about everything — the future he'd been planning without asking me. Children, how many, when. He said I wouldn't need to work so hard once we were married, that I could 'take a step back' after a few years at Henderson." She laughed, bitter. "Like he was offering me a gift."
+— It started about apartment hunting, Anna said, voice raw, words sliding out like they had been waiting for permission. Then it became about everything — the future he'd been planning without asking me. Children, how many, when. He said I wouldn't need to work so hard once we were married, that I could 'take a step back' after a few years at Henderson. She laughed, bitter. Like he was offering me a gift.
 
-"Jesus," Claire breathed.
+— Jesus, Claire breathed.
 
-"I have always felt that he wanted to boss me around," Anna continued. "I just couldn't take it anymore."
+— I have always felt that he wanted to boss me around, Anna continued. I just couldn't take it anymore.
 
 Claire didn’t say I told you so. She just reached over and took Anna’s hand. “You chose you,” she said. “I am so proud of you.”
 
-“He said I wouldn’t have to worry about anything.”
+— He said I wouldn’t have to worry about anything.
 
-“You don’t worry because you do things,” Claire said. “That’s who you are.”
+— You don’t worry because you do things, Claire said. That’s who you are.
 
 Anna laughed a little, ridiculous and wet. “I feel stupid.”
 
-"You are not stupid. You are heartbroken and dehydrated." Claire handed her a water bottle. "Drink."
+— You are not stupid. You are heartbroken and dehydrated. Claire handed her a water bottle. Drink.
 
 Claire's phone buzzed. She glanced at it, then at Anna. "I'm texting Jane."
 
-"Don't—"
+— Don't—
 
-"Too late. Already texted her." Claire's voice was firm. "You need someone who's been where you're going."
+— Too late. Already texted her. Claire's voice was firm. You need someone who's been where you're going.
 
 Twenty minutes later, a knock. Jane, in the doorway, somehow both gentle and immovable. She came in without waiting for permission, setting down her bag and assessing the scene with the efficiency of someone who'd seen this before.
 
-"Claire gave me the highlights," Jane said, sitting on the edge of the bed. "Wanna tell me the rest?"
+— Claire gave me the highlights, Jane said, sitting on the edge of the bed. Wanna tell me the rest?
 
 Anna inhaled. "I didn't want to bother you with this, I know you think this is stupid."
 
-"Stupid?" Jane's expression sharpened. "Ending something that was trying to make you smaller? That's the opposite of stupid." She sat on the bed, her expression both firm and genuinely concerned. "You'll be grateful you did this. Maybe not tomorrow, but in five years. Ten. Twenty."
+— Stupid? Jane's expression sharpened. Ending something that was trying to make you smaller? That's the opposite of stupid. She sat on the bed, her expression both firm and genuinely concerned. You'll be grateful you did this. Maybe not tomorrow, but in five years. Ten. Twenty.
 
-“I’m grateful today,” Claire said, fierce.
+— I’m grateful today, Claire said, fierce.
 
-"Good," Jane said. "Now let's be practical. Start apartment hunting this weekend. Keep busy so you remember this is your life, not his. And when you start at Henderson, I'll make sure Tom Harrison puts you on a live deal right away. Set the tone early."
+— Good, Jane said. Now let's be practical. Start apartment hunting this weekend. Keep busy so you remember this is your life, not his. And when you start at Henderson, I'll make sure Tom Harrison puts you on a live deal right away. Set the tone early.
 
 Anna wiped her face. "You can do that?"
 
-"I have some pull," Jane said with a dry smile. "And Anna? Don't apologize for wanting what you want."
+— I have some pull, Jane said with a dry smile. And Anna? Don't apologize for wanting what you want.
 
 The next few weeks passed in a blur of finals, goodbyes, and carefully avoiding Jason in shared spaces. Anna threw herself into graduation prep the way she threw herself into everything—thoroughly, methodically, with no room for hesitation. It was easier than sitting still. Easier than letting herself feel the hollowness that opened up every time she saw a couple walking hand-in-hand or thought about the apartment they'd never share. She cried twice more—once in the library bathroom at 2 a.m., once on Claire's shoulder after too much wine—but mostly, she just kept moving.
 
@@ -502,9 +502,9 @@ Her stepfather kissed her forehead. "You did it, kiddo. You really did it."
 
 Anna held onto them both, letting herself feel it—the weight of what she'd accomplished, the distance she'd traveled. Jason was somewhere across the lawn with his family, but here, with her mom's hands on her face and tears in her eyes, Anna felt something shift. This was who she'd done it for. This was why it mattered.
 
-"Henderson & Associates starts in August," Anna said, smiling through her own tears. "I'm going to make you proud."
+— Henderson & Associates starts in August, Anna said, smiling through her own tears. I'm going to make you proud.
 
-"Baby," her mother said, cupping her face, "you already have."
+— Baby, her mother said, cupping her face, you already have.
 
 After they left—her mom back to her shifts, her stepfather back to the garage—there were pictures where Anna's smile was smaller than usual but still there, because even grief couldn't shrink the fact that she had built something no one had given her.
 
@@ -526,29 +526,29 @@ Upper West Side mornings flooded the apartment with hard, unforgiving light. Ann
 
 She was forty-two now. Vice President of Mergers & Acquisitions at Henderson & Associates. The girl who ran on Riverside and studied under chandeliers had become the woman whose calendar decided other people's quarters. The next rung was close enough to breathe on: Senior Vice President.
 
-"Your coffee."
+— Your coffee.
 
 Andrew slid the mug beside her laptop, careful not to touch the piles of printed models she'd brought home last night. He was tall, Asian, good-looking in a natural way—no beard, just clean-shaven and comfortable in his own skin. A bit sloppy, maybe—barefoot, paint on his forearm, hair a little too long, wearing a t-shirt that had seen better days. But that was Andrew. He'd been a sculptor and mixed-media artist since before they met—assemblages in resin, collages of found objects. He sold pieces occasionally, taught workshops, got by. Their kids adored him, and that mattered more to Anna than she usually admitted.
 
-"You're a saint," she said, taking a sip. Perfect, as always.
+— You're a saint, she said, taking a sip. Perfect, as always.
 
 Sophie appeared, ponytail perfect, stealing toast without breaking stride. "Dad, I need your signature on the field trip form."
 
-"I've got it sugar," Andrew said. "Jake?"
+— I've got it sugar, Andrew said. Jake?
 
-"Soccer," Jake yelled from the hall. "Where are my cleats?"
+— Soccer, Jake yelled from the hall. Where are my cleats?
 
-"By the door. Your left is under the bench," Andrew said, not looking. He always knew where things hid. It was a family miracle.
+— By the door. Your left is under the bench, Andrew said, not looking. He always knew where things hid. It was a family miracle.
 
 Fourteen and eight. Sophie was growing into someone sharp and self-contained. Jake was still all scraped knees and boundless energy. Anna watched them move through the morning routine—backpacks, shoelaces, the chaos that felt like normal—and felt the familiar pull between gratitude and guilt. She was good at her job. She was less certain about this one.
 
 They kissed goodbye in the doorway, familiar and warm. Seventeen years of marriage had a texture—soft in the right places, threadbare in a few, resilient overall. Andrew squeezed her hand.
 
-“You’ll get it,” he said.
+— You’ll get it, he said.
 
-“Get what?”
+— Get what?
 
-“The SVP. It’s yours, sooner or later.”
+— The SVP. It’s yours, sooner or later.
 
 Anna didn’t say that something was ever “hers” until it was on letterhead. She tugged her blazer sleeve and stepped into the elevator.
 
@@ -558,9 +558,9 @@ Denise, her assistant, intercepted her before the turnstiles. "Morning. The boar
 
 Anna's heart ticked once, hard. "Next week?"
 
-"Tuesday at three. Tom wants you prepped with the full portfolio review."
+— Tuesday at three. Tom wants you prepped with the full portfolio review.
 
-"I'll be ready."
+— I'll be ready.
 
 Her office looked out on the skyline, all glass and morning light. Her name was on the door: *Anna Park, VP of Mergers & Acquisitions*. The building hummed with activity around her—deal teams moving through the halls, meetings starting, calls being made. She set down her bag and opened her laptop. Twenty years of work had led to this moment. One more rung, and she'd be exactly where she'd always planned to be.
 
@@ -572,17 +572,17 @@ At noon, Jane called. "Lunch at Mercer. Twenty minutes. Don't make me wait." She
 
 Mercer was all white tablecloths and discreet corners. Jane arrived wearing sunglasses despite the restaurant's dim lighting. She looked impeccable as always—tailored suit, hair pulled back sharply, the kind of presence that made waiters move faster.
 
-"You have seven days to make yourself indispensable," Jane said as she sat down. "Say less in meetings. Let Tom think he's the smartest person in the room. Let the others talk themselves into corners."
+— You have seven days to make yourself indispensable, Jane said as she sat down. Say less in meetings. Let Tom think he's the smartest person in the room. Let the others talk themselves into corners.
 
-"Thank you for the pep talk," Anna said. "I'll frame that advice."
+— Thank you for the pep talk, Anna said. I'll frame that advice.
 
 Jane's mouth curved slightly. "You've earned this. Tom knows it. The board knows it. Never second-guess yourself." She leaned back, studying Anna. "You're ready for this. You've always been ready."
 
 They talked strategy over salads neither of them finished. Jane had been Anna's champion since the beginning—the mentor who'd opened doors, made introductions, smoothed paths. Sometimes Anna wondered what Jane saw in her, what made her worth the investment. But she'd learned not to question good fortune.
 
-"You'll get it," Jane said when they parted. 
+— You'll get it, Jane said when they parted. 
 
-"I will, and SVP is just the beginning. You know me, I won't stop until I'm sitting next to you on the board." Anna said it lightly, half-joking, half-serious.
+— I will, and SVP is just the beginning. You know me, I won't stop until I'm sitting next to you on the board. Anna said it lightly, half-joking, half-serious.
 
 Jane's smile was sharp. "Keep that hunger. Just don't say it out loud to Tom."
 
@@ -604,17 +604,17 @@ The car service dropped her at home just after six. Anna tipped the driver, her 
 
 At home, Andrew was cooking something that smelled like garlic and tomatoes. Jake was sprawled on the floor doing homework with one eye on his tablet. Sophie was on the couch with headphones in, probably texting friends.
 
-"Mom's home!" Jake yelled without looking up.
+— Mom's home! Jake yelled without looking up.
 
-"How was it?" Andrew asked, stirring something on the stove.
+— How was it? Andrew asked, stirring something on the stove.
 
-"Good. Long. The SVP meeting got moved up to next week."
+— Good. Long. The SVP meeting got moved up to next week.
 
 He turned, wooden spoon in hand. "That's great, right?"
 
-"I think so." She set down her bag and kissed his cheek. He smelled like paint and pasta sauce. "What are we having?"
+— I think so. She set down her bag and kissed his cheek. He smelled like paint and pasta sauce. What are we having?
 
-"Puttanesca. Sophie says it's 'too salty' but she always eats three servings."
+— Puttanesca. Sophie says it's 'too salty' but she always eats three servings.
 
 Anna smiled. This was her life. The work she'd built, the family she'd chosen, the routine she'd been piecing together day by day. Twenty years after leaving Jason and Columbia behind, she had what she'd fought for—even if some days it felt more like a negotiation than a victory.
 
@@ -636,7 +636,7 @@ At the office, Denise intercepted her before the turnstiles with a coffee cup. "
 
 Anna took it, frowning slightly. "Who?"
 
-"Didn't catch a name. They said they were running late to a meeting."
+— Didn't catch a name. They said they were running late to a meeting.
 
 Anna sipped it on her way to her office. The taste hit immediately—metallic. Copper and pennies on her tongue. She stopped mid-stride, looked at the cup, then dumped it in the nearest trash can. Probably burnt. Or maybe the espresso machine needed cleaning.
 
@@ -662,29 +662,29 @@ The body was blank. The addressee line half-typed: tom.harr—
 
 Anna stared at it. She'd logged out yesterday. She always did. And this draft hadn't been there when she left at five.
 
-"Denise?" Anna called, calm. "Did anyone use my office last night?"
+— Denise? Anna called, calm. Did anyone use my office last night?
 
 Denise appeared. "Not that I know of. Cleaning crew, maybe?"
 
-"Right." Anna closed the draft and changed her password anyway. It was probably nothing—a system glitch, an auto-restore. Still, a small cold line slid down her back.
+— Right. Anna closed the draft and changed her password anyway. It was probably nothing—a system glitch, an auto-restore. Still, a small cold line slid down her back.
 
 At ten, she had her regular team meeting. Same people, same rhythm, same routine she'd been running for years. Then the junior project manager slid into a seat at the edge of the table, exactly on time, exactly put together.
 
 Jessica Hall had been on Anna's team for only three months, and people already loved her. She was precise without being flashy about it. She remembered birthdays and sent thoughtful follow-ups that made clients feel valued. Her work was impeccable, and she had the kind of warm smile that looked good in every photo.
 
-“Morning,” Jessica said. “I brought copies.” She distributed folders, perfect tabs, perfect margins. 
+— Morning, Jessica said. I brought copies. She distributed folders, perfect tabs, perfect margins. 
 
-“Jessica, you’re on the Archer diligence calendar,” Anna said. “We’re compressing the timeline. I want a redline by Thursday.”
+— Jessica, you’re on the Archer diligence calendar, Anna said. We’re compressing the timeline. I want a redline by Thursday.
 
-“Done,” Jessica said. “Also—your coffee.” She set a fresh cup by Anna’s hand without breaking eye contact with the slides. “Double espresso. One sugar.”
+— Done, Jessica said. Also—your coffee. She set a fresh cup by Anna’s hand without breaking eye contact with the slides. Double espresso. One sugar.
 
 Anna didn’t drink it.
 
 The meeting moved. Numbers. Risk. Timing. Jessica’s voice when she spoke was soft but confident. When it ended, people filed out in twos and threes. Jessica lingered.
 
-“Anything else I can take off your plate?” she asked.
+— Anything else I can take off your plate? she asked.
 
-“You’ve got plenty,” Anna said. “Focus on Archer.”
+— You’ve got plenty, Anna said. Focus on Archer.
 
 Jessica’s mouth quirked. “I like rooms where work is louder than names.”
 
@@ -700,19 +700,19 @@ At noon, she had a working lunch with legal in the conference room.
 
 At three, she stepped out to grab water from the break room. Two analysts stood by the coffee machine, voices low but audible.
 
-"—Whitmore guy? SVP of Private Equity?"
+— —Whitmore guy? SVP of Private Equity?
 
-"Yeah, external hire. Word is he's got serious credentials. Columbia, Wharton MBA, built out the whole PE arm at—"
+— Yeah, external hire. Word is he's got serious credentials. Columbia, Wharton MBA, built out the whole PE arm at—
 
 The first analyst interrupted. "Wait, Whitmore? Like the Whitmores?"
 
-"That's the one. Old money. Connected. Tom apparently loved him."
+— That's the one. Old money. Connected. Tom apparently loved him.
 
 Anna's hand stopped halfway to the water cooler. 
 
 The first analyst asked, "When does he start?"
 
-"Soon. His background check just came back clean, I heard he was referenced by someone in the board."
+— Soon. His background check just came back clean, I heard he was referenced by someone in the board.
 
 She filled her cup slowly, deliberately. Her face showed nothing. When she walked past them, they stopped talking and smiled. She smiled back.
 
@@ -724,17 +724,17 @@ Anna closed her eyes and saw a streetlamp and a kiss that felt like a scene. She
 
 She hit call on Claire before she could talk herself out of it. "You will not believe who's been referenced for SVP of PE," she said when Claire picked up.
 
-"Who?"
+— Who?
 
-"Jason Whitmore."
+— Jason Whitmore.
 
 A beat. "Jesus Christ," Claire said. "Men never die. They rebrand."
 
 Anna laughed, sharp. "Tell me I'm fine."
 
-"You're fine," Claire said. "You've been fine for twenty years without him. You'll be fine through whatever this is."
+— You're fine, Claire said. You've been fine for twenty years without him. You'll be fine through whatever this is.
 
-"Yeah," Anna said. She wished she believed it.
+— Yeah, Anna said. She wished she believed it.
 
 At five, she packed her bag. She threw the lemon tart in the trash herself. Her laptop went into her tote—deals didn't stop at five. On impulse, she opened her top desk drawer, then closed it most of the way and placed a sticky note across the gap between the drawer's edge and the desk frame. It was something her mother would do: a tiny trap.
 
@@ -746,7 +746,7 @@ On the way out, Jessica caught up to her at the elevator. “I’m stopping by a
 
 Anna smiled. She didn't love that Jessica was including Andrew in the invitation—casually, like she knew him—but it seemed innocent enough to let slide. "Send me the name."
 
-“I will.” Jessica’s smile brightened, pleased. “Have a good night, Anna.”
+— I will. Jessica’s smile brightened, pleased. Have a good night, Anna.
 
 In the lobby, Anna checked her phone. A new text from an unknown number was waiting.
 
@@ -762,7 +762,7 @@ She deleted the text, pushed through the glass doors, and headed home.
 
 At home, over dishes, Andrew mentioned the gallery commission again: he’d turned it down.
 
-“They wanted replicas for a hotel chain,” he said. “Pretty, forgettable.”
+— They wanted replicas for a hotel chain, he said. Pretty, forgettable.
 
 Anna did the math and said nothing. Integrity had a price; they were both keeping different ledgers.
 
@@ -778,7 +778,7 @@ The call came on a Thursday morning. Andrew took it in the studio. Anna was in a
 
 She left the building without explaining. In the car, she called him back. His voice when he answered was hollow.
 
-"She's gone," he said. He wasn't crying yet. He was just stating it like a fact that hadn't arrived yet.
+— She's gone, he said. He wasn't crying yet. He was just stating it like a fact that hadn't arrived yet.
 
 Anna told the driver to drive faster than he should have. When she got home, she found him sitting on the studio floor, phone still in his hand, paint on his forearm.
 
@@ -796,13 +796,13 @@ Anna tucked it into a drawer and forgot about it.
 
 Anna didn't cry at the funeral. She held herself together, managed the logistics, made sure everyone had what they needed. That night, and for many nights after, Andrew cried in the dark. Anna lay beside him and didn't know what to say. She always knew what to say, why did it feel so hard to speak up now?
 
-"I should have done more," Andrew whispered one night.
+— I should have done more, Andrew whispered one night.
 
-"You did everything," Anna said.
+— You did everything, Anna said.
 
-"It wasn't enough."
+— It wasn't enough.
 
-"It never is."
+— It never is.
 
 He turned away. She let him.
 
@@ -824,9 +824,9 @@ She didn't respond. She got back to work.
 
 The Archer deal bled into overtime. Models shifted, assumptions broke. Anna worked until midnight most nights. When she came home, Andrew was either painting in the studio or sitting in the dark.
 
-"How are you?" she'd ask as if her mind was set on him, not her deadlines.
+— How are you? she'd ask as if her mind was set on him, not her deadlines.
 
-"Fine," he'd say.
+— Fine, he'd say.
 
 They were both lying.
 
@@ -834,23 +834,23 @@ Two weeks after the funeral, Jessica texted Andrew. Anna only knew because she s
 
 Anna frowned. "How does she have your number?"
 
-"I gave it to her," Andrew said. "She bought one of my pieces last month. A collector."
+— I gave it to her, Andrew said. She bought one of my pieces last month. A collector.
 
-"Jessica Hall bought your art?"
+— Jessica Hall bought your art?
 
-"She came to the studio. Said she'd been following my work online." He looked at Anna, tired. "She actually gets it, Anna. She asked real questions. About Mia, about what I was trying to say with the work. She also talks about you a lot, she really admires you."
+— She came to the studio. Said she'd been following my work online. He looked at Anna, tired. She actually gets it, Anna. She asked real questions. About Mia, about what I was trying to say with the work. She also talks about you a lot, she really admires you.
 
 Anna felt a prickle at the back of her neck. "That's great," she said carefully. "I didn't know she was into your art."
 
-"She said she wanted to support someone going through a hard time." Andrew picked up his phone and typed something back. "It was kind."
+— She said she wanted to support someone going through a hard time. Andrew picked up his phone and typed something back. It was kind.
 
-"What are you saying?"
+— What are you saying?
 
-"Just that I appreciated it." He showed her the screen—a simple thank you message. "She's being nice, Anna. That's all."
+— Just that I appreciated it. He showed her the screen—a simple thank you message. She's being nice, Anna. That's all.
 
 Anna wanted to say something, but what? That her junior project manager texting her grieving husband felt wrong? That would sound paranoid. Controlling.
 
-"Of course," Anna said. She went upstairs and opened her laptop and let the work swallow her.
+— Of course, Anna said. She went upstairs and opened her laptop and let the work swallow her.
 
 But the prickle stayed. At work, at home, in the moments between sleep and waking. Jessica's name kept appearing—in emails, in meeting notes, in Andrew's texts. Always helpful. Always present. Always just a little too perfect.
 
@@ -864,7 +864,7 @@ A presentation deck corrupted the morning of a pitch. Luckily Rachel had backups
 
 Her office plant wilted overnight. It was a succulent Sophie had given her. The soil smelled chemical, something was wrong.
 
-"Someone salted it," Denise said flatly. "Who would do that?"
+— Someone salted it, Denise said flatly. Who would do that?
 
 Anna didn't answer because she didn't know, and not knowing felt like standing in a dark room with something breathing behind her.
 
@@ -876,71 +876,71 @@ She was up all night rehearsing answers, preparing for questions she couldn't pr
 
 She showed up at 8:35, polished and prepared, exhausted and nervous. Tom's assistant looked confused.
 
-"There's nothing on his calendar," she said gently.
+— There's nothing on his calendar, she said gently.
 
-"But I got an invite—" Anna pulled out her phone. The invite was gone.
+— But I got an invite— Anna pulled out her phone. The invite was gone.
 
 Tom stepped out of his office, coffee in hand. "Anna? Everything okay?"
 
-"I—yes. Sorry. I must have misread something." She smiled like nothing was cracking.
+— I—yes. Sorry. I must have misread something. She smiled like nothing was cracking.
 
 In the elevator, her heart hammered. Someone was inside her calendar. Inside her email. Inside her life.
 
 She changed her passwords. All of them. IT ran a scan. Nothing.
 
-"No unauthorized access," the tech said. "Your system's clean."
+— No unauthorized access, the tech said. Your system's clean.
 
 But it wasn't. She could feel it.
 
 At home, Andrew was spending more time on his phone. Smiling at the screen. Texting back quickly, like the messages were important.
 
-"Who are you talking to?" Anna asked one night, exhaustion making her sharper than she meant to be.
+— Who are you talking to? Anna asked one night, exhaustion making her sharper than she meant to be.
 
-"Jessica," Andrew said. "She asked about the next gallery show."
+— Jessica, Andrew said. She asked about the next gallery show.
 
 Anna set her jaw. "You're texting my junior PM about art shows."
 
-"She's a collector, Anna."
+— She's a collector, Anna.
 
-"So what? What do you guys talk about?"
+— So what? What do you guys talk about?
 
-"Life. Art. Mia." His voice broke on the name.
+— Life. Art. Mia. His voice broke on the name.
 
 Anna felt something cold slide through her ribs. "I'm here, Andrew. You can talk to me."
 
-"I know," he said quietly. He looked down at his hands. "It's just—you have so much on your plate. Jessica asks about Mia, and she listens. She's not trying to fix it."
+— I know, he said quietly. He looked down at his hands. It's just—you have so much on your plate. Jessica asks about Mia, and she listens. She's not trying to fix it.
 
 Anna wanted to say she could listen too, but the words stuck. Because maybe he was right. Maybe she was always trying to fix things instead of just sitting with him in the grief.
 
 But something else was stuck in her throat too. Something she couldn't ignore anymore.
 
-"Andrew, she works for me." Anna set down her laptop. "Jessica is my junior project manager. She reports to me. And she's texting you."
+— Andrew, she works for me. Anna set down her laptop. Jessica is my junior project manager. She reports to me. And she's texting you.
 
-"She's being nice."
+— She's being nice.
 
-"She's crossing a line." Anna's voice was sharper now. "She came to your studio. She bought your art. She got your number. Now she's texting you about your dead sister. Don't you think that's—"
+— She's crossing a line. Anna's voice was sharper now. She came to your studio. She bought your art. She got your number. Now she's texting you about your dead sister. Don't you think that's—
 
-"What?" Andrew looked up, jaw tight. "Don't I think what? That someone is being kind to me? That someone actually cares how I'm feeling?"
+— What? Andrew looked up, jaw tight. Don't I think what? That someone is being kind to me? That someone actually cares how I'm feeling?
 
-"That's not what I—"
+— That's not what I—
 
-"You're making this about you," he said, standing. "Someone reaches out with actual empathy and you turn it into some threat. She's being supportive, Anna. That's all."
+— You're making this about you, he said, standing. Someone reaches out with actual empathy and you turn it into some threat. She's being supportive, Anna. That's all.
 
-"She's my coworker, Andrew. It's inappropriate."
+— She's my coworker, Andrew. It's inappropriate.
 
-"Inappropriate?" He laughed, bitter. "She sent a text. She asked how I was doing. That's inappropriate, but you working until midnight every night, that's fine? You being on your laptop during dinner, that's fine?"
+— Inappropriate? He laughed, bitter. She sent a text. She asked how I was doing. That's inappropriate, but you working until midnight every night, that's fine? You being on your laptop during dinner, that's fine?
 
-"That's not fair."
+— That's not fair.
 
-"None of this is fair." His voice cracked. "My sister is dead. You can't even sit with me for five minutes without checking your email. And the one person who actually listens—who actually asks me real questions—you want me to cut off because it makes you uncomfortable?"
+— None of this is fair. His voice cracked. My sister is dead. You can't even sit with me for five minutes without checking your email. And the one person who actually listens—who actually asks me real questions—you want me to cut off because it makes you uncomfortable?
 
-"I'm asking you to have boundaries with my coworker."
+— I'm asking you to have boundaries with my coworker.
 
-"And I'm asking you to be my wife." He grabbed his jacket. "But I guess we're both asking for things we're not going to get."
+— And I'm asking you to be my wife. He grabbed his jacket. But I guess we're both asking for things we're not going to get.
 
-"Where are you going?"
+— Where are you going?
 
-"Out." He didn't look back. "I need air."
+— Out. He didn't look back. I need air.
 
 The door closed. Not a slam. Just a quiet, final click.
 
@@ -948,15 +948,15 @@ Anna sat in the silence, laptop glowing in front of her, and felt something crac
 
 Another week. The sabotage escalated. A file labeled CONFIDENTIAL—Anna's SVP candidacy materials—appeared in the shared drive for three minutes before vanishing. Denise saw it. So did Marcus. So did half the floor.
 
-"Who put that there?" Marcus asked quietly.
+— Who put that there? Marcus asked quietly.
 
-"I don't know." Anna's voice was ice over panic.
+— I don't know. Anna's voice was ice over panic.
 
 Jessica stopped by her office that afternoon with tea. "You seem stressed," she said softly. "Is everything okay?"
 
 Anna looked at her—doe-eyed, concerned, perfect. "Everything's fine."
 
-"If you ever need to talk, I'm here. I know things have been hard since Mia passed. Andrew's been so strong, but I can tell it's weighing on him. On both of you."
+— If you ever need to talk, I'm here. I know things have been hard since Mia passed. Andrew's been so strong, but I can tell it's weighing on him. On both of you.
 
 Anna's smile was unchanged. "Thank you, Jessica. That's thoughtful."
 
@@ -968,11 +968,11 @@ Anna kept her tone professional, measured. "I appreciate you reaching out to And
 
 Jessica's expression flickered—surprise, then understanding. "Oh. Of course. I didn't mean to overstep. I just thought—"
 
-"I know," Anna said gently. "And I'm not upset. I'm just setting a boundary.Do you understand?"
+— I know, Anna said gently. And I'm not upset. I'm just setting a boundary.Do you understand?
 
-"Absolutely." Jessica nodded quickly. "I'm sorry if I made things uncomfortable. That wasn't my intention."
+— Absolutely. Jessica nodded quickly. I'm sorry if I made things uncomfortable. That wasn't my intention.
 
-"I know it wasn't." Anna's smile was warm, final. "Thank you for understanding."
+— I know it wasn't. Anna's smile was warm, final. Thank you for understanding.
 
 When Jessica left, Anna sat at her desk and wondered if that would be the end of it.
 
@@ -1002,15 +1002,15 @@ She went upstairs and ate leftovers standing at the counter. The apartment was s
 
 Sophie wandered in, ponytail sideways, phone glowing. "Did you get it?"
 
-"What?"
+— What?
 
-"The promotion. Dad said you were supposed to hear this week."
+— The promotion. Dad said you were supposed to hear this week.
 
-"Not yet." Anna kept her voice light. "Still waiting."
+— Not yet. Anna kept her voice light. Still waiting.
 
 Sophie looked up, actually looked. "That sucks."
 
-"It's fine. These things take time."
+— It's fine. These things take time.
 
 Sophie studied her for a long moment, then shrugged and went back to scrolling. "Well, they'd be stupid not to promote you."
 
@@ -1020,13 +1020,13 @@ The sabotage didn't stop. It evolved.
 
 Files renamed in her directory. Nothing catastrophic—just enough to make her look disorganized in meetings. A shared deck with the wrong client logo. A voicemail marked urgent that turned out to be dead air.
 
-"IT says there's no evidence of a breach," Denise said carefully. "They're suggesting it might be…user error."
+— IT says there's no evidence of a breach, Denise said carefully. They're suggesting it might be…user error.
 
 Anna's jaw tightened. "I didn't rename those files."
 
-"I believe you."
+— I believe you.
 
-"Do you?"
+— Do you?
 
 Denise met her eyes. "I do. But Anna, you need to be careful. People are starting to notice. Tom asked me if you were 'managing okay.'"
 
@@ -1036,25 +1036,25 @@ Anna worked later. She double-checked everything. She started keeping a notebook
 
 At home, Andrew was a ghost in his own life. He made breakfast. He drove carpool. He painted until midnight, music loud enough to rattle the walls.
 
-"Are you okay?" Anna asked one morning, catching him in the kitchen.
+— Are you okay? Anna asked one morning, catching him in the kitchen.
 
-"Fine."
+— Fine.
 
-"Andrew—"
+— Andrew—
 
-"I'm fine, Anna." He poured coffee without looking at her. His voice was quiet, tired. "Are you?"
+— I'm fine, Anna. He poured coffee without looking at her. His voice was quiet, tired. Are you?
 
-"I'm not off."
+— I'm not off.
 
-"I didn't say you were." He paused, still not meeting her eyes. "You're working until eleven every night. You're barely sleeping. Sophie asked me yesterday if... if you were mad at her."
+— I didn't say you were. He paused, still not meeting her eyes. You're working until eleven every night. You're barely sleeping. Sophie asked me yesterday if... if you were mad at her.
 
-"I'm fine. I'm not mad at anyone."
+— I'm fine. I'm not mad at anyone.
 
-"I know you're not." He set down his mug carefully. "I just worry that you're not taking care of yourself."
+— I know you're not. He set down his mug carefully. I just worry that you're not taking care of yourself.
 
 The concern in his voice made something tighten in her chest. Anna opened her mouth to respond, then closed it. She didn't have the energy.
 
-"I have a pitch at nine," she said instead.
+— I have a pitch at nine, she said instead.
 
 He nodded slowly, looking down at his coffee. "Okay."
 
@@ -1064,53 +1064,53 @@ Jessica's name kept appearing in Andrew's phone.
 
 Anna only knew because she saw a text notification light up the screen one afternoon in the studio—Jessica's name, a message preview about "the gallery show."
 
-"You're still talking to Jessica?" Anna asked, trying to keep her voice neutral.
+— You're still talking to Jessica? Anna asked, trying to keep her voice neutral.
 
 Andrew looked up from his canvas. "She's helping me plan the show. She knows some gallery owners."
 
 Anna felt something cold settle in her stomach. "I thought you were working with Ben on that."
 
-"I am. I asked Jessica if she knew anyone who could help. She has connections." He set his brush down. "She actually understands the work, Anna. She asks real questions."
+— I am. I asked Jessica if she knew anyone who could help. She has connections. He set his brush down. She actually understands the work, Anna. She asks real questions.
 
-"Still, I asked her to give you space. A few weeks ago. Professionally."
+— Still, I asked her to give you space. A few weeks ago. Professionally.
 
 Andrew's expression shifted—not guilt, but surprise, then frustration. "You did what?"
 
-"I asked her to respect boundaries. You're my husband, she's my coworker."
+— I asked her to respect boundaries. You're my husband, she's my coworker.
 
-"So you told her to stay away from me? Without asking me?" His voice was tight now. "Anna, she's been one of the only people who actually wants to talk about Mia. Who doesn't just change the subject or tell me to 'focus on the positive.'"
+— So you told her to stay away from me? Without asking me? His voice was tight now. Anna, she's been one of the only people who actually wants to talk about Mia. Who doesn't just change the subject or tell me to 'focus on the positive.'
 
-"I'm here. You can talk to me."
+— I'm here. You can talk to me.
 
-"Can I?" He looked at her directly. "Because every time I try, you're on your laptop. Or you're checking your phone. Or you're telling me what I should do instead of just listening."
+— Can I? He looked at her directly. Because every time I try, you're on your laptop. Or you're checking your phone. Or you're telling me what I should do instead of just listening.
 
 The words landed like stones. Anna wanted to argue, but couldn't find the ground to stand on.
 
-"She works for me, Andrew."
+— She works for me, Andrew.
 
-"And I'm grieving my sister." His voice cracked slightly. "She's helping me with my work—actual gallery contacts that could make a difference for my career. And yes, she's been kind. She asks about Mia. She doesn't treat my grief like it's something I need to hurry up and get over."
+— And I'm grieving my sister. His voice cracked slightly. She's helping me with my work—actual gallery contacts that could make a difference for my career. And yes, she's been kind. She asks about Mia. She doesn't treat my grief like it's something I need to hurry up and get over.
 
 Anna wanted to say that Jessica felt wrong, that every interaction felt calculated. But Andrew was looking at her like she was being unreasonable, and maybe she was.
 
 He studied her for a moment, concern flickering across his face. "Anna, are you okay? You seem..."
 
-"I'm fine."
+— I'm fine.
 
-"You don't seem fine. You've been on edge for weeks." His voice was gentle, worried. "Maybe it would help to talk to someone?"
+— You don't seem fine. You've been on edge for weeks. His voice was gentle, worried. Maybe it would help to talk to someone?
 
-"Talk to someone?" She laughed, sharp. "You think I need therapy?"
+— Talk to someone? She laughed, sharp. You think I need therapy?
 
-"I think you're stressed. And grief does weird things to people."
+— I think you're stressed. And grief does weird things to people.
 
-"I'm not grieving. You are."
+— I'm not grieving. You are.
 
 The silence that followed was so heavy she felt it in her ribs.
 
-"Get out," Andrew said quietly.
+— Get out, Andrew said quietly.
 
-"Andrew—"
+— Andrew—
 
-"Get. Out."
+— Get. Out.
 
 She left. She went to the office. She worked until her eyes burned.
 
@@ -1132,9 +1132,9 @@ The hospital was chaos—the usual hum of fluorescent lights and disinfectant an
 
 The nurse checked the system. Frowned. "I don't see anyone by that name admitted today."
 
-"Mount Sinai called my office. They said she fell."
+— Mount Sinai called my office. They said she fell.
 
-"Let me check ER admissions." The nurse typed, scrolled, shook her head. "No record. Are you sure it was this hospital?"
+— Let me check ER admissions. The nurse typed, scrolled, shook her head. No record. Are you sure it was this hospital?
 
 Anna's hands were shaking. "Can you check again? Her name is Margaret Bennett."
 
@@ -1142,17 +1142,17 @@ Another check. Another shake of the head. "I'm sorry. There's no one here by tha
 
 Anna stepped outside and called her mother. It rang three times, then her mother's familiar voice: "Hello?"
 
-"Mom?"
+— Mom?
 
-"Anna? What's wrong?"
+— Anna? What's wrong?
 
-"Are you okay? Where are you?"
+— Are you okay? Where are you?
 
-"I'm at home. Why? You sound—"
+— I'm at home. Why? You sound—
 
-"You're fine? You didn't fall?"
+— You're fine? You didn't fall?
 
-"Fall? No, honey, I'm fine. I'm doing laundry. What's going on?"
+— Fall? No, honey, I'm fine. I'm doing laundry. What's going on?
 
 Anna pressed her fingers to her temples. Her vision blurred. "Nothing. I just—I thought—never mind. I'll call you later."
 
@@ -1162,11 +1162,11 @@ Someone had called Denise. Someone had pretended to be the hospital. Someone had
 
 She got back in a car and went to the office. When she arrived, Denise looked up, concerned. "Is your mom okay?"
 
-"She was never there." Anna's voice was flat. "There was no fall. No admission. Someone called you pretending to be the hospital."
+— She was never there. Anna's voice was flat. There was no fall. No admission. Someone called you pretending to be the hospital.
 
 Denise's face went white. "What? But they knew your name, your mother's name—"
 
-"I know." Anna walked to her office and closed the door.
+— I know. Anna walked to her office and closed the door.
 
 She sat at her desk and thought about all the ways a person could be dismantled. One lie at a time. One false emergency. One piece of sanity chipped away until you couldn't trust anything anymore.
 
@@ -1220,15 +1220,15 @@ The sabotage was escalating.
 
 Monday morning, a deck she'd finalized Friday night appeared corrupted. Every third slide was blank, charts replaced with error messages. Marcus called her into the conference room where the client waited.
 
-"Anna, we expected the full presentation."
+— Anna, we expected the full presentation.
 
-"It was complete when I sent it."
+— It was complete when I sent it.
 
-"This is what we received." He turned the laptop toward her. Slides 4, 7, 10, 13—all blank. A perfect pattern. Too deliberate to be a glitch.
+— This is what we received. He turned the laptop toward her. Slides 4, 7, 10, 13—all blank. A perfect pattern. Too deliberate to be a glitch.
 
-"I'll resend the original."
+— I'll resend the original.
 
-"We don't have time. The client is here now."
+— We don't have time. The client is here now.
 
 She presented from memory, improvising charts she couldn't display, pulling numbers from recall. When it was over, the client looked skeptical. Marcus looked furious.
 
@@ -1244,29 +1244,29 @@ Later that week, on Wednesday, a calendar invite appeared: **Client Call - Merid
 
 Tom stopped by her office at four.
 
-"Why did you miss the Sanderson meeting?"
+— Why did you miss the Sanderson meeting?
 
-"What Sanderson meeting?"
+— What Sanderson meeting?
 
-"Three o'clock. They waited twenty minutes."
+— Three o'clock. They waited twenty minutes.
 
-"I had a call with Meridian Partners. You sent me the invite."
+— I had a call with Meridian Partners. You sent me the invite.
 
 Tom frowned. "I didn't send you any invite. We don't have a client called Meridian Partners."
 
 Anna opened her calendar. The three o'clock slot now read: **Sanderson Q3 Review**. The Meridian Partners invite had vanished, and when she checked her email, there was no record of Tom sending it.
 
-"Tom, I swear—"
+— Tom, I swear—
 
-"Anna." His voice was careful, the way you'd speak to someone fragile. "I'm concerned about your focus."
+— Anna. His voice was careful, the way you'd speak to someone fragile. I'm concerned about your focus.
 
-"Someone is manipulating my calendar."
+— Someone is manipulating my calendar.
 
-"IT has found no evidence of a breach. They've checked your system three times."
+— IT has found no evidence of a breach. They've checked your system three times.
 
-"Then they're not looking in the right place."
+— Then they're not looking in the right place.
 
-"Or there's nothing to find."
+— Or there's nothing to find.
 
 She wanted to scream. Instead, she nodded and waited for him to leave.
 
@@ -1282,7 +1282,7 @@ Her access badge stopped working for the executive floor. IT claimed it was a sy
 
 Someone called her office phone at midnight. When she answered—still at her desk, still working—the line was dead air. Just breathing. Soft and deliberate.
 
-"Who is this?"
+— Who is this?
 
 Click.
 
@@ -1290,13 +1290,13 @@ Click.
 
 At home, Andrew moved like a ghost. Present but untouchable. He'd stopped asking about her day. Stopped offering to make dinner. He'd wake before her, retreat to the studio, return after she was asleep—or pretending to be.
 
-"How's the new series going?" she asked one morning, trying.
+— How's the new series going? she asked one morning, trying.
 
-"Fine."
+— Fine.
 
-"Are you showing at Manuel's gallery again?"
+— Are you showing at Manuel's gallery again?
 
-"Haven't decided."
+— Haven't decided.
 
 She wanted to reach for him. To say *I'm sorry I doubted you. I'm sorry I turned your grief into something ugly.* But the words stuck. And Andrew didn't make space for them.
 
@@ -1308,17 +1308,17 @@ At work, Anna was untouchable—but not in the way she'd once been. People no lo
 
 Marcus started appearing in meetings she'd normally lead.
 
-"Just want to make sure we're aligned," he'd say, smooth and helpful. But his presence sent a message: *She needs supervision.*
+— Just want to make sure we're aligned, he'd say, smooth and helpful. But his presence sent a message: *She needs supervision.*
 
 Jessica, meanwhile, was beloved.
 
 She remembered birthdays. She asked about people's weekends. She brought bagels on Fridays and stayed late to help junior analysts with decks they'd misaligned. When Anna walked by, people straightened. When Jessica walked by, they smiled.
 
-"She's really wonderful," Marcus said one afternoon, offhand, like it was a fact. "The team loves her."
+— She's really wonderful, Marcus said one afternoon, offhand, like it was a fact. The team loves her.
 
 Anna's jaw tightened. "She's competent."
 
-"She's more than competent. She's kind. It's rare in this business."
+— She's more than competent. She's kind. It's rare in this business.
 
 Anna didn't respond. But she watched Marcus walk away, and something clicked.
 
@@ -1344,37 +1344,37 @@ This was about the SVP position. About her career.
 
 That night, Claire called.
 
-"How are you holding up?"
+— How are you holding up?
 
-"I'm fine."
+— I'm fine.
 
-"You don't sound fine."
+— You don't sound fine.
 
 Anna stared at the notebook spread across her kitchen table, pages full of theories and timelines and paranoia. "Work's been hard."
 
-"What about Andrew?"
+— What about Andrew?
 
-"He's... grieving. I don't think I've been helping."
+— He's... grieving. I don't think I've been helping.
 
 Claire was quiet for a moment. "You know it's okay to not be perfect, right?"
 
-"I'm not trying to be perfect. I'm trying to not fall apart."
+— I'm not trying to be perfect. I'm trying to not fall apart.
 
-"Anna, you're holding everything so tight. Maybe you need to talk to someone. A therapist. Or just... take a breath. Slow down."
+— Anna, you're holding everything so tight. Maybe you need to talk to someone. A therapist. Or just... take a breath. Slow down.
 
 Anna closed the notebook. "Did Andrew talk you into having this conversation?"
 
-"No. I called because I'm worried about you." Claire's voice was gentle but firm. "You sound like you're drowning."
+— No. I called because I'm worried about you. Claire's voice was gentle but firm. You sound like you're drowning.
 
-"I'm fine."
+— I'm fine.
 
-"You're not fine. And that's okay. But you need to let someone help you."
+— You're not fine. And that's okay. But you need to let someone help you.
 
-"I will. I promise." Anna said it automatically, the way you say things to end uncomfortable conversations. "I should go. Early morning tomorrow."
+— I will. I promise. Anna said it automatically, the way you say things to end uncomfortable conversations. I should go. Early morning tomorrow.
 
-"Anna—"
+— Anna—
 
-"I'll call you soon. Love you."
+— I'll call you soon. Love you.
 
 She hung up before Claire could respond, then sat in the dark kitchen, notebook open, pen in hand, documenting everything that was trying to destroy her.
 
@@ -1384,19 +1384,19 @@ Saturday morning, Anna went for a run—something she hadn't done in weeks. Push
 
 When she got back, Andrew was in the kitchen making coffee.
 
-"You went running," he said, surprised.
+— You went running, he said, surprised.
 
-"Yeah."
+— Yeah.
 
 He poured her a cup without asking, set it on the counter. "You're not working today?"
 
-"Not today."
+— Not today.
 
-"Good." He leaned against the counter, watching her. "The kids have been asking when we can all have lunch together. We haven't done that in a while. Sophie's been wanting to show you something she's working on for school."
+— Good. He leaned against the counter, watching her. The kids have been asking when we can all have lunch together. We haven't done that in a while. Sophie's been wanting to show you something she's working on for school.
 
 Anna wrapped her hands around the mug, felt the warmth seep into her palms. "I'd love that."
 
-"We could go to that place they like."
+— We could go to that place they like.
 
 She looked up, met his eyes. "Yeah. That sounds good."
 
@@ -1434,35 +1434,35 @@ Thursday morning, she found a new meeting on her calendar: **Henderson Leadershi
 
 She went to Tom's office.
 
-"Did you remove me from the leadership offsite?"
+— Did you remove me from the leadership offsite?
 
 Tom looked confused. "No. You're presenting the Q4 outlook."
 
-"Then why did I get a removal notice?"
+— Then why did I get a removal notice?
 
-"I have no idea. Let me check." He opened his calendar. "You're on the invite. Active. I didn't remove you."
+— I have no idea. Let me check. He opened his calendar. You're on the invite. Active. I didn't remove you.
 
 Anna felt the walls closing in. "Someone's trying to make me think I'm losing access. Trying to make me panic." She paused. "Tom, remember that Meridian Partners meeting? The one that showed up from your email but you never sent?"
 
 He nodded slowly.
 
-"I think someone hacked your email too. Or at least figured out how to send invites that look like they're from you."
+— I think someone hacked your email too. Or at least figured out how to send invites that look like they're from you.
 
-"Anna—"
+— Anna—
 
-"I'm not imagining this."
+— I'm not imagining this.
 
 Tom studied her for a long moment. "I believe something is happening. But I need you to consider that you might be... under more stress than you realize. When's the last time you took a vacation?"
 
-"I don't need a vacation. I need you to take this seriously."
+— I don't need a vacation. I need you to take this seriously.
 
-"I am. But if this continues, we may need to bring in outside help. IT forensics. Or..." He hesitated. "Other resources."
+— I am. But if this continues, we may need to bring in outside help. IT forensics. Or... He hesitated. Other resources.
 
 She knew what he meant. *Therapist. Medical leave. Forced rest.*
 
-"I'm fine," she said.
+— I'm fine, she said.
 
-"Then prove it. Show me you can handle this role without falling apart."
+— Then prove it. Show me you can handle this role without falling apart.
 
 ---
 
@@ -1475,16 +1475,15 @@ Someone was doing this. And she was going to find out who.
 She opened the notebook. Added a new page.
 
 **Suspects:**
-- Marcus (motive: SVP position)
-- Jessica (access, opportunity, Andrew?)
-- Unknown (someone I haven't considered?)
+— Marcus (motive: SVP position)
+— Jessica (access, opportunity, Andrew?)
+— Unknown (someone I haven't considered?)
 
 She circled Marcus's name.
 
 Then she drove home, kissed her kids goodnight, and lay awake until dawn, thinking about how to catch a saboteur who left no fingerprints.
 
 And wondering if maybe—just maybe—she was sabotaging herself.
-
 
 # Chapter 9
 
@@ -1514,9 +1513,9 @@ Jane: *Call me.*
 
 Denise, in person, hovering: "Did you see the announcement?"
 
-"I saw it."
+— I saw it.
 
-"Do you… know him?"
+— Do you… know him?
 
 Anna's smile was composed, practiced. "We went to college together. It's been a long time."
 
@@ -1524,31 +1523,31 @@ Denise's expression said she knew there was more, but she didn't push.
 
 At lunch, Jane met her at a restaurant with no windows and expensive wine list.
 
-"Tell me you're fine," Jane said.
+— Tell me you're fine, Jane said.
 
-"I'm all right."
+— I'm all right.
 
-"You're lying."
+— You're lying.
 
 Anna took a long sip of her wine. "It was twenty years ago. I'm married. I have kids. He's just another colleague."
 
-"He's your ex who you never talk about." Jane leaned in. "Does Andrew know?"
+— He's your ex who you never talk about. Jane leaned in. Does Andrew know?
 
-"There's nothing to know."
+— There's nothing to know.
 
-"Anna."
+— Anna.
 
-"Jane, I'm fine. Really. It's ancient history."
+— Jane, I'm fine. Really. It's ancient history.
 
 Jane studied her with the same look she gave analysts who lied about their models. "If he tries anything—"
 
-"He won't."
+— He won't.
 
-"If he does, you tell me. I don't care what the board thinks. He doesn't get to make you uncomfortable in your own building."
+— If he does, you tell me. I don't care what the board thinks. He doesn't get to make you uncomfortable in your own building.
 
 Anna felt a flicker of warmth. Jane was cold to most of the world, but not to her. "Thank you."
 
-"Don't thank me. Just don't let him in your head."
+— Don't thank me. Just don't let him in your head.
 
 Too late, Anna thought.
 
@@ -1556,23 +1555,23 @@ That afternoon, she saw him.
 
 The elevator doors opened on fourteen, and there he was. Twenty years had changed him. His hair had gone darker—from the brown she remembered to a deep, rich dark brown, thick and well-groomed. A beard now, also dark, with just the right amount of grey threaded through both his hair and beard—enough to look distinguished, sexy, not enough to look old. Somehow he seemed taller, though that was probably just presence. More attractive than she remembered, which shouldn't have mattered but did. Expensive suit, same confident smile. He looked at her like no time had passed. Like they were still twenty-two and he still had the right to comment on what she wore.
 
-"Anna," he said. One word. Her name in his mouth after two decades.
+— Anna, he said. One word. Her name in his mouth after two decades.
 
-"Jason." She stepped into the elevator. Pressed fifteen. Watched the doors close too slowly.
+— Jason. She stepped into the elevator. Pressed fifteen. Watched the doors close too slowly.
 
-"It's good to see you."
+— It's good to see you.
 
-"Congratulations on the role."
+— Congratulations on the role.
 
-"You too. VP of M&A. I heard you're brilliant at it."
+— You too. VP of M&A. I heard you're brilliant at it.
 
 The elevator climbed. She could feel the heat of him standing too close. Smell the cologne—different from what he used to wear, but the same kind of expensive.
 
-"We should get coffee," he said. "Catch up."
+— We should get coffee, he said. Catch up.
 
-"I'm very busy."
+— I'm very busy.
 
-"I'm sure. But we're going to be working in the same building. Might as well be friendly."
+— I'm sure. But we're going to be working in the same building. Might as well be friendly.
 
 The doors opened. She stepped out without looking back. "Good luck with the transition, Jason."
 
@@ -1584,19 +1583,19 @@ She didn't breathe normally until she was back in her office with the door close
 
 Andrew called at four. "How's your day?"
 
-"Complicated." She couldn't tell him about Jason. Not now. Not with everything else fracturing between them.
+— Complicated. She couldn't tell him about Jason. Not now. Not with everything else fracturing between them.
 
-"Sophie needs a ride home from Emma's. I have a gallery thing tonight."
+— Sophie needs a ride home from Emma's. I have a gallery thing tonight.
 
-"What gallery thing?"
+— What gallery thing?
 
 A pause. "Just... meeting someone who's interested in the grief series. At Manuel's gallery downtown."
 
 Anna's chest tightened. She knew what "someone" meant. Or thought she did. But she couldn't accuse him. Not without proof. "What time?"
 
-"Seven. I should be home by ten."
+— Seven. I should be home by ten.
 
-"All right."
+— All right.
 
 After she hung up, Anna stared at her computer screen and tried to focus on the merger brief in front of her. But Jason's voice kept echoing. *See you around, Anna.*
 
@@ -1635,8 +1634,6 @@ She couldn't decline. Not without looking paranoid. Not without explaining why s
 
 She was stuck.
 
-
-
 ---
 
 Anna sat in the dark living room, listening to the hum of the refrigerator and the distant sound of traffic. Andrew's location pin glowed on her phone screen. Still at Manuel's gallery. Where he'd said he'd be.
@@ -1654,33 +1651,33 @@ Everything she'd built was fracturing. And she couldn't tell which cracks were s
 Anna closed the laptop. Added a new page to her handwritten notebook.
 
 **People who could access my accounts:**
-- IT department
-- Anyone with my passwords (changed 8 times)
-- Someone with physical access to my devices
-- Andrew?
+— IT department
+— Anyone with my passwords (changed 8 times)
+— Someone with physical access to my devices
+— Andrew?
 
 **People who benefit from my failure:**
-- Marcus (wants SVP)
-- Jessica (wants... what? Andrew? My job?)
-- Jason (wants... revenge? To unsettle me?)
+— Marcus (wants SVP)
+— Jessica (wants... what? Andrew? My job?)
+— Jason (wants... revenge? To unsettle me?)
 
 She circled Jason's name. Then Jessica's. Then drew a line connecting them to Andrew.
 
 At ten-forty, she heard keys in the door. Andrew came in quietly, trying not to wake anyone.
 
-"How was your meeting?" Anna asked from the couch.
+— How was your meeting? Anna asked from the couch.
 
 He startled. "Jesus. I thought you'd be asleep."
 
-"How was it?"
+— How was it?
 
-"Fine. Good, actually. They might want to feature three pieces."
+— Fine. Good, actually. They might want to feature three pieces.
 
-"Good," she said. "That's great."
+— Good, she said. That's great.
 
 Andrew studied her for a long moment. "Are you okay? You seem... off."
 
-"I'm fine. Just tired."
+— I'm fine. Just tired.
 
 He nodded, but she could see he didn't believe her. "I'm going to bed."
 
@@ -1726,19 +1723,19 @@ The restaurant was called Aurelio's. All glass and polished marble and waiters w
 
 Tom was already there, along with four other VPs from different divisions. And then there was Jason, sitting at the head of the table like he'd been there for years, not days.
 
-"Anna!" Tom stood, gestured to an empty seat next to Jason. Of course. "Glad you could make it."
+— Anna! Tom stood, gestured to an empty seat next to Jason. Of course. Glad you could make it.
 
-"Wouldn't miss it." She sat, unfolded her napkin, met Jason's eyes for exactly two seconds. Professional. Detached.
+— Wouldn't miss it. She sat, unfolded her napkin, met Jason's eyes for exactly two seconds. Professional. Detached.
 
 Jason smiled. "Good to see you again, Anna."
 
 Again. The word hung in the air. Tom would for sure catch it.Even one of the other VPs glanced between them with mild curiosity before looking back at the menu.
 
-"You two have met?" Tom asked.
+— You two have met? Tom asked.
 
-"Columbia," Anna said smoothly. "Long time ago. Same year, actually. We shared some classes."
+— Columbia, Anna said smoothly. Long time ago. Same year, actually. We shared some classes.
 
-"Finance track," Jason added with a smile. "Competitive bunch."
+— Finance track, Jason added with a smile. Competitive bunch.
 
 Anna's smile didn't waver, but her hands tightened around her water glass.
 
@@ -1752,9 +1749,9 @@ And through it all, Anna could feel his attention on her. Not obvious. Not inapp
 
 When the appetizers were cleared, Jason leaned back in his chair and looked directly at her. "Anna, I heard you're up for SVP. Congratulations."
 
-"Nothing's official yet. It's actually been delayed..." Anna said, her voice crumbling.
+— Nothing's official yet. It's actually been delayed... Anna said, her voice crumbling.
 
-"But soon, I'm sure. Tom speaks very highly of you."
+— But soon, I'm sure. Tom speaks very highly of you.
 
 Tom beamed. "Anna's the best M&A VP we've had in a decade. The board knows it."
 
@@ -1762,33 +1759,33 @@ Anna smiled, accepted the compliment, felt Jason's eyes on her like hands.
 
 The lunch ended at two. Anna was the first one out, but Jason caught her in the hallway before she could escape to the elevator.
 
-"Anna. Wait."
+— Anna. Wait.
 
 She turned, kept her expression neutral. "What is it?"
 
 He glanced around—empty hallway, no witnesses—and lowered his voice. "Can we talk? Just for a minute. Somewhere private."
 
-"I don't think that's a good idea."
+— I don't think that's a good idea.
 
-"Please. I just—" He ran a hand through his hair. The gesture was familiar, painfully so. "I didn't know you worked here. Not until after I accepted the offer. I should have done my homework, I was careless."
+— Please. I just— He ran a hand through his hair. The gesture was familiar, painfully so. I didn't know you worked here. Not until after I accepted the offer. I should have done my homework, I was careless.
 
 Anna studied him. He looked sincere. "What are you saying?"
 
-"I'm saying this is awkward for me too. And I want to make sure we're... okay. That we can work together."
+— I'm saying this is awkward for me too. And I want to make sure we're... okay. That we can work together.
 
 She glanced at the elevator. "We're fine. It was twenty years ago."
 
-"I know. But people talk. And I don't want anyone—" He paused. "I don't want anyone talking about us."
+— I know. But people talk. And I don't want anyone— He paused. I don't want anyone talking about us.
 
 Anna's chest tightened. He was worried. Little did he know she was far more concerned than he was. Her life was a mess and she still hadn't made SVP; the last thing she needed was romantic gossip floating around the office.
 
-"I won't tell anyone," she said quietly. "Let's just pretend we knew each other from school and nothing else; keep it short and simple. That way no one will think twice about us."
+— I won't tell anyone, she said quietly. Let's just pretend we knew each other from school and nothing else; keep it short and simple. That way no one will think twice about us.
 
 Relief flooded his face. "Thank you."
 
-"But you need to stay away from me. We're colleagues. That's all."
+— But you need to stay away from me. We're colleagues. That's all.
 
-"Of course. I just—thank you, Anna. Really."
+— Of course. I just—thank you, Anna. Really.
 
 She walked away without looking back. Got in the elevator. Pressed fifteen. Breathed.
 
@@ -1796,17 +1793,17 @@ By the time she reached her office, her hands had stopped shaking.
 
 The rest of the day went by without incident, but that night, Andrew said he was meeting someone about a commission. A potential buyer for one of the grief series pieces.
 
-"Where?" Anna asked, trying to sound casual.
+— Where? Anna asked, trying to sound casual.
 
-"Coffee shop in Chelsea. Should be back by nine."
+— Coffee shop in Chelsea. Should be back by nine.
 
-"Which coffee shop?"
+— Which coffee shop?
 
 He looked at her strangely. "Why does it matter?"
 
-"It doesn't. I'm just curious."
+— It doesn't. I'm just curious.
 
-"Grounded. On Eighth Avenue." He kissed her forehead — a gesture that felt automatic, empty. "I'll text you when I'm done."
+— Grounded. On Eighth Avenue. He kissed her forehead — a gesture that felt automatic, empty. I'll text you when I'm done.
 
 After he left, Anna sat at the kitchen table with her laptop and her phone. Sophie was doing homework in her room. Jake was watching a show in the living room. The apartment was full of people, but Anna had never felt more alone.
 
@@ -1850,67 +1847,67 @@ Andrew came home at eleven-fifteen.
 
 Anna was sitting on the couch in the dark, no laptop,but phone in hand.
 
-"Sorry I'm late," he said, setting his keys on the counter. "The buyer wanted to see photos of the other pieces, so we went back to his place—"
+— Sorry I'm late, he said, setting his keys on the counter. The buyer wanted to see photos of the other pieces, so we went back to his place—
 
-"Where were you?" Anna's voice was flat.
+— Where were you? Anna's voice was flat.
 
-"I just told you. With the buyer."
+— I just told you. With the buyer.
 
-"Where?" Anna said, barely holding herself together.
+— Where? Anna said, barely holding herself together.
 
 Andrew hesitated. She could see him deciding whether to double down on the lie or admit the truth. "Chelsea. We went to a bar after the coffee shop."
 
-"Which bar?"
+— Which bar?
 
-"Anna, what is this?"
+— Anna, what is this?
 
 She stood, held up her phone. The map glowed in the darkness, showing his location pin at 128 Perry Street. "You were at Jessica's apartment."
 
 Andrew's face went white. Then red. "Are you tracking me?"
 
-"Are you lying to me?"
+— Are you lying to me?
 
-"You're tracking my location? Like I'm—what, a child? A suspect?"
+— You're tracking my location? Like I'm—what, a child? A suspect?
 
-"Answer the question, Andrew. Were you at Jessica's apartment?"
+— Answer the question, Andrew. Were you at Jessica's apartment?
 
-"Yes." He said it like a challenge. "Yes, I was. Because she's helping me with the gallery connection. She knows the buyer. She introduced us."
+— Yes. He said it like a challenge. Yes, I was. Because she's helping me with the gallery connection. She knows the buyer. She introduced us.
 
-"At her apartment."
+— At her apartment.
 
-"He lives in the building!"
+— He lives in the building!
 
-"You lied to me."
+— You lied to me.
 
-"Because I knew you'd react like this!" Andrew's voice rose. "I knew you'd turn it into something it's not. Jessica is helping my career. She's being kind. And you've decided she's some kind of threat because you can't stand that someone else in my life actually listens to me!"
+— Because I knew you'd react like this! Andrew's voice rose. I knew you'd turn it into something it's not. Jessica is helping my career. She's being kind. And you've decided she's some kind of threat because you can't stand that someone else in my life actually listens to me!
 
 Anna felt cold. "I listen to you."
 
-"No, you don't. I can't believe it took my sister dying for me to realize you've never been there for me. You don't treat me like a husband. You manage me. You schedule me. You track me on your fucking phone like I'm an asset you need to monitor."
+— No, you don't. I can't believe it took my sister dying for me to realize you've never been there for me. You don't treat me like a husband. You manage me. You schedule me. You track me on your fucking phone like I'm an asset you need to monitor.
 
-"I track you because you lie to me!"
+— I track you because you lie to me!
 
-"I lie because you don't trust me!"
+— I lie because you don't trust me!
 
 They stared at each other across the dark living room. Seventeen years of marriage, and it had come to this. Accusations and tracking apps and lies about coffee shops.
 
-"Are you sleeping with her?" Anna asked quietly.
+— Are you sleeping with her? Anna asked quietly.
 
 Andrew's jaw tightened. "No."
 
-"Do you want to?"
+— Do you want to?
 
-"Anna—"
+— Anna—
 
-"Answer the question."
+— Answer the question.
 
 He looked at her for a long moment. And in that pause, Anna saw the truth. Not in words. Just in the way he couldn't say no fast enough.
 
-"I'm leaving," he said finally.
+— I'm leaving, he said finally.
 
-"Where?"
+— Where?
 
-"I don't know. Ben's, maybe. I just—I can't do this right now."
+— I don't know. Ben's, maybe. I just—I can't do this right now.
 
 He went to the bedroom, packed a bag. Anna stood in the hallway and watched him move through their life like a stranger. Grabbing clothes, his toothbrush, the book on his nightstand.
 
@@ -2022,35 +2019,35 @@ He texted the kids. Told Sophie he loved her. Told Jake he'd be at his game Satu
 The kids asked questions about Dad—why he left, when he would come back—but neither Andrew nor Anna was ready to answer.
 She asked her mom to come over to take care of the kids while she worked. Late nights, early mornings, weekends bled into weekdays. There was a new deal that was bleeding red ink, and Anna stitched it together with spreadsheets and phone calls to London at hours when sane people slept.
 
-"You look terrible," Marcus said on Thursday morning, startling her out of a model.
+— You look terrible, Marcus said on Thursday morning, startling her out of a model.
 
-"Thanks."
+— Thanks.
 
-"I'm serious. When's the last time you had proper sleep?"
+— I'm serious. When's the last time you had proper sleep?
 
 Anna glanced at the window. Still dark. She'd been here since five. "I'll go soon."
 
-"Anna." Marcus sat. "What's going on? And don't say 'nothing.' You're not yourself."
+— Anna. Marcus sat. What's going on? And don't say 'nothing.' You're not yourself.
 
 She almost told him. Almost opened the folder and showed him the evidence—the emails, the texts, the trail of lies and breadcrumbs that pointed to Jessica. But the words caught.
 
 If she said it out loud, it became real. If it was real, she had to act. And she didn't know what action looked like yet. Besides, what if it wasn't real, or what if she was actually losing it? She couldn't tell anyone else; she needed to look professional.
 
-"Just stress," she said. "The new deal. I'm figuring it out."
+— Just stress, she said. The new deal. I'm figuring it out.
 
 Marcus didn't look convinced, but he let it go. "Tom's asking questions."
 
-"About?"
+— About?
 
-"You. Whether you're settling in okay. Whether you're ready to become an SVP. He knows you're an amazing VP, but lately he seems worried that SVP might be too much—maybe just for now, given your family situation."
+— You. Whether you're settling in okay. Whether you're ready to become an SVP. He knows you're an amazing VP, but lately he seems worried that SVP might be too much—maybe just for now, given your family situation.
 
 Anna's blood went cold. "What did you tell him? What do you know about my family situation?"
 
-"Your sister-in-law's passing, of course. I only told him that you're handling the biggest deals we've got and closing them brilliantly. Which is true—but even if it weren't, you know I'd always cover for you. But Anna, you need to be more visible right now. Meetings, face time, looking like you've slept in the last week."
+— Your sister-in-law's passing, of course. I only told him that you're handling the biggest deals we've got and closing them brilliantly. Which is true—but even if it weren't, you know I'd always cover for you. But Anna, you need to be more visible right now. Meetings, face time, looking like you've slept in the last week.
 
-"I'll handle it."
+— I'll handle it.
 
-"I know you will. Just—take care of yourself, okay? Whatever's happening in your personal life, don't let it eat you alive."
+— I know you will. Just—take care of yourself, okay? Whatever's happening in your personal life, don't let it eat you alive.
 
 After he left, Anna pulled up the shared calendar. A new invite had appeared: "M&A Strategy Session—Tom Harrison, Anna Park, Jessica Hall. Friday, 2 p.m."
 
@@ -2060,19 +2057,19 @@ She opened the invite. Sent from her own account.
 
 She called Denise. "Did I schedule a strategy session with Tom and Jessica for tomorrow?"
 
-"Not that I know of. Let me check your calendar—oh, there it is. Weird, I don't have it in my notes."
+— Not that I know of. Let me check your calendar—oh, there it is. Weird, I don't have it in my notes.
 
-"Cancel it."
+— Cancel it.
 
-"Are you sure? It says Tom requested it."
+— Are you sure? It says Tom requested it.
 
 Anna hesitated. If Tom had requested it and she canceled, it would look bad. If she went and it was a trap, it would look worse.
 
-"Confirm with Tom's assistant that he actually requested this meeting."
+— Confirm with Tom's assistant that he actually requested this meeting.
 
 Denise called back five minutes later. "Barbara says Tom doesn't have it on his calendar and didn't request it."
 
-"Delete it. Tell Barbara it was a mistake."
+— Delete it. Tell Barbara it was a mistake.
 
 But the damage was there, again — someone scheduling fake meetings with the Head of M&A. Someone making her look disorganized. Unreliable. Cracking.
 
@@ -2100,49 +2097,49 @@ At 7:45, she left the office. At 7:58, she sat in the back of Café Mogador and 
 
 Andrew arrived at 8:07. He looked tired. Thinner. Older than he had one week ago.
 
-"Hi," he said.
+— Hi, he said.
 
-"Hi."
+— Hi.
 
 They stared at each other across the table, and Anna thought about how you could live with someone for seventeen years and still not know how to start a conversation.
 
-"I miss you," Andrew said finally.
+— I miss you, Andrew said finally.
 
-"I miss you too."
+— I miss you too.
 
-"I don't want our marriage to end."
+— I don't want our marriage to end.
 
-"Neither do I."
+— Neither do I.
 
-"But I don't know how to keep doing this." His voice cracked. "I don't know how to be married to someone who doesn't see me."
+— But I don't know how to keep doing this. His voice cracked. I don't know how to be married to someone who doesn't see me.
 
 Anna's throat tightened. "I see you."
 
-"Do you?" He leaned in. "Because I lost my sister, Anna. She died. And you made a list for the funeral and went back to work right after."
+— Do you? He leaned in. Because I lost my sister, Anna. She died. And you made a list for the funeral and went back to work right after.
 
-"I was trying to be strong."
+— I was trying to be strong.
 
-"I didn't need you to be strong. I needed you to be sad with me. I needed you to sit in the dark and admit that the world was broken."
+— I didn't need you to be strong. I needed you to be sad with me. I needed you to sit in the dark and admit that the world was broken.
 
 Tears stung Anna's eyes. "I didn't know how."
 
-"I know. And that's the problem. You don't know how to stop fixing long enough to just feel." He reached across the table, took her hand. "I love you. I've loved you for seventeen years. But I can't keep being invisible in your life."
+— I know. And that's the problem. You don't know how to stop fixing long enough to just feel. He reached across the table, took her hand. I love you. I've loved you for seventeen years. But I can't keep being invisible in your life.
 
-"You're not invisible."
+— You're not invisible.
 
-"I am. Your job is real. Your deals are real. Your emails and your meetings and your career—that's all real. But me? The kids? We're just background."
+— I am. Your job is real. Your deals are real. Your emails and your meetings and your career—that's all real. But me? The kids? We're just background.
 
-"That's not true."
+— That's not true.
 
-"Isn't it?" He pulled his hand back. "When's the last time you asked Jake about school? When's the last time you had a real conversation with Sophie that didn't end with you checking your phone?"
+— Isn't it? He pulled his hand back. When's the last time you asked Jake about school? When's the last time you had a real conversation with Sophie that didn't end with you checking your phone?
 
 Anna opened her mouth. Closed it. She didn't remember.
 
-"I'm not the villain here," Andrew said quietly. "I'm just the man who's been waiting for you to come home for a few years now."
+— I'm not the villain here, Andrew said quietly. I'm just the man who's been waiting for you to come home for a few years now.
 
-"I'm home every night."
+— I'm home every night.
 
-"Physically. But the rest of you?" He shook his head. "You left a long time ago."
+— Physically. But the rest of you? He shook his head. You left a long time ago.
 
 They sat in silence. Anna wanted to defend herself. Wanted to tell him about the sabotage, the stress, the feeling that her life was unraveling. But he looked so tired. So done.
 
@@ -2150,27 +2147,27 @@ She had to ask. "Are you sleeping with her?"
 
 Andrew's jaw tightened. "With who?"
 
-"Jessica."
+— Jessica.
 
 He didn't answer immediately. The pause said everything.
 
-"I don't know what this is," he said finally. "With Jessica. She... she listens. When Mia died, she sent me that note, and then we just started talking. About art. About grief. About things I couldn't talk to you about because you were always gone."
+— I don't know what this is, he said finally. With Jessica. She... she listens. When Mia died, she sent me that note, and then we just started talking. About art. About grief. About things I couldn't talk to you about because you were always gone.
 
-"Andrew—"
+— Andrew—
 
-"She makes me feel seen," he said, and his voice broke. "She asks about my work. She remembers things I tell her. She sits with me when I'm sad and doesn't try to fix it or schedule it or make it manageable. She just... sees me."
+— She makes me feel seen, he said, and his voice broke. She asks about my work. She remembers things I tell her. She sits with me when I'm sad and doesn't try to fix it or schedule it or make it manageable. She just... sees me.
 
 Anna felt something crack inside her chest. "So you're having an affair."
 
-"I don't know what I'm having." He looked at her, and his eyes were wet. "I don't know if it's physical or emotional or just... survival. All I know is that when I'm with her, I don't feel invisible. And when I'm with you, I disappear."
+— I don't know what I'm having. He looked at her, and his eyes were wet. I don't know if it's physical or emotional or just... survival. All I know is that when I'm with her, I don't feel invisible. And when I'm with you, I disappear.
 
-"That's not fair."
+— That's not fair.
 
-"None of this is fair." He pulled his hand back completely. "But I can't keep doing this. I can't keep being the husband you check off a list. The background character in your success story."
+— None of this is fair. He pulled his hand back completely. But I can't keep doing this. I can't keep being the husband you check off a list. The background character in your success story.
 
-"Are you leaving me?" she asked, her voice breaking. "After everything we've built together?"
+— Are you leaving me? she asked, her voice breaking. After everything we've built together?
 
-"I don't know." He stood. "I just know I can't keep disappearing while you chase ghosts."
+— I don't know. He stood. I just know I can't keep disappearing while you chase ghosts.
 
 He left cash on the table and walked out.
 
@@ -2196,9 +2193,9 @@ She ran to the bathroom and called Denise. "Check my sent email. Is there a mess
 
 Denise's pause said everything. "Anna, are you okay? Do you want me to unsend it?"
 
-"Yes. Now."
+— Yes. Now.
 
-"It's already been read."
+— It's already been read.
 
 Anna hung up. Pressed her forehead to the bathroom mirror and screamed silently.
 
@@ -2210,39 +2207,39 @@ Even if it meant doing something she couldn't take back.
 
 Tom called her into his office Friday morning.
 
-"Close the door," he said, and Anna knew.
+— Close the door, he said, and Anna knew.
 
 She sat. Composed her face. Waited.
 
-"Anna, I got your email last night." Tom's expression was careful, clinical. "About needing a leave of absence."
+— Anna, I got your email last night. Tom's expression was careful, clinical. About needing a leave of absence.
 
-"I didn't send that email."
+— I didn't send that email.
 
-"It came from your account."
+— It came from your account.
 
-"Someone is accessing my accounts. I've reported it multiple times, I've told you this before. IT keeps saying there's no breach, but—"
+— Someone is accessing my accounts. I've reported it multiple times, I've told you this before. IT keeps saying there's no breach, but—
 
-"Anna." Tom held up a hand. "I'm going to be direct. Several members of the leadership team have expressed concerns. You've seemed... scattered lately. Emails sent at odd hours with uncharacteristic errors. Meetings that appear on calendars and then don't. This leave of absence email—"
+— Anna. Tom held up a hand. I'm going to be direct. Several members of the leadership team have expressed concerns. You've seemed... scattered lately. Emails sent at odd hours with uncharacteristic errors. Meetings that appear on calendars and then don't. This leave of absence email—
 
-"That I didn't send."
+— That I didn't send.
 
-"—suggests you're aware you're struggling."
+— —suggests you're aware you're struggling.
 
 The words hung there like a diagnosis.
 
-"I'm not struggling," Anna said evenly. "Someone is sabotaging me."
+— I'm not struggling, Anna said evenly. Someone is sabotaging me.
 
 Tom's expression didn't change, which told her everything. He thought she was cracking. Paranoid. Unable to handle the pressure.
 
-"I'm going to suggest something," Tom said carefully. "Take a week. Go somewhere quiet. Rest. Come back clear-headed. We'll revisit your workload, maybe redistribute some accounts—"
+— I'm going to suggest something, Tom said carefully. Take a week. Go somewhere quiet. Rest. Come back clear-headed. We'll revisit your workload, maybe redistribute some accounts—
 
-"You're taking my accounts?"
+— You're taking my accounts?
 
-"I'm suggesting we lighten your load."
+— I'm suggesting we lighten your load.
 
-"So you're demoting me."
+— So you're demoting me.
 
-"I'm protecting you!" Tom leaned forward. "Anna, you're one of the most talented people I've ever worked with. But talent doesn't matter if you burn out. Take the time. Get yourself right. Your job will be here when you come back."
+— I'm protecting you! Tom leaned forward. Anna, you're one of the most talented people I've ever worked with. But talent doesn't matter if you burn out. Take the time. Get yourself right. Your job will be here when you come back.
 
 Anna heard the subtext: *If you come back functional.*
 
@@ -2264,31 +2261,31 @@ Through Andrew. Through proximity. Through whatever game she was playing.
 
 At three o'clock, Jessica appeared in Anna's doorway with tea.
 
-"Hey," Jessica said softly. "I heard about your meeting with Tom. I'm so sorry. If there's anything I can do—"
+— Hey, Jessica said softly. I heard about your meeting with Tom. I'm so sorry. If there's anything I can do—
 
 Anna looked at her. Really looked. The concern in her eyes was a performance — convincing, but still a performance.
 
-"Thank you," Anna said. "I'm fine."
+— Thank you, Anna said. I'm fine.
 
-"You don't look fine." Jessica set the tea down. "Anna, I know we work together, but I also care about you. As a person. If you need someone to talk to—"
+— You don't look fine. Jessica set the tea down. Anna, I know we work together, but I also care about you. As a person. If you need someone to talk to—
 
-"How's your apartment?" Anna asked suddenly.
+— How's your apartment? Anna asked suddenly.
 
 Jessica blinked. "What?"
 
-"Your apartment. In the West Village. Perry Street, right?"
+— Your apartment. In the West Village. Perry Street, right?
 
 Something flickered across Jessica's face—fear, brief and unmistakable. "How do you know where I live?"
 
-"Public records." Anna smiled. "I'm thorough. It's what makes me good at my job."
+— Public records. Anna smiled. I'm thorough. It's what makes me good at my job.
 
-"That's... I don't understand why you'd..." Jessica's voice wavered. She took a small step back, her hand gripping the doorframe. "Anna, I really just wanted to help. I'm not—I would never—"
+— That's... I don't understand why you'd... Jessica's voice wavered. She took a small step back, her hand gripping the doorframe. Anna, I really just wanted to help. I'm not—I would never—
 
-"Never what?"
+— Never what?
 
-"I just... I should go." Jessica's eyes were wide, worried. "I have a meeting."
+— I just... I should go. Jessica's eyes were wide, worried. I have a meeting.
 
-"Of course. Thanks for the tea."
+— Of course. Thanks for the tea.
 
 After Jessica left, Anna poured the tea down the sink. She didn't trust anything anymore.
 
@@ -2330,13 +2327,13 @@ Anna stood outside and listened. Voices. Andrew's laugh — the one he used to s
 
 Anna pressed her ear to the door. Strained to hear.
 
-"—never really knew me," Andrew was saying. "She knew the version of me that was useful."
+— —never really knew me, Andrew was saying. She knew the version of me that was useful.
 
-"That's so sad," Jessica murmured. "You deserve someone who sees all of you."
+— That's so sad, Jessica murmured. You deserve someone who sees all of you.
 
-"Maybe. I don't know anymore."
+— Maybe. I don't know anymore.
 
-"I see you, Andrew."
+— I see you, Andrew.
 
 A pause. The sound of movement, fabric shifting.
 
@@ -2396,61 +2393,61 @@ Anna watched from the window as he got out of the taxi. He looked thinner. Shoul
 
 She opened the door before he could knock.
 
-"Hi," he said.
+— Hi, he said.
 
-"Hi."
+— Hi.
 
 They stood in the doorway like strangers waiting for permission.
 
-"I'll be quick," Andrew said, moving past her. "I just need some basics."
+— I'll be quick, Andrew said, moving past her. I just need some basics.
 
 Anna followed him to their bedroom—*their* bedroom, except it hadn't felt like theirs in months. She watched him pull clothes from drawers, fold them carefully, pack them into a duffel she didn't recognize.
 
-"Where are you staying?" she asked.
+— Where are you staying? she asked.
 
-"Ben's." The lie came easy. He didn't even hesitate.
+— Ben's. The lie came easy. He didn't even hesitate.
 
 Anna felt something harden in her chest. "I was at Perry Street last night. I heard you talking to Jessica. I saw you leave her apartment."
 
 Andrew stopped folding. Stood very still.
 
-"Anna—"
+— Anna—
 
-"Are you sleeping with her?"
+— Are you sleeping with her?
 
 He turned to face her. His expression was complicated — guilt, anger, exhaustion, something else she couldn't name.
 
-"Would it matter?" he asked.
+— Would it matter? he asked.
 
-"Of course it would matter."
+— Of course it would matter.
 
-"Would it? Or would it just be another thing for you to fix, another problem to solve, another item on your list?"
+— Would it? Or would it just be another thing for you to fix, another problem to solve, another item on your list?
 
-"That's not fair. Don't turn this on me!"
+— That's not fair. Don't turn this on me!
 
-"None of this is fair, Anna." He zipped the duffel. "You want to know if I'm having an affair? Fine. I'm spending time with someone who listens to me. Who asks how I'm doing. Who cares if I'm drowning."
+— None of this is fair, Anna. He zipped the duffel. You want to know if I'm having an affair? Fine. I'm spending time with someone who listens to me. Who asks how I'm doing. Who cares if I'm drowning.
 
-"Jessica."
+— Jessica.
 
-"Does it matter?"
+— Does it matter?
 
-"Yes! She's my employee! She's—" Anna stopped. Took a breath. "Is she helping you? With the emails, the sabotage, is she—"
+— Yes! She's my employee! She's— Anna stopped. Took a breath. Is she helping you? With the emails, the sabotage, is she—
 
-"Jesus Christ." Andrew laughed, bitter. "You think this is about you? You think I'm so obsessed with hurting you that I'd recruit someone to help me destroy your career?"
+— Jesus Christ. Andrew laughed, bitter. You think this is about you? You think I'm so obsessed with hurting you that I'd recruit someone to help me destroy your career?
 
-"Are you?"
+— Are you?
 
-"No, Anna. I'm grieving. And I'm realizing I haven't been happy for a long time. Not even before Mia died." He picked up the duffel. "Not everything is about you."
+— No, Anna. I'm grieving. And I'm realizing I haven't been happy for a long time. Not even before Mia died. He picked up the duffel. Not everything is about you.
 
-"But you are with her!"
+— But you are with her!
 
 Andrew looked at her for a long time. "I'm with someone who doesn't make me feel like I'm disappearing. If that's an affair, then yes. I'm having one."
 
 He walked past her, toward the door.
 
-"Andrew, wait—"
+— Andrew, wait—
 
-"I'll see the kids tomorrow. We can figure out logistics later." He paused at the door, didn't turn around. "We should probably start thinking about a divorce."
+— I'll see the kids tomorrow. We can figure out logistics later. He paused at the door, didn't turn around. We should probably start thinking about a divorce.
 
 The door closed behind him with a soft, final sound.
 
@@ -2468,74 +2465,74 @@ The divorce wasn't even in her mind yet. It was like she wasn't capable of accep
 
 On Monday, Jason cornered her in the parking garage.
 
-"Anna, wait."
+— Anna, wait.
 
 She didn't want to. She was late, anxious about falling behind after skipping work all weekend, holding herself together with spite and caffeine. But Jason was already walking toward her, expensive shoes echoing on concrete.
 
-"What."
+— What.
 
-"I wanted to check on you. I heard about your meeting with Tom. The leave of absence suggestion." He paused, looking genuinely uncomfortable. "Look, I know this is awkward. I know we decided to keep our professional distance, but there's something I've been meaning to tell you."
+— I wanted to check on you. I heard about your meeting with Tom. The leave of absence suggestion. He paused, looking genuinely uncomfortable. Look, I know this is awkward. I know we decided to keep our professional distance, but there's something I've been meaning to tell you.
 
 Anna studied his face. He looked tired. Sincere. "What are you talking about?"
 
-"The recruitment for this role — a headhunter reached out, said Henderson was looking for someone with my background. The process was streamlined, I guess. A couple of phone calls, one in-person meeting. They made me an offer I couldn't refuse." He rubbed the back of his neck. "I took it without asking enough questions. Didn't realize until my first day that you were the VP of M&A. I thought you should know... I didn't come here to make things difficult for you."
+— The recruitment for this role — a headhunter reached out, said Henderson was looking for someone with my background. The process was streamlined, I guess. A couple of phone calls, one in-person meeting. They made me an offer I couldn't refuse. He rubbed the back of his neck. I took it without asking enough questions. Didn't realize until my first day that you were the VP of M&A. I thought you should know... I didn't come here to make things difficult for you.
 
 Anna studied him. "Which headhunter?"
 
-"Some boutique firm. I don't even remember the name—it all happened so fast." He hesitated. "I wanted to clear the air. Twenty years is a long time. We were kids back then. I was an asshole. You deserved better."
+— Some boutique firm. I don't even remember the name—it all happened so fast. He hesitated. I wanted to clear the air. Twenty years is a long time. We were kids back then. I was an asshole. You deserved better.
 
 Anna blinked. This wasn't what she'd expected. "Why are you telling me this?"
 
-"Because you look like you're going through hell, and I don't want you thinking I'm part of whatever's happening." He met her eyes. "I'm not here to destabilize you, Anna. I'm just here to do my job."
+— Because you look like you're going through hell, and I don't want you thinking I'm part of whatever's happening. He met her eyes. I'm not here to destabilize you, Anna. I'm just here to do my job.
 
 Anna's mind was still racing, but something in his tone rang true. "So you really didn't know I worked here?"
 
-"I swear. I wouldn't have taken the job if I'd known. Not because of you — because of optics. I'm trying to build something new, not rehash old history." He took a step back. "Anyway. I just wanted you to know. I'll stay out of your way." He paused, then added, "By the way, have you heard why the position I filled opened? Crazy stuff."
+— I swear. I wouldn't have taken the job if I'd known. Not because of you — because of optics. I'm trying to build something new, not rehash old history. He took a step back. Anyway. I just wanted you to know. I'll stay out of your way. He paused, then added, By the way, have you heard why the position I filled opened? Crazy stuff.
 
-"No, not really. I thought Jameson left for a better job."
+— No, not really. I thought Jameson left for a better job.
 
-"I heard he was caught texting Tom's wife. Don't want to be the rumor spreader, just never figured Jameson to be that sort of guy, being so religious and all." He hesitated, then met her eyes. "Take care of yourself, Anna. Please."
+— I heard he was caught texting Tom's wife. Don't want to be the rumor spreader, just never figured Jameson to be that sort of guy, being so religious and all. He hesitated, then met her eyes. Take care of yourself, Anna. Please.
 
 She watched him walk toward his car, shoulders slightly hunched. Jameson's sudden departure—could that have been orchestrated too? Could someone have set him up, gotten him fired, just to create the opening for Jason? Could it all have been for her? The thought made her stomach turn. Someone was playing a long game, and she was only seeing the pieces now.
 
 That afternoon, Claire called.
 
-"Hey, just checking in. How are you holding up?"
+— Hey, just checking in. How are you holding up?
 
 Anna tried to keep her voice steady. "I'm fine. Everything's fine."
 
-"Anna—"
+— Anna—
 
-"I said I'm fine!" The words came out sharper than she intended. "I don't need you checking on me like I'm some fragile thing that's going to break. I'm handling it. I'm handling everything. Tom thinks I'm cracking, Andrew's having an affair with my employee, someone's sabotaging my career, and I'm just supposed to—" She stopped. Took a breath. "I'm fine."
+— I said I'm fine! The words came out sharper than she intended. I don't need you checking on me like I'm some fragile thing that's going to break. I'm handling it. I'm handling everything. Tom thinks I'm cracking, Andrew's having an affair with my employee, someone's sabotaging my career, and I'm just supposed to— She stopped. Took a breath. I'm fine.
 
 There was a long pause on the other end.
 
-"Anna," Claire said quietly. "I'm coming Friday and staying through the weekend. I'm staying at your place."
+— Anna, Claire said quietly. I'm coming Friday and staying through the weekend. I'm staying at your place.
 
-"Claire, I can't—"
+— Claire, I can't—
 
-"I wasn't asking. You're not fine. And I'm not letting you handle this alone."
+— I wasn't asking. You're not fine. And I'm not letting you handle this alone.
 
 After they hung up, Anna sat at her desk and felt the walls closing in.
 
 She tried to breathe. Tried to organize her thoughts the way she organized deals — into neat columns, manageable pieces. But everything was fragmenting.
 
 **Facts:**
-- Tom thought she was cracking, suggested forced leave
-- Andrew had confirmed an affair with Jessica
-- Jessica probably had access to her home, her life, her husband
-- The sabotage continued — emails, calendar invites, files corrupted
-- Jason had been recruited through unusual channels — fast-tracked process, no normal interviews, filled the position left by Jameson's sudden departure
-- Claire was coming this weekend because of my outburst on the phone
-- Her children were watching their family disintegrate
-- Her career—everything she'd built for seventeen years—was slipping away
-- Someone was sending threatening texts from untraceable numbers
+— Tom thought she was cracking, suggested forced leave
+— Andrew had confirmed an affair with Jessica
+— Jessica probably had access to her home, her life, her husband
+— The sabotage continued — emails, calendar invites, files corrupted
+— Jason had been recruited through unusual channels — fast-tracked process, no normal interviews, filled the position left by Jameson's sudden departure
+— Claire was coming this weekend because of my outburst on the phone
+— Her children were watching their family disintegrate
+— Her career—everything she'd built for seventeen years—was slipping away
+— Someone was sending threatening texts from untraceable numbers
 
 **Unknowns:**
-- Who was actually sabotaging her
-- Who brought Jason to Henderson and why
-- Whether Jameson had been framed
-- Whether any of this was connected or just her life falling apart in multiple directions simultaneously
+— Who was actually sabotaging her
+— Who brought Jason to Henderson and why
+— Whether Jameson had been framed
+— Whether any of this was connected or just her life falling apart in multiple directions simultaneously
 
 Anna stared at the list. When had everything become so complicated? When had she lost control of her own narrative?
 
@@ -2565,13 +2562,13 @@ Wednesday night, Andrew texted Sophie: *Come to my gallery show tomorrow? 7pm. B
 
 Sophie showed Anna the text. "Are you going?"
 
-"I don't think I'm invited."
+— I don't think I'm invited.
 
-"That's stupid. It's Dad's show. You should go."
+— That's stupid. It's Dad's show. You should go.
 
 Anna looked at her daughter—fourteen, already navigating the fractures in her parents' marriage with more grace than either of them deserved.
 
-"Maybe," Anna said.
+— Maybe, Anna said.
 
 But she knew she wouldn't. She wasn't welcome in Andrew's new life. Jessica would probably be there, playing the supportive muse.
 
@@ -2581,45 +2578,45 @@ Jane: *Dinner? I'm near the office.*
 
 Anna met her at a place with dark corners and good wine. Jane looked immaculate as always, but something in her expression was off—tighter, sharper.
 
-"You look terrible," Jane said.
+— You look terrible, Jane said.
 
-"Thanks."
+— Thanks.
 
-"I'm serious. What's happening?"
+— I'm serious. What's happening?
 
 Anna almost told her everything—the sabotage, Andrew, Jessica, Jason, the feeling that her life was unraveling thread by thread. But Jane was on the board. Jane had connections to Tom, to HR, to the executives who were already questioning Anna's stability.
 
-"Just stress," Anna said.
+— Just stress, Anna said.
 
-"Bullshit." Jane leaned in. "Anna, I brought you into this firm. I've watched you build your career. And I'm watching you destroy it in real time. Stop."
+— Bullshit. Jane leaned in. Anna, I brought you into this firm. I've watched you build your career. And I'm watching you destroy it in real time. Stop.
 
-"I'm not—"
+— I'm not—
 
-"You are. Whatever's happening in your personal life, you're letting it bleed into your professional life. That's the one thing you can't do. You know that."
+— You are. Whatever's happening in your personal life, you're letting it bleed into your professional life. That's the one thing you can't do. You know that.
 
-"What if the personal and professional are connected?"
+— What if the personal and professional are connected?
 
-"Then you separate them. That's what power is—compartmentalization. You can fall apart at home if you need to. But at work? You're ice. You're stone. You're untouchable."
+— Then you separate them. That's what power is—compartmentalization. You can fall apart at home if you need to. But at work? You're ice. You're stone. You're untouchable.
 
 Anna looked at Jane—perfect, controlled, alone. "Is that what you did? To get where you are?"
 
-"Yes." No hesitation. "I chose my career over everything. Marriage. Children. Love. It was the only way."
+— Yes. No hesitation. I chose my career over everything. Marriage. Children. Love. It was the only way.
 
-"Was it worth it?"
+— Was it worth it?
 
 Jane's expression flickered. "Ask me in twenty years."
 
 They drank in silence for a moment.
 
-"There's a rumor," Jane said carefully, "that you're having some kind of breakdown. That you've been making accusations about people sabotaging you."
+— There's a rumor, Jane said carefully, that you're having some kind of breakdown. That you've been making accusations about people sabotaging you.
 
 Anna's stomach dropped. "Who's saying that?"
 
-"It doesn't matter. What matters is perception. And right now, you look unstable. You look like someone who can't handle the pressure."
+— It doesn't matter. What matters is perception. And right now, you look unstable. You look like someone who can't handle the pressure.
 
-"Someone *is* sabotaging me."
+— Someone *is* sabotaging me.
 
-"Then prove it. With evidence. Not paranoia." Jane's voice was knife-sharp. "Because if you can't, you need to stop talking about it before you wreck what's left of your credibility."
+— Then prove it. With evidence. Not paranoia. Jane's voice was knife-sharp. Because if you can't, you need to stop talking about it before you wreck what's left of your credibility.
 
 After Jane left, Anna sat alone and ordered another glass of wine she didn't want.
 
@@ -2713,15 +2710,15 @@ She showered. Dressed for work—professional suit, polished shoes. Normal. Expe
 
 At work, she was calm. Eerily calm. She finished three financial models, approved two client presentations, took four calls. Everyone remarked on the change.
 
-"You look better," Marcus said in the elevator.
+— You look better, Marcus said in the elevator.
 
-"I feel better," Anna replied. And it was true. The decision had lifted the exhausting feeling of being powerless, of watching everything slip through her fingers.
+— I feel better, Anna replied. And it was true. The decision had lifted the exhausting feeling of being powerless, of watching everything slip through her fingers.
 
 She worked through lunch. At four-thirty, she told Denise she was leaving early.
 
-"Doctor's appointment," Anna said. "That therapist I mentioned."
+— Doctor's appointment, Anna said. That therapist I mentioned.
 
-"Oh, good." Denise looked genuinely relieved. "I'm glad you're taking care of yourself."
+— Oh, good. Denise looked genuinely relieved. I'm glad you're taking care of yourself.
 
 Anna smiled. "Me too."
 
@@ -2733,9 +2730,9 @@ Her mind already organizing the evening ahead into a timeline, a plan, a series 
 
 At five thirty, she made dinner for Sophie and Jake—pasta with marinara sauce, garlic bread, their favorite simple meal. They ate together at the kitchen table like a normal family.
 
-"Where's Dad?" Jake asked, twirling spaghetti.
+— Where's Dad? Jake asked, twirling spaghetti.
 
-"He's staying with a friend for a few days. But you'll see him Sunday."
+— He's staying with a friend for a few days. But you'll see him Sunday.
 
 Sophie looked up from her phone. "Are you guys getting divorced?"
 
@@ -2743,27 +2740,27 @@ Anna met her daughter's eyes—fourteen years old and already too perceptive. "I
 
 Sophie shrugged with studied teenage indifference. "I guess. As long as we don't have to move schools."
 
-"You won't have to move. I promise you that."
+— You won't have to move. I promise you that.
 
 After dinner, Anna hugged them both longer than usual. Sophie tolerated it. Jake squirmed.
 
-"You're being weird, Mom," Jake said.
+— You're being weird, Mom, Jake said.
 
-"I love you," Anna told them, holding tight. "Both of you. No matter what happens, remember that I love you more than anything."
+— I love you, Anna told them, holding tight. Both of you. No matter what happens, remember that I love you more than anything.
 
-"Okay," Sophie said slowly, exchanging a glance with her brother. "We love you too."
+— Okay, Sophie said slowly, exchanging a glance with her brother. We love you too.
 
 At six, Claire arrived. They chatted for a while—normal things, how the kids were doing, how work was going. Anna kept it light, surface-level. Then she grabbed her purse and keys.
 
-"Where are you going?" Claire asked.
+— Where are you going? Claire asked.
 
-"That therapy appointment I scheduled," Anna said smoothly. "The only slot she had was Friday at seven." The appointment was actually booked for eight, but she'd told Claire seven to give herself more time. It was the plan's only vulnerability, but she knew it was unlikely to cause trouble. If anyone asked, she could claim she'd wanted to get familiar with the area first, was afraid of being late, and was nervous—it would be her first session, after all.
+— That therapy appointment I scheduled, Anna said smoothly. The only slot she had was Friday at seven. The appointment was actually booked for eight, but she'd told Claire seven to give herself more time. It was the plan's only vulnerability, but she knew it was unlikely to cause trouble. If anyone asked, she could claim she'd wanted to get familiar with the area first, was afraid of being late, and was nervous—it would be her first session, after all.
 
 Claire's face lit up. "Oh, Anna, I'm so glad you're doing this. It's going to help, I promise."
 
-"I know," Anna said. "Thank you for watching them."
+— I know, Anna said. Thank you for watching them.
 
-"Anytime. That's what friends are for."
+— Anytime. That's what friends are for.
 
 Anna left before the guilt could catch up with her.
 
@@ -2859,51 +2856,51 @@ And waited for Jessica to let her in.
 
 **8:15 PM — Jessica's Apartment**
 
-"Anna?" Jessica's voice was surprised, cautious. "What are you doing here?"
+— Anna? Jessica's voice was surprised, cautious. What are you doing here?
 
 Anna stepped inside. Closed the door behind her. Locked it.
 
-"I need to talk to you," Anna said. Her voice was calm. Controlled. "I need you to tell me the truth."
+— I need to talk to you, Anna said. Her voice was calm. Controlled. I need you to tell me the truth.
 
 Jessica backed away slightly. "About what?"
 
-"About everything. About Andrew. About what you've been doing to me."
+— About everything. About Andrew. About what you've been doing to me.
 
-"Anna, I don't know what you're talking about—"
+— Anna, I don't know what you're talking about—
 
-"Don't lie to me." Anna's voice stayed level, but there was steel underneath. "I know about the affair. I've known for weeks. I've tracked everything—the texts, the meetings, the way you've been manipulating him."
+— Don't lie to me. Anna's voice stayed level, but there was steel underneath. I know about the affair. I've known for weeks. I've tracked everything—the texts, the meetings, the way you've been manipulating him.
 
 Jessica's face went pale. "Anna, I'm so sorry. I never meant—"
 
-"Just tell me the truth. All of it. The affair. The sabotage. Everything."
+— Just tell me the truth. All of it. The affair. The sabotage. Everything.
 
-"The sabotage?" Jessica looked genuinely confused. "What sabotage?"
+— The sabotage? Jessica looked genuinely confused. What sabotage?
 
-"The corrupted files. The phantom meetings. The emails I didn't write. The way my career has been systematically destroyed from the inside."
+— The corrupted files. The phantom meetings. The emails I didn't write. The way my career has been systematically destroyed from the inside.
 
 Jessica shook her head. "Anna, I don't know what you're talking about. I would never—"
 
-"Stop lying!" Anna's control cracked. Just a little. "You've been sabotaging me. You orchestrated everything—the affair, the career destruction, all of it."
+— Stop lying! Anna's control cracked. Just a little. You've been sabotaging me. You orchestrated everything—the affair, the career destruction, all of it.
 
-"No." Jessica's voice was firm now. "No, Anna. I'm not lying. Yes, I had an affair with Andrew. I'm sorry. It was wrong. I know it was wrong. But I didn't sabotage you. I would never do that. I don't even know what you're talking about."
+— No. Jessica's voice was firm now. No, Anna. I'm not lying. Yes, I had an affair with Andrew. I'm sorry. It was wrong. I know it was wrong. But I didn't sabotage you. I would never do that. I don't even know what you're talking about.
 
 Anna stared at her. The calm facade slipping. "So you admit the affair, but you're still lying about everything else."
 
-"Because I didn't do it!" Jessica's voice rose. "I slept with your husband. I'm a terrible person for that. But I didn't sabotage your career. I don't know anything about corrupted files or phantom meetings. I swear to God, Anna, I'm telling you the truth."
+— Because I didn't do it! Jessica's voice rose. I slept with your husband. I'm a terrible person for that. But I didn't sabotage your career. I don't know anything about corrupted files or phantom meetings. I swear to God, Anna, I'm telling you the truth.
 
 Anna's hands clenched. Her breathing quickened.
 
-"You're lying," she said, but her voice wavered. "You have to be lying."
+— You're lying, she said, but her voice wavered. You have to be lying.
 
-"I'm not. I messed up. But I didn't sabotage you. I don't know who did, but it wasn't me."
+— I'm not. I messed up. But I didn't sabotage you. I don't know who did, but it wasn't me.
 
 Anna took a step closer. "Do you know what I can do to you? I can have you fired. Not just from Henderson. I can make sure you never work in finance again. I have connections. I can destroy your career completely."
 
 Jessica's eyes widened. "Anna, please. I'll quit. I'll resign tomorrow. I'll leave Andrew. I'll never see him again. I'll move—out of the city, out of state if you want. I'll start over somewhere else. Just... please don't do this."
 
-"You think that's enough?" Anna's voice was cold. "You think quitting and leaving fixes what you did? You think that undoes the sabotage?"
+— You think that's enough? Anna's voice was cold. You think quitting and leaving fixes what you did? You think that undoes the sabotage?
 
-"I didn't sabotage you! I swear, Anna. I'll quit. I'll leave. I'll disappear. You'll never have to see me again. Just please, don't ruin my life."
+— I didn't sabotage you! I swear, Anna. I'll quit. I'll leave. I'll disappear. You'll never have to see me again. Just please, don't ruin my life.
 
 Anna stared at her. The offer hung in the air between them. Jessica would quit. Leave Andrew. Move away. Start over.
 
@@ -2911,9 +2908,9 @@ It should have been enough.
 
 But Anna thought about what Jessica had already destroyed. "Do you know what you've done? My marriage is broken. My husband is in love with you. My reputation at the firm is smeared. Everyone knows about the affair—or they suspect. It would take a miracle for me to get that SVP promotion now. You've destroyed everything."
 
-"I'm sorry," Jessica said, tears in her eyes. "I'm so sorry. I'll fix it. I'll leave. I'll make it right."
+— I'm sorry, Jessica said, tears in her eyes. I'm so sorry. I'll fix it. I'll leave. I'll make it right.
 
-"You can't fix it," Anna said. Her voice was flat. "You can't undo what you've done."
+— You can't fix it, Anna said. Her voice was flat. You can't undo what you've done.
 
 ---
 
@@ -2927,31 +2924,31 @@ He'd been disappointed. More than disappointed—sad. He'd been looking forward 
 
 So he'd come here instead. Ordered a drink. Sat alone.
 
-"Andrew Park?"
+— Andrew Park?
 
 Andrew looked up. A man stood there—expensive suit, confident smile, familiar in a way that itched.
 
-"Yes?"
+— Yes?
 
-"Jason Whitmore. We met briefly at your show last night." He extended a hand. "What a coincidence running into you here. Mind if I join you?"
+— Jason Whitmore. We met briefly at your show last night. He extended a hand. What a coincidence running into you here. Mind if I join you?
 
 Andrew hesitated, then gestured to the empty seat. "Sure. I remember—you were talking about the pieces."
 
 Jason ordered a scotch. Settled in like they were old friends.
 
-"Your pieces are fascinating," Jason said. "All those fractured faces. Women breaking apart. Very psychological."
+— Your pieces are fascinating, Jason said. All those fractured faces. Women breaking apart. Very psychological.
 
-"It's about multiplicity," Andrew said carefully. "How we contain different versions of ourselves."
+— It's about multiplicity, Andrew said carefully. How we contain different versions of ourselves.
 
-"Or how some people wear masks until they can't maintain them anymore."
+— Or how some people wear masks until they can't maintain them anymore.
 
 Something in Jason's tone made Andrew look up sharply. There was something familiar about this man beyond just the gallery. "Do I know you from somewhere else?"
 
-"Not directly. But we have someone in common. Anna Park."
+— Not directly. But we have someone in common. Anna Park.
 
 Andrew's blood went cold. "You're the ex."
 
-"I am. And you're the husband. Or the soon-to-be-ex-husband, I'm guessing—I overheard you and Jessica talking about it at the gallery last night."
+— I am. And you're the husband. Or the soon-to-be-ex-husband, I'm guessing—I overheard you and Jessica talking about it at the gallery last night.
 
 ---
 
@@ -2961,91 +2958,91 @@ Anna looked at Jessica, who was still standing there, waiting. "You brought Jaso
 
 Jessica's face went blank. "What?"
 
-"Jason Whitmore. You brought him to Henderson. You orchestrated that too."
+— Jason Whitmore. You brought him to Henderson. You orchestrated that too.
 
-"I don't—Anna, I don't know what you're talking about. Who's Jason Whitmore?"
+— I don't—Anna, I don't know what you're talking about. Who's Jason Whitmore?
 
-"Don't play dumb. You introduced him. You brought him into my life. Into my firm."
+— Don't play dumb. You introduced him. You brought him into my life. Into my firm.
 
 Jessica shook her head, confused. "Anna, I only met Jason the other night. At Andrew's gallery show. That's the first time I ever saw him. I swear."
 
 Anna stared at her. "You're lying."
 
-"I'm not! I met him at the gallery opening. That was Thursday night. I'd never seen him before. I don't even know his last name—you said Whitmore? I didn't know that. I just met him at the show."
+— I'm not! I met him at the gallery opening. That was Thursday night. I'd never seen him before. I don't even know his last name—you said Whitmore? I didn't know that. I just met him at the show.
 
 Anna's hands clenched. Her breathing quickened.
 
-"You're lying," she said, but her voice wavered. "You have to be lying."
+— You're lying, she said, but her voice wavered. You have to be lying.
 
-"I'm telling you the truth. I only met him Thursday night at the gallery. I don't know anything about bringing him to the firm. I don't even know how he got hired at Henderson."
+— I'm telling you the truth. I only met him Thursday night at the gallery. I don't know anything about bringing him to the firm. I don't even know how he got hired at Henderson.
 
 That was when Anna lost it.
 
 The careful control she'd maintained shattered. The rage she'd been holding back broke through.
 
-"You're still lying," Anna snarled. "You're still protecting yourself. You think confessing to the affair is enough? You think I'm stupid? You brought Jason back into my life. You orchestrated everything."
+— You're still lying, Anna snarled. You're still protecting yourself. You think confessing to the affair is enough? You think I'm stupid? You brought Jason back into my life. You orchestrated everything.
 
-"Anna, please—"
+— Anna, please—
 
 Anna reached into her bag. Pulled out the gloves. Put them on with deliberate, methodical movements.
 
 Jessica's eyes widened. "Anna, what are you doing? What are those for?"
 
-"Making sure you tell me everything," Anna said. Her voice was cold now. Dead. "Since you won't confess voluntarily, I'll make you."
+— Making sure you tell me everything, Anna said. Her voice was cold now. Dead. Since you won't confess voluntarily, I'll make you.
 
-"Anna, stop. We can talk about this. Please—"
+— Anna, stop. We can talk about this. Please—
 
 Anna moved fast. Jessica stumbled backward, hit the counter. Reached for her phone.
 
 Anna grabbed her wrist. Twisted. The phone clattered to the floor.
 
-"Please," Jessica said. "Please don't—"
+— Please, Jessica said. Please don't—
 
 ---
 
 **8:25 PM — The Bar**
 
-"I should go," Andrew said, starting to stand.
+— I should go, Andrew said, starting to stand.
 
-"Wait." Jason's hand on his arm. "Just... give me five minutes. You need to hear this."
+— Wait. Jason's hand on his arm. Just... give me five minutes. You need to hear this.
 
-"I don't need to hear anything from you."
+— I don't need to hear anything from you.
 
-"You need to hear about who Anna really is."
+— You need to hear about who Anna really is.
 
 Andrew sat back down, despite himself.
 
 Jason took a long drink. "Twenty years ago, Anna and I were together. Columbia. Both finance majors. Both ambitious. I thought we were building something."
 
-"This is ancient history."
+— This is ancient history.
 
-"It's relevant history." Jason leaned in. "You know why we broke up? The real reason?"
+— It's relevant history. Jason leaned in. You know why we broke up? The real reason?
 
 Andrew said nothing.
 
-"Everyone thinks she left me because I was too controlling. That I wanted to boss her around. That's the story she tells, right?"
+— Everyone thinks she left me because I was too controlling. That I wanted to boss her around. That's the story she tells, right?
 
-"Something like that."
+— Something like that.
 
-"It's a lie." Jason's voice was hard. "I left her because she was trying to control every aspect of my life. What classes I took, who I talked to, where I went. She'd check my phone without permission, follow me to meetings, show up at places where I'd said I'd be alone."
+— It's a lie. Jason's voice was hard. I left her because she was trying to control every aspect of my life. What classes I took, who I talked to, where I went. She'd check my phone without permission, follow me to meetings, show up at places where I'd said I'd be alone.
 
 Andrew's stomach tightened.
 
-"When I got an opportunity that would take me away for the summer, she told me I had to turn it down. Said if I really loved her, I'd stay. When I said I was going anyway, she... escalated."
+— When I got an opportunity that would take me away for the summer, she told me I had to turn it down. Said if I really loved her, I'd stay. When I said I was going anyway, she... escalated.
 
 Jason took another drink. "She hacked into my accounts. Sent emails from my account trying to sabotage the opportunity. Started telling people I was cheating on her, that I was abusive. She was obsessed. Controlling. Couldn't tolerate anyone having power she didn't control."
 
 Andrew thought about the GPS tracking. The phone monitoring. The interrogations. The cold, analytical way Anna had documented his every movement.
 
-"The worst part," Jason continued, "was that she was convinced she was the victim. That I was the one hurting her by wanting independence. She couldn't see that her need for control was suffocating everything around her."
+— The worst part, Jason continued, was that she was convinced she was the victim. That I was the one hurting her by wanting independence. She couldn't see that her need for control was suffocating everything around her.
 
-"Why are you telling me this?"
+— Why are you telling me this?
 
 Jason leaned back. "Because we met last night at your gallery. And I saw the way you looked—like you were drowning. I've been there. I know what it's like." He paused. "Look, I'm not trying to interfere in your marriage. I have nothing but respect for your family. I hope you and Anna can work things out. I really do. For your kids' sake, for everyone's sake. I just thought you should know who you're dealing with."
 
-"You sound like you're warning me."
+— You sound like you're warning me.
 
-"I'm not warning you." Jason signaled for the check. "I'm just sharing my experience. What you do with it is your choice. Maybe she's different now. Maybe I was the problem. I don't know." He stood, extending his hand. "I hope things work out for all of you. I really do. I mean that."
+— I'm not warning you. Jason signaled for the check. I'm just sharing my experience. What you do with it is your choice. Maybe she's different now. Maybe I was the problem. I don't know. He stood, extending his hand. I hope things work out for all of you. I really do. I mean that.
 
 ---
 
@@ -3057,17 +3054,17 @@ But Anna was stronger. Fueled by rage and purpose and the kind of focus that cam
 
 She got Jessica on the ground. Pulled out the zip ties. White plastic strips. She looped one around Jessica's wrists, pulled it tight. The plastic bit into skin. Then another around her ankles. Efficient. Clinical.
 
-"Anna, stop," Jessica was sobbing. "Stop, please. I told you the truth. I confessed to the affair. What more do you want?"
+— Anna, stop, Jessica was sobbing. Stop, please. I told you the truth. I confessed to the affair. What more do you want?
 
-"You didn't confess to everything," Anna said, her voice cold. "You're still lying!"
+— You didn't confess to everything, Anna said, her voice cold. You're still lying!
 
-"I'm not lying! I don't know anything about sabotage. Please, Anna, just listen to me—"
+— I'm not lying! I don't know anything about sabotage. Please, Anna, just listen to me—
 
-"Shut up." Anna's voice cracked with fury. "You think confessing to the affair makes you honest? You think that's enough? You destroyed my life and you won't even admit to all of it."
+— Shut up. Anna's voice cracked with fury. You think confessing to the affair makes you honest? You think that's enough? You destroyed my life and you won't even admit to all of it.
 
-"I'm telling you the truth!"
+— I'm telling you the truth!
 
-"Liar!" Anna screamed it. The word ripped out of her. "You're a liar and you're going to confess to everything or I'll make you."
+— Liar! Anna screamed it. The word ripped out of her. You're a liar and you're going to confess to everything or I'll make you.
 
 Anna pressed duct tape over Jessica's mouth. Silenced the protests, the pleas, the lies.
 
@@ -3193,13 +3190,13 @@ Anna kept driving. Headed toward the meeting point. The prostitute would be wait
 
 At 9:37, she pulled up to the corner where she'd dropped the woman off earlier. The prostitute was there, looking relieved to see her.
 
-"How did it go?" Anna asked.
+— How did it go? Anna asked.
 
-"Fine. She was nice. Asked a lot of questions, but I kept it vague like you said. Told her I was stressed about work, having trouble sleeping. She said I seemed really open, really willing to engage. That's a good sign, apparently."
+— Fine. She was nice. Asked a lot of questions, but I kept it vague like you said. Told her I was stressed about work, having trouble sleeping. She said I seemed really open, really willing to engage. That's a good sign, apparently.
 
 Anna nodded. "Perfect."
 
-"How did it go with your ex?" the woman asked. "You came earlier. Did you meet him?"
+— How did it go with your ex? the woman asked. You came earlier. Did you meet him?
 
 Anna paused. The lie came easily. "It didn't go as expected."
 
@@ -3241,19 +3238,19 @@ Anna pulled over and rolled down the window. "Excuse me?"
 
 The woman approached cautiously. "What do you need?"
 
-"How much?"
+— How much?
 
-"One hundred an hour."
+— One hundred an hour.
 
 Anna nodded. "Get in."
 
 The woman hesitated. "Where are we going?"
 
-"You're going to be an actress for a night."
+— You're going to be an actress for a night.
 
 The woman's expression shifted—wariness, then something like fear. "I don't think so." She started to back away. "I'm not into anything weird. I'm not—"
 
-"Six hundred dollars total," Anna said. "Three hundred now, three hundred when I pick you up. Two hours. That's it."
+— Six hundred dollars total, Anna said. Three hundred now, three hundred when I pick you up. Two hours. That's it.
 
 The woman stopped. Six hundred was more than she'd make in a night, probably more than she'd make in two nights. "What do you want me to do?"
 
@@ -3261,61 +3258,61 @@ Anna opened the passenger door. "Get in. I'll explain."
 
 The woman looked around—checking for witnesses, Anna realized. Making sure this wasn't a setup. Then she slid into the passenger seat. "I'm not doing anything illegal."
 
-"You're not," Anna said. "You're just going to pretend to be me for ninety minutes."
+— You're not, Anna said. You're just going to pretend to be me for ninety minutes.
 
-"What?"
+— What?
 
 Anna pulled away from the curb, drove toward the therapy office. "I have an appointment. A therapy appointment. I can't make it, but I need someone to go in my place. To be me. To talk to the therapist like I would."
 
-"That's insane."
+— That's insane.
 
-"I know." Anna kept her eyes on the road. "But I need a solid alibi. My husband—he's abusive. Controlling. He tracks everything I do. If I miss this appointment, he'll know. He'll hurt me."
+— I know. Anna kept her eyes on the road. But I need a solid alibi. My husband—he's abusive. Controlling. He tracks everything I do. If I miss this appointment, he'll know. He'll hurt me.
 
 The woman was quiet for a moment. "Why can't you just go?"
 
-"Because my ex is in town. The one I actually loved. The one who got away. And I'm meeting him tonight—maybe just for dinner, maybe for more. I don't know. But I can't let my husband find out. If he does..." Anna let her voice break, just a little. "I just need someone to go to therapy so I have proof I was there. So I can show him the appointment confirmation, tell him how it went. So he doesn't suspect."
+— Because my ex is in town. The one I actually loved. The one who got away. And I'm meeting him tonight—maybe just for dinner, maybe for more. I don't know. But I can't let my husband find out. If he does... Anna let her voice break, just a little. I just need someone to go to therapy so I have proof I was there. So I can show him the appointment confirmation, tell him how it went. So he doesn't suspect.
 
 The woman studied Anna's face. "You're serious."
 
-"I'm desperate." Anna pulled over near the therapy office, still a block away. "Please. I'll pay you three hundred now, three hundred when I pick you up. Six hundred total. You go in, talk to the therapist for ninety minutes—first appointments are longer—then wait thirty minutes for me to pick you up. That's it. Two hours total."
+— I'm desperate. Anna pulled over near the therapy office, still a block away. Please. I'll pay you three hundred now, three hundred when I pick you up. Six hundred total. You go in, talk to the therapist for ninety minutes—first appointments are longer—then wait thirty minutes for me to pick you up. That's it. Two hours total.
 
-"What if she realizes I'm not you?"
+— What if she realizes I'm not you?
 
-"She won't. It's a first appointment. She's never met me. She only has my name and basic information. You just need to sound professional. Calm. Like someone who works in finance."
+— She won't. It's a first appointment. She's never met me. She only has my name and basic information. You just need to sound professional. Calm. Like someone who works in finance.
 
 The woman was quiet. Anna could see her calculating—the money, the risk, the story.
 
-"Three hundred now," the woman said finally. "Three hundred when you pick me up. Cash."
+— Three hundred now, the woman said finally. Three hundred when you pick me up. Cash.
 
 Anna reached into her purse, counted out three hundred-dollar bills. Handed them over.
 
 The woman counted them. Nodded. "What's your name?"
 
-"Anna Park."
+— Anna Park.
 
-"Anna Park. Got it." The woman put the money in her pocket. "What do I say? What's my story?"
+— Anna Park. Got it. The woman put the money in her pocket. What do I say? What's my story?
 
 Anna thought quickly. "You're a VP at a finance firm. You're stressed. Work pressure. Marriage problems. You're considering therapy because you're having trouble sleeping, trouble focusing. You're not sure if it's work stress or something deeper. Keep it vague. Professional. Don't overshare."
 
-"VP at a finance firm. Stressed. Marriage problems. Vague." The woman nodded. "I can do that."
+— VP at a finance firm. Stressed. Marriage problems. Vague. The woman nodded. I can do that.
 
-"Good." Anna checked her watch. 7:15. The appointment was at 8:00. "We have forty-five minutes. Let me train you."
+— Good. Anna checked her watch. 7:15. The appointment was at 8:00. We have forty-five minutes. Let me train you.
 
 For the next ten minutes, Anna coached her. How to sit. How to speak—measured, controlled, articulate. How to answer questions without giving too much away. How to sound like someone who'd spent years in corporate environments, who knew how to present herself.
 
 The woman was good. Better than Anna expected. She picked up the cadence quickly, the professional distance, the way Anna would phrase things.
 
-"Good," Anna said again. "You're ready."
+— Good, Anna said again. You're ready.
 
 She gave the woman the address, the therapist's name—Dr. Sarah Chen—the appointment time. "Go in at 8:00. Stay for ninety minutes. Then wait for me here at 10:00. I'll pick you up, and we're done."
 
-"What if she asks something I can't answer?"
+— What if she asks something I can't answer?
 
-"Say you're not comfortable discussing it yet. Say you need time to build trust. Therapists respect that."
+— Say you're not comfortable discussing it yet. Say you need time to build trust. Therapists respect that.
 
 The woman nodded. Got out of the car. "10:00. Here."
 
-"10:00," Anna confirmed.
+— 10:00, Anna confirmed.
 
 She watched the woman walk toward the therapy office, then pulled away. Drove toward the West Village. Toward Perry Street. Toward Jessica.
 
@@ -3381,9 +3378,9 @@ At 9:30, Denise knocked on her door. "Have you seen Jessica?"
 
 Anna looked up, perfectly calibrated concern. "No. Why?"
 
-"She's not in yet. She's supposed to present the Meridian deck this morning and she's not answering her phone."
+— She's not in yet. She's supposed to present the Meridian deck this morning and she's not answering her phone.
 
-"That's not like her." Anna frowned. "Try her again?"
+— That's not like her. Anna frowned. Try her again?
 
 Denise nodded and left.
 
@@ -3391,11 +3388,11 @@ Anna returned to her work, pulse steady, expression neutral.
 
 By noon, Jessica still hadn't shown. Tom postponed the Meridian meeting.
 
-"This is completely unlike her," Tom said, frustration evident. "No call, no email, nothing."
+— This is completely unlike her, Tom said, frustration evident. No call, no email, nothing.
 
-"Should someone check on her?" Marcus suggested. "Make sure she's okay?"
+— Should someone check on her? Marcus suggested. Make sure she's okay?
 
-"I'll send building security to do a wellness check," Tom said. "She lives in the West Village, right?"
+— I'll send building security to do a wellness check, Tom said. She lives in the West Village, right?
 
 Anna kept her face carefully concerned. "I hope she's alright."
 
@@ -3407,15 +3404,15 @@ Still no Jessica.
 
 The office hummed with worry now. Tom had called Jessica's emergency contact—her mother in Ohio—who hadn't heard from her either. Building security had knocked on her apartment door Saturday. No answer.
 
-"This isn't right," Denise said at lunch. "Something's wrong."
+— This isn't right, Denise said at lunch. Something's wrong.
 
 Anna agreed with appropriate gravity. "Should we file a missing persons report?"
 
-"Tom already did. Police are going to do a welfare check today."
+— Tom already did. Police are going to do a welfare check today.
 
 Anna nodded. Took a bite of salad. Swallowed.
 
-"I just hope she's okay," she said quietly.
+— I just hope she's okay, she said quietly.
 
 ---
 
@@ -3427,19 +3424,19 @@ She'd been dead for five days. Hanging in her bedroom closet. Suicide note on th
 
 The call came to Henderson at 4:15 PM. Tom gathered the team in the conference room, face gray, voice shaking.
 
-"I have terrible news. Jessica Hall was found deceased in her apartment this afternoon. The police are investigating, but... they believe it was suicide."
+— I have terrible news. Jessica Hall was found deceased in her apartment this afternoon. The police are investigating, but... they believe it was suicide.
 
 Shocked silence. Someone gasped. Denise started crying.
 
 Anna felt everyone's eyes on her—the boss whose husband had been sleeping with Jessica. The woman with motive.
 
-"Oh my God," Anna whispered. Let her hand go to her mouth. Let her eyes fill with appropriate horror. "That's... I can't believe..."
+— Oh my God, Anna whispered. Let her hand go to her mouth. Let her eyes fill with appropriate horror. That's... I can't believe...
 
 Tom cleared his throat. "The police will want to speak with anyone who had recent contact with Jessica. They're treating it as a suspicious death until they complete their investigation."
 
 Marcus glanced at Tom. "Suspicious?"
 
-"Standard procedure," Tom said. "But they found a note. She was... struggling with personal issues."
+— Standard procedure, Tom said. But they found a note. She was... struggling with personal issues.
 
 *Personal issues.* The affair. Everyone knew. Everyone was thinking it.
 
@@ -3457,45 +3454,45 @@ Emerged with red eyes and a composed expression. The perfect act.
 
 Detective Morris interviewed Anna at 9 AM.
 
-"Mrs. Park, when did you last see Jessica Hall?"
+— Mrs. Park, when did you last see Jessica Hall?
 
 Anna thought quickly. The last time she'd actually seen Jessica was at Andrew's gallery Thursday night, watching from across the street. But she couldn't say that. "I saw her at work earlier in the week. Wednesday, I think. We passed in the hallway."
 
-"Did you speak to her?"
+— Did you speak to her?
 
-"Not really. Just a nod, maybe a hello. We hadn't been speaking much since... since I found out about the affair."
+— Not really. Just a nod, maybe a hello. We hadn't been speaking much since... since I found out about the affair.
 
-"You were aware of Ms. Hall's relationship with your husband?"
+— You were aware of Ms. Hall's relationship with your husband?
 
 Anna paused. Looked down. "Yes. Andrew told me recently."
 
-"How did that make you feel?"
+— How did that make you feel?
 
-"Betrayed. Angry. Hurt." The truth, actually. "But I didn't want her dead, Detective. I'm considering a divorce. So is Andrew."
+— Betrayed. Angry. Hurt. The truth, actually. But I didn't want her dead, Detective. I'm considering a divorce. So is Andrew.
 
-"Where were you Friday night, say between seven and eleven PM?"
+— Where were you Friday night, say between seven and eleven PM?
 
-"I had a therapy appointment. It started at eight, took one hour and a half. I got home around ten."
+— I had a therapy appointment. It started at eight, took one hour and a half. I got home around ten.
 
-"Can your therapist verify this?"
+— Can your therapist verify this?
 
 Anna paused. "I'm sure she can. I can give you her details so yo ucan talk to her."
 
-"Did you speak to anyone else? See anyone?"
+— Did you speak to anyone else? See anyone?
 
-"After the session I drove around for a bit after. I was upset. About the affair, about everything. I needed time to think, to breathe, but it didn't take more than 10 minutes. After that I headed straight home." Anna kept her voice steady. 
+— After the session I drove around for a bit after. I was upset. About the affair, about everything. I needed time to think, to breathe, but it didn't take more than 10 minutes. After that I headed straight home. Anna kept her voice steady. 
 
 Detective Morris made notes. "Did you ever go to Jessica Hall's apartment?"
 
-"No."
+— No.
 
-"Did you have any contact with her outside of work?"
+— Did you have any contact with her outside of work?
 
-"No. We weren't friends. We were colleagues."
+— No. We weren't friends. We were colleagues.
 
-"Did you ever threaten Ms. Hall?"
+— Did you ever threaten Ms. Hall?
 
-"No. I confronted my husband about the affair, but I never spoke to Jessica about it directly."
+— No. I confronted my husband about the affair, but I never spoke to Jessica about it directly.
 
 More questions. Same questions rephrased. Looking for inconsistencies, contradictions, cracks.
 
@@ -3505,11 +3502,11 @@ She'd prepared for this. Rehearsed every answer. Knew the difference between lyi
 
 Detective Morris studied his notes. "The scene was clean. No signs of forced entry. No defensive wounds. No DNA under her nails. Everything points to suicide."
 
-"That's... that's so tragic," Anna said.
+— That's... that's so tragic, Anna said.
 
 After two hours, Detective Morris let her go. "We'll be in touch if we have more questions. Don't leave the city."
 
-"Of course."
+— Of course.
 
 ---
 
@@ -3523,43 +3520,43 @@ She drove home, worked until 7pm and then made dinner. Set the table for two.
 
 When Andrew came home at eight, he stood in the doorway and stared at her like she was a stranger.
 
-"Did you do it?" he asked.
+— Did you do it? he asked.
 
-"No." The lie was smooth. Perfect. Practiced.
+— No. The lie was smooth. Perfect. Practiced.
 
-"The police keep asking questions. Like they don't believe it was really suicide."
+— The police keep asking questions. Like they don't believe it was really suicide.
 
-"They questioned me too." Anna kept her voice steady. "But Andrew, I was at a therapy session. I didn't hurt Jessica."
+— They questioned me too. Anna kept her voice steady. But Andrew, I was at a therapy session. I didn't hurt Jessica.
 
-"You tracked me. Followed me. Documented everything."
+— You tracked me. Followed me. Documented everything.
 
-"Because I was angry. Because I wanted evidence for a divorce. Not because I wanted her dead."
+— Because I was angry. Because I wanted evidence for a divorce. Not because I wanted her dead.
 
 Andrew moved to the window. Stood with his back to her. "Did the sabotage stop?"
 
-"What?"
+— What?
 
-"At work. The phantom emails. The calendar glitches. Did all of it stop after Jessica died?"
+— At work. The phantom emails. The calendar glitches. Did all of it stop after Jessica died?
 
 Anna's stomach tightened. She hadn't thought about that. Hadn't considered how the timing would look.
 
-"Actually, it seems that way, but it's only been a week. I'm sure that it's just a coincidence," she said carefully.
+— Actually, it seems that way, but it's only been a week. I'm sure that it's just a coincidence, she said carefully.
 
-"Is it?" Andrew turned. "Or were you right all along? Was Jessica sabotaging you?"
+— Is it? Andrew turned. Or were you right all along? Was Jessica sabotaging you?
 
 Anna said nothing. Let him build the narrative.
 
-"If she was," Andrew continued slowly, "then you had a motive. You thought she was destroying your career and your marriage. So you eliminated the threat."
+— If she was, Andrew continued slowly, then you had a motive. You thought she was destroying your career and your marriage. So you eliminated the threat.
 
-"Andrew—"
+— Andrew—
 
-"Did you kill her?" His voice broke. "Please. I need to know. Did you kill Jessica?"
+— Did you kill her? His voice broke. Please. I need to know. Did you kill Jessica?
 
 Anna looked at her husband. The man she'd loved for seventeen years. The father of her children. The person who knew her better than anyone.
 
 And she lied to his face.
 
-"No," she said. "I swear to you. I didn't kill her."
+— No, she said. I swear to you. I didn't kill her.
 
 He searched her eyes. Looking for truth. For certainty. For the woman he'd married.
 
@@ -3567,9 +3564,9 @@ She gave him nothing but the performance of innocence.
 
 Finally, he turned away. "I'm staying at Ben's for a while."
 
-"Andrew—"
+— Andrew—
 
-"I can't be here right now. I can't look at you and not wonder."
+— I can't be here right now. I can't look at you and not wonder.
 
 He left. The door closed quietly behind him.
 
@@ -3585,17 +3582,17 @@ Anna wore black. Stood in the back. Cried at the right moments.
 
 When Jessica's mother—young for a mother, only in her late fifties, devastated—approached her after the service, Anna took her hands.
 
-"Mrs. Hall, I'm so sorry for your loss."
+— Mrs. Hall, I'm so sorry for your loss.
 
-"You're Anna? Jessica's boss?"
+— You're Anna? Jessica's boss?
 
-"Yes."
+— Yes.
 
 Mrs. Hall's eyes filled with fresh tears. "She spoke so highly of you. Said you were brilliant. Said she wanted to be like you someday."
 
 The words hit like a slap. Anna's throat tightened. "She was exceptionally talented. She had a bright future."
 
-"I don't understand why she..." Mrs. Hall couldn't finish. "She seemed happy. Her last text was about work. About being excited about a big project."
+— I don't understand why she... Mrs. Hall couldn't finish. She seemed happy. Her last text was about work. About being excited about a big project.
 
 Anna squeezed her hands. "Sometimes people hide their pain very well."
 
@@ -3667,17 +3664,17 @@ They barely spoke. When they did, it was logistics. Kid schedules. Bills. Surfac
 
 Sophie noticed. Of course she did.
 
-"Are you guys getting divorced?" she asked Anna one Saturday morning.
+— Are you guys getting divorced? she asked Anna one Saturday morning.
 
 Anna was making coffee. Moving through the familiar routine. Pretending everything was fine.
 
 She turned to face her daughter. Put on the same smile she'd perfected over seventeen years of marriage. The same composed mask she wore at work.
 
-"No, sweetheart. We're just... going through a difficult time. Your father and I have always had the perfect life together. That's not going to stop now."
+— No, sweetheart. We're just... going through a difficult time. Your father and I have always had the perfect life together. That's not going to stop now.
 
 Sophie looked uncertain. "But things are different."
 
-"Adults go through rough patches. It doesn't mean we're giving up." Anna's voice was warm. Reassuring. Completely hollow. "We'll get through this. We always do."
+— Adults go through rough patches. It doesn't mean we're giving up. Anna's voice was warm. Reassuring. Completely hollow. We'll get through this. We always do.
 
 Sophie seemed to accept this. Or at least, she wanted to believe it badly enough not to push further.
 
@@ -3691,29 +3688,29 @@ Anna volunteered to take the box to Jessica's parents. It seemed like the right 
 
 Jessica's mother opened the door. Looked older than she had at the funeral. Grief did that.
 
-"Ms. Park."
+— Ms. Park.
 
-"I brought Jessica's things from the office. I thought you might want them."
+— I brought Jessica's things from the office. I thought you might want them.
 
-"Thank you." Mrs. Hall took the box, eyes filling with tears. She set it down inside the doorway and turned back to Anna. "My daughter always spoke so highly of you. She admired you so much. She wanted to be like you someday." She paused, her expression clouding. "Oh, but I've told you this before, haven't I? I'm sorry—my mind hasn't been quite right since..."
+— Thank you. Mrs. Hall took the box, eyes filling with tears. She set it down inside the doorway and turned back to Anna. My daughter always spoke so highly of you. She admired you so much. She wanted to be like you someday. She paused, her expression clouding. Oh, but I've told you this before, haven't I? I'm sorry—my mind hasn't been quite right since...
 
 The words hit Anna like a physical blow. Her throat tightened.
 
-"She was exceptionally talented," Anna managed. "She had such a bright future ahead of her."
+— She was exceptionally talented, Anna managed. She had such a bright future ahead of her.
 
-"She was so excited about working with you. She'd call me every week and tell me about the projects, about everything she was learning from you." Mrs. Hall's voice broke. "Thank you for mentoring her. Thank you for everything you did for her."
+— She was so excited about working with you. She'd call me every week and tell me about the projects, about everything she was learning from you. Mrs. Hall's voice broke. Thank you for mentoring her. Thank you for everything you did for her.
 
 Anna felt something crack inside her chest. This woman—this grieving mother—was *thanking* her. For mentoring the daughter Anna had murdered.
 
-"I'm so sorry for your loss, Mrs. Hall."
+— I'm so sorry for your loss, Mrs. Hall.
 
-"Thank you for coming all this way. It means the world to me that you cared enough to bring these personally."
+— Thank you for coming all this way. It means the world to me that you cared enough to bring these personally.
 
 Anna hugged her. Let Jessica's mother cry on her shoulder for the second time. Felt the weight of what she'd done crushing down.
 
 When she finally pulled away, Mrs. Hall squeezed her hands, holding on like Anna was a lifeline. "You must miss her too. I know how much she meant to you. It's been so hard—losing her has been so hard."
 
-"Yes," Anna whispered, the words catching in her throat. "I miss her very much."
+— Yes, Anna whispered, the words catching in her throat. I miss her very much.
 
 It was the truest thing she'd said in weeks.
 
@@ -3721,7 +3718,7 @@ It was the truest thing she'd said in weeks.
 
 **Monday Morning — Tom's Office**
 
-"Anna, sit down. I have some news."
+— Anna, sit down. I have some news.
 
 Anna settled into the chair across from Tom's desk, keeping her expression neutral even as her heart rate accelerated.
 
@@ -3729,21 +3726,21 @@ Tom leaned back, a rare smile crossing his face. "The board met last week. After
 
 Anna's hands remained steady in her lap.
 
-"You didn't just handle it," Tom continued. "You excelled. The Meridian deal closed. The Anderson account renewed. Your team has rallied. And frankly, the board was impressed by your composure throughout this entire... situation."
+— You didn't just handle it, Tom continued. You excelled. The Meridian deal closed. The Anderson account renewed. Your team has rallied. And frankly, the board was impressed by your composure throughout this entire... situation.
 
 He paused, letting the moment build.
 
-"We're promoting you to Senior Vice President, effective immediately. Full title, full compensation package, full executive benefits."
+— We're promoting you to Senior Vice President, effective immediately. Full title, full compensation package, full executive benefits.
 
 The words hit differently than Anna expected. Not triumph. Not joy. Just a cold, clinical satisfaction. Like checking a box on a list.
 
-"Thank you, Tom. I'm honored."
+— Thank you, Tom. I'm honored.
 
-"You've earned it. More than earned it." He pulled out a folder. "Now, this comes with expanded responsibilities. You'll be taking over the entire M&A division. You'll report directly to the board. And Anna—" He leaned forward, voice dropping. "—between you and me, Gerald is retiring in a year, maybe two. The board will need a new member."
+— You've earned it. More than earned it. He pulled out a folder. Now, this comes with expanded responsibilities. You'll be taking over the entire M&A division. You'll report directly to the board. And Anna— He leaned forward, voice dropping. —between you and me, Gerald is retiring in a year, maybe two. The board will need a new member.
 
 Anna's pulse quickened. "A board seat?"
 
-"I can't make promises. But your name is already being discussed. If you keep executing at this level, if you maintain the stability you've shown these past few weeks..." He smiled. "Let's just say your trajectory is looking very good."
+— I can't make promises. But your name is already being discussed. If you keep executing at this level, if you maintain the stability you've shown these past few weeks... He smiled. Let's just say your trajectory is looking very good.
 
 Anna left Tom's office fifteen minutes later with a new title, a forty percent raise, and a clear path to the thing she'd wanted most: a seat at the table where real power lived.
 
@@ -3822,19 +3819,19 @@ Her throat tightened.
 
 She picked up her desk phone and dialed Marcus.
 
-"Can you come in here?" she said, keeping her voice flat. "Now."
+— Can you come in here? she said, keeping her voice flat. Now.
 
 Two minutes later, Marcus knocked and stepped inside. He looked tired but composed, the way he always looked when other people were breaking apart.
 
-"What's going on?"
+— What's going on?
 
 Anna swiveled her monitor toward him without speaking.
 
 Marcus read. His expression shifted—only slightly, but Anna saw it. Surprise first. Then calculation. Then something close to sympathy, practiced and useful.
 
-"Did you send this?"
+— Did you send this?
 
-"No."
+— No.
 
 Marcus nodded slowly, as if he had already expected that answer. "Tom will call you."
 
@@ -3844,45 +3841,45 @@ Anna didn't look at Marcus when she picked up. "Tom."
 
 Tom Harrison's voice was careful. Not angry. Not relieved. Just careful—like he was stepping around glass.
 
-"Anna. I just saw your email."
+— Anna. I just saw your email.
 
-"I didn't send it."
+— I didn't send it.
 
 There was a pause long enough for Anna to hear the low hum of the building in the silence between them.
 
-"Okay," Tom said finally. "I'm coming down."
+— Okay, Tom said finally. I'm coming down.
 
 He arrived ten minutes later, with HR close behind him like a shadow.
 
 Tom closed Anna's office door himself. He looked at Marcus and HR, then back at Anna.
 
-"Walk me through last night," he said.
+— Walk me through last night, he said.
 
 It was the same question the police had asked when Jessica died. A question that assumed there *was* something to walk through.
 
-"I went home at seven. Ate with the kids. Andrew and I spoke about Jake's soccer schedule. I worked for an hour. I went to bed before eleven."
+— I went home at seven. Ate with the kids. Andrew and I spoke about Jake's soccer schedule. I worked for an hour. I went to bed before eleven.
 
 Tom watched her face. HR watched her hands.
 
-"Did you access your email after midnight?" HR asked.
+— Did you access your email after midnight? HR asked.
 
-"No."
+— No.
 
-"Do you share passwords?" Tom asked quietly.
+— Do you share passwords? Tom asked quietly.
 
 Anna swallowed. The name that rose in her mind was Andrew, and she forced it back down. She couldn't afford that thought. Not right now. Not with Tom standing here measuring her for instability.
 
-"No," she said.
+— No, she said.
 
 Tom rubbed a hand along his jaw. "IT is already looking into it. But, Anna—" He held her gaze. "This can't happen again."
 
-"I know."
+— I know.
 
 He didn't move away. "This email goes to the board admins too. It creates a record. A narrative. Do you understand what that does?"
 
 Anna did. It did what sabotage always did: it planted a version of her that other people would remember when they made decisions without her in the room.
 
-"I understand," she said.
+— I understand, she said.
 
 Tom nodded once. Then, softer: "Were you... considering resigning?"
 
@@ -3890,15 +3887,15 @@ The question was the trap. If she said no too quickly, she would sound defensive
 
 So she did what she always did.
 
-"No," Anna said, perfectly calm. "I'm not resigning. I'm working."
+— No, Anna said, perfectly calm. I'm not resigning. I'm working.
 
 Tom exhaled. "Okay. We'll send a correction."
 
-"No," Anna said. The word surprised even her. "Don't."
+— No, Anna said. The word surprised even her. Don't.
 
 Tom frowned. "Anna—"
 
-"A correction makes it look real enough to correct," she said, voice still even. "People already saw it. Let it die."
+— A correction makes it look real enough to correct, she said, voice still even. People already saw it. Let it die.
 
 Tom held her gaze for a long moment, then nodded. "Fine. We'll contain it quietly."
 
@@ -3910,7 +3907,7 @@ Marcus hesitated. "Anna... are you sleeping?"
 
 There it was. The first polite attempt to place her gently into the box labeled *problem.*
 
-"I'm fine," Anna said.
+— I'm fine, Anna said.
 
 Marcus's expression didn't change, but she saw the thought behind it: *That's what people say when they're not.*
 
@@ -3966,21 +3963,21 @@ After the meeting, she went straight to IT.
 
 They took her badge, ran it through their system, and handed it back with the same baffled politeness she'd been getting for months.
 
-"It shows active," the technician said. "No deactivation requests. Could be a sensor issue."
+— It shows active, the technician said. No deactivation requests. Could be a sensor issue.
 
-"It stopped working suddenly," Anna said.
+— It stopped working suddenly, Anna said.
 
-"These things happen," he said, like she was complaining about a printer.
+— These things happen, he said, like she was complaining about a printer.
 
 Anna stared at him. "And the email?"
 
 He sighed, already tired. "We pulled logs. No breach detected. No malware. It could be—"
 
-"Don't," Anna said.
+— Don't, Anna said.
 
 His eyebrows rose. "Don't what?"
 
-"Don't tell me it's user error."
+— Don't tell me it's user error.
 
 The technician leaned back slightly, hands raised in passive surrender. "I'm not saying that. I'm just saying the system doesn't show what you're describing."
 
@@ -4053,7 +4050,7 @@ She closed the email slowly, as if it might explode.
 
 Behind her, Andrew opened the refrigerator, took out a bottle of water, and closed it again.
 
-"What's wrong?" he asked, not turning around.
+— What's wrong? he asked, not turning around.
 
 Anna almost laughed at the absurdity of it. He asked now, after weeks of silence, as if her face had finally betrayed something he could not ignore.
 
@@ -4061,7 +4058,7 @@ She could tell him. She could show him. She could beg him to believe her again.
 
 But the last time she'd begged for belief, she'd used it to justify murder.
 
-"Nothing," Anna said.
+— Nothing, Anna said.
 
 Andrew's silence behind her felt heavier than a reply.
 
@@ -4133,33 +4130,33 @@ Claire answered on the second ring. "Anna?"
 
 Hearing her friend's voice did something Anna hadn't expected. It loosened a tightness in her chest so quickly it hurt.
 
-"I need you," Anna said.
+— I need you, Anna said.
 
 There was a pause—only a beat—but Anna heard the shift in Claire's breathing, the immediate attention. The way real friendship moved faster than pride.
 
-"What's going on?"
+— What's going on?
 
 Anna pressed her forehead to the cool bathroom mirror.
 
 The words came out smaller than she intended. "It's happening again."
 
-"What is?"
+— What is?
 
 Anna swallowed. She could hear her own pulse.
 
-"The emails. The badge. The files. I thought it stopped because—" Her voice cracked, and she hated herself for it. "I thought it stopped."
+— The emails. The badge. The files. I thought it stopped because— Her voice cracked, and she hated herself for it. I thought it stopped.
 
 Claire's voice, when it came, was careful. "Anna, where are you right now?"
 
-"Home. In the bathroom."
+— Home. In the bathroom.
 
-"Okay." Claire's breath shifted, like she was choosing words that wouldn't set Anna off. "I can't get there tonight, but I'm booking coffee with you tomorrow. First thing. You hear me?"
+— Okay. Claire's breath shifted, like she was choosing words that wouldn't set Anna off. I can't get there tonight, but I'm booking coffee with you tomorrow. First thing. You hear me?
 
 Anna's eyes stung. She blinked hard until the tears backed down into something colder.
 
-"Don't tell anyone," Anna said, though she didn't know what *anyone* meant anymore.
+— Don't tell anyone, Anna said, though she didn't know what *anyone* meant anymore.
 
-"I won't," Claire said. "Tomorrow morning. I'll text you the place. Just breathe, and stay put tonight."
+— I won't, Claire said. Tomorrow morning. I'll text you the place. Just breathe, and stay put tonight.
 
 Anna ended the call and stared at her own face again.
 
@@ -4203,7 +4200,7 @@ Claire was already there, sitting near the back with two coffees and a paper bag
 
 Her face softened when she saw Anna.
 
-"Hey," Claire said, standing halfway, then deciding not to make it dramatic. "Come sit."
+— Hey, Claire said, standing halfway, then deciding not to make it dramatic. Come sit.
 
 Anna slid into the chair across from her, hands clasped around her phone like she needed to hold onto something solid.
 
@@ -4211,29 +4208,29 @@ Claire pushed a coffee toward her. "Oat milk, two Splenda. Don't argue with me."
 
 Anna's throat tightened. It was a small thing. It shouldn't have mattered. But being seen that precisely—being remembered—made her feel suddenly fragile, like a glass she'd been pretending was steel.
 
-"Thank you," Anna said.
+— Thank you, Anna said.
 
 Claire watched her for a beat. Not with pity. With focus.
 
-"Talk to me."
+— Talk to me.
 
 Anna took a sip. The coffee was hot enough to hurt. It grounded her.
 
 She exhaled, and the words came out fast, as if they had been stacking up in her chest all night.
 
-"It started again. The sabotage. It came back."
+— It started again. The sabotage. It came back.
 
 Claire's expression didn't change, but her posture sharpened.
 
-"What happened?"
+— What happened?
 
 Anna looked down at the table. The wood grain. The sugar packets. The ordinary world refusing to acknowledge her private nightmare.
 
-"A resignation email. From my account. Sent at two in the morning. To Tom, HR, the exec admins. It said I was stepping down because I can't handle the job."
+— A resignation email. From my account. Sent at two in the morning. To Tom, HR, the exec admins. It said I was stepping down because I can't handle the job.
 
-"And you didn't send it."
+— And you didn't send it.
 
-"No." Anna's voice came out flat. "Then my badge didn't work. Then files disappeared. Then an org chart went out calling me *Interim SVP—Medical Leave.*"
+— No. Anna's voice came out flat. Then my badge didn't work. Then files disappeared. Then an org chart went out calling me *Interim SVP—Medical Leave.*
 
 Claire's eyebrows lifted slightly. "That's... aggressive."
 
@@ -4243,23 +4240,23 @@ Claire leaned forward. "Okay. Let's go through it. Who has access? Who could do 
 
 Anna stared at her coffee. The surface shook slightly with her breath.
 
-"I don't know," she said. "That's the problem. I used to be able to list people. Marcus. IT. Jason. Anyone who benefits."
+— I don't know, she said. That's the problem. I used to be able to list people. Marcus. IT. Jason. Anyone who benefits.
 
 Claire's eyes held hers. "And now?"
 
-"Now it could be anyone. Or no one."
+— Now it could be anyone. Or no one.
 
 Claire paused. Chose her words carefully. "Anna, I need you to stay with me for a second."
 
 Anna's jaw tightened. "What."
 
-"What if it's not a person doing it to you?"
+— What if it's not a person doing it to you?
 
 Anna felt the temperature drop inside her body. "Don't."
 
 Claire didn't flinch. "What if it's stress? Sleep deprivation? Memory gaps? What if—"
 
-"What if I'm doing it to myself," Anna said, finishing the thought with a bitterness that tasted like blood. "Is that what you're saying?"
+— What if I'm doing it to myself, Anna said, finishing the thought with a bitterness that tasted like blood. Is that what you're saying?
 
 Claire didn't look away. "I'm saying it's a possibility we have to include. Because if it *is* happening and there's no breach, no logs, no culprit..." She spread her hands, gentle. "Sometimes the scariest answer is the simplest one."
 
@@ -4283,25 +4280,25 @@ But Claire had always been the person she didn't have to perform for. Claire had
 
 Anna stared at the coffee like it might give her the right words.
 
-"Jessica wasn't just... a coworker," Anna said finally.
+— Jessica wasn't just... a coworker, Anna said finally.
 
 Claire's eyes softened, like she already knew the next part, or had been expecting it for months.
 
-"She and Andrew," Anna said. The sentence felt like swallowing glass. "There was something. An affair. Emotional, maybe physical, I don't know. But it was real."
+— She and Andrew, Anna said. The sentence felt like swallowing glass. There was something. An affair. Emotional, maybe physical, I don't know. But it was real.
 
 Claire's face tightened with quiet anger on Anna's behalf. "Anna—"
 
-"And I thought—" Anna's voice shook. She hated it. "I thought Jessica was behind the sabotage. I thought she was trying to destabilize me. That she wanted me to look disorganized, unstable, so I'd lose my job. Lose everything."
+— And I thought— Anna's voice shook. She hated it. I thought Jessica was behind the sabotage. I thought she was trying to destabilize me. That she wanted me to look disorganized, unstable, so I'd lose my job. Lose everything.
 
 Claire held her gaze. "And now you don't think that."
 
 Anna blinked. Her eyes stung, but she refused to let the tears fall in a public café where strangers could glance over and decide she looked like a woman on the verge of collapse.
 
-"She's dead," Anna said. "They called it suicide. And it's still happening."
+— She's dead, Anna said. They called it suicide. And it's still happening.
 
 Claire exhaled slowly.
 
-"Okay," she said, voice quieter for a beat. "Then think. Not emotionally—logically. Who else had the access needed? Executive admin lists, org charts, badge systems, your email..."
+— Okay, she said, voice quieter for a beat. Then think. Not emotionally—logically. Who else had the access needed? Executive admin lists, org charts, badge systems, your email...
 
 Anna shook her head. "I honestly don't know anymore."
 
@@ -4309,7 +4306,7 @@ The words landed on the table between them like a surrender.
 
 Claire was quiet for a moment. Then she let out a breath that was half laugh, half disgust.
 
-"Man," she said, voice dropping, "what is wrong with your company? First Jane, now you."
+— Man, she said, voice dropping, what is wrong with your company? First Jane, now you.
 
 Anna looked up sharply.
 
@@ -4317,39 +4314,39 @@ Anna stared at her, not understanding at first. "Jane?"
 
 Claire nodded. "A few months ago, Jane came to see me."
 
-"Why would Jane come to you?" Anna's voice sharpened despite herself. "She's not close to you. She's barely polite to you."
+— Why would Jane come to you? Anna's voice sharpened despite herself. She's not close to you. She's barely polite to you.
 
 Claire's mouth tightened. "That's why it stuck with me."
 
 Anna leaned forward. The café noise faded behind her. The hiss of the espresso machine. The scrape of chairs. None of it mattered.
 
-"What did she say?"
+— What did she say?
 
 Claire hesitated. "She asked me not to tell anyone."
 
 Anna's laugh was small and sharp. "Claire."
 
-"I know." Claire looked down at her hands. "She was crying, Anna. Not like—one tear, elegant grief. She was... unraveling."
+— I know. Claire looked down at her hands. She was crying, Anna. Not like—one tear, elegant grief. She was... unraveling.
 
 Anna felt something cold slide into place inside her chest.
 
-"About what," Anna pressed. "What was she crying about?"
+— About what, Anna pressed. What was she crying about?
 
 Claire lifted her eyes again. "Work. She said things were happening. That someone was trying to ruin her career."
 
 Anna's skin prickled.
 
-"She told you *that*?" Anna whispered.
+— She told you *that*? Anna whispered.
 
 Claire nodded once. "She said she couldn't prove anything. That she sounded paranoid. That nobody believed her."
 
 Anna's heartbeat thudded hard in her ears. It was too symmetrical. Too perfect. Like a story being handed to her with the conclusion already written.
 
-"Why didn't you tell me?" Anna demanded, and then immediately hated how it sounded—accusatory, desperate.
+— Why didn't you tell me? Anna demanded, and then immediately hated how it sounded—accusatory, desperate.
 
 Claire didn't take it personally. She looked tired.
 
-"Because she asked me not to," Claire said. "And because she was... tense, Anna. Like if I told you and she found out, she'd actually break. That's how bad it was."
+— Because she asked me not to, Claire said. And because she was... tense, Anna. Like if I told you and she found out, she'd actually break. That's how bad it was.
 
 Anna held her breath. "Claire. What else?"
 
@@ -4357,7 +4354,7 @@ Claire stared at her coffee as if it might give her permission. Then, quietly, s
 
 Anna froze. "What?"
 
-"Not officially," Claire said. "But... there were conversations. Whispers."
+— Not officially, Claire said. But... there were conversations. Whispers.
 
 Anna's voice went thin. "Why."
 
@@ -4369,9 +4366,9 @@ Claire continued, the words coming out faster now, like she'd decided to rip the
 
 Claire's mouth tightened with disgust. "Not just one rumor. There were names. The kind of whisper network you only hear if you're a woman in the building. A twenty-four-year-old who got 'mentored' a little too privately and then got transferred to another team the moment he started dating someone in his class. A first-year who suddenly had a fast-track review after a conference in Miami. People joked about her having a type—tall, hungry, terrified to say no."
 
-"Claire," Anna said, her voice thin.
+— Claire, Anna said, her voice thin.
 
-"I know," Claire said, almost sharply. "It's gross. I'm telling you because you asked for the truth." She hesitated, then added, "You'd heard the rumors before, right?"
+— I know, Claire said, almost sharply. It's gross. I'm telling you because you asked for the truth. She hesitated, then added, You'd heard the rumors before, right?
 
 Anna nodded once.
 
@@ -4395,7 +4392,7 @@ Jane knew Anna was being pointed toward a board seat. Was it Jane's seat? Was th
 
 Anna forced her face into stillness, into neutrality. She didn't let the suspicion show. She didn't let Claire see the way the pieces were clicking into a pattern that terrified her.
 
-"That's..." Anna said, and realized she didn't have a safe word to put after it.
+— That's... Anna said, and realized she didn't have a safe word to put after it.
 
 Claire watched her closely. "What are you thinking?"
 
@@ -4403,7 +4400,7 @@ Anna shook her head. "Nothing. I'm just—processing."
 
 Claire leaned back slightly, studying her like she was trying to decide whether to push harder or pull back.
 
-"Anna," Claire said softly, "if you really think someone's doing this to you, you need help. Real help. Not notebooks and late nights. Have yo ubeen seeing your therapist?"
+— Anna, Claire said softly, if you really think someone's doing this to you, you need help. Real help. Not notebooks and late nights. Have yo ubeen seeing your therapist?
 
 Anna's stomach twisted.
 
@@ -4419,7 +4416,7 @@ Claire's eyes narrowed with concern. "You went once. Have you kept going?"
 
 Anna didn't hesitate. Hesitation would invite follow-up questions. Follow-up questions would invite truth.
 
-"Yes," Anna said smoothly. "I'm going."
+— Yes, Anna said smoothly. I'm going.
 
 It was a lie. Clean, effortless, practiced.
 
@@ -4427,7 +4424,7 @@ Claire's shoulders dropped a fraction, like she'd been holding her breath. "Okay
 
 Claire reached across the table and covered Anna's hand with hers.
 
-"You're not alone," she said. "Even if it feels like it."
+— You're not alone, she said. Even if it feels like it.
 
 Anna didn't trust herself to respond. She squeezed Claire's hand once, then let go.
 
@@ -4501,13 +4498,13 @@ She called Claire first.
 
 Claire picked up on the second ring. "Hey."
 
-"Lunch tomorrow," Anna said. "Sunday. I need you there."
+— Lunch tomorrow, Anna said. Sunday. I need you there.
 
 Claire didn't ask why. She just exhaled, like she'd been waiting for Anna to ask for something concrete. "Okay. Where?"
 
-"I'll handle it," Anna said. "Just—please come."
+— I'll handle it, Anna said. Just—please come.
 
-"Of course," Claire said. "Anna, I'm proud of you for calling."
+— Of course, Claire said. Anna, I'm proud of you for calling.
 
 Anna ended the call before her throat could close.
 
@@ -4523,11 +4520,11 @@ She added Claire on purpose. A buffer. A witness. A reason the invitation didn't
 
 There was the smallest pause on the line—so small it could have been nothing, so small it could have been everything.
 
-"Send me a place," Jane said.
+— Send me a place, Jane said.
 
 Anna's pulse spiked.
 
-"Great," Anna said, as if this was ordinary. "I'll text details."
+— Great, Anna said, as if this was ordinary. I'll text details.
 
 She hung up and sat very still, phone in her hand, waiting for the aftertaste of the conversation to tell her what she'd just stepped into.
 
@@ -4539,7 +4536,7 @@ Anna had chosen the restaurant herself. A French place in SoHo with white tablec
 
 Claire arrived first. She hugged Anna quickly, like she didn’t want to make a scene out of concern.
 
-"How are you?" Claire asked.
+— How are you? Claire asked.
 
 Anna smiled like a woman who had slept. "Fine."
 
@@ -4551,13 +4548,13 @@ Anna’s smile stayed in place, but her stomach tightened. "We’re still waitin
 
 For a second, Claire went numb, the way people did when they realized they were about to step into something they hadn’t agreed to. Her voice dropped. "You didn’t mention what I told you yesterday, right?"
 
-"No," Anna said quickly. "Don’t worry. I just need a few hours with the Columbia girls. I’m trying to feel like myself again—like I did back then."
+— No, Anna said quickly. Don’t worry. I just need a few hours with the Columbia girls. I’m trying to feel like myself again—like I did back then.
 
 Claire held Anna’s gaze a beat longer than normal, measuring the lie and the fear underneath it. Then she sat.
 
 Jane arrived a few minutes later, perfectly timed—coat neat, expression warm in a way that would have been disarming if Anna hadn’t spent fifteen years learning that Jane’s warmth was always deliberate. She slid into the corner with the practiced ease of someone who assumed the room arranged itself around her.
 
-"Claire," Jane said, her smile warm and easy—too easy, given what she'd confided just months before. "Good to see you again."
+— Claire, Jane said, her smile warm and easy—too easy, given what she'd confided just months before. Good to see you again.
 
 Claire's handshake was brief, careful. "You too."
 
@@ -4571,19 +4568,19 @@ Jane made small talk first—Claire’s traveling, the cold snap, a comment abou
 
 Then Jane turned her attention fully to Claire, like a spotlight tightening.
 
-"So how's work?" Jane asked lightly. "Still at that little pharma company?"
+— So how's work? Jane asked lightly. Still at that little pharma company?
 
-"Same one," Claire said. "Twelve years now."
+— Same one, Claire said. Twelve years now.
 
-"Mm." Jane nodded as if tasting the words. "And the salary? Keeping up with inflation?"
+— Mm. Jane nodded as if tasting the words. And the salary? Keeping up with inflation?
 
 Claire's smile tightened. "We're doing fine."
 
-"I'm sure you are," Jane said, voice smooth. "It's nice that you found a place with balance. Most people in this industry burn out chasing the next rung, but you found something… gentler. The kind of firm where you can actually have a life alongside it."
+— I'm sure you are, Jane said, voice smooth. It's nice that you found a place with balance. Most people in this industry burn out chasing the next rung, but you found something… gentler. The kind of firm where you can actually have a life alongside it.
 
 Claire's eyes flicked, quick, assessing. "I have a life because I built one."
 
-"Of course," Jane said. "That's what I mean. Some people choose the structure that lets them sleep at night."
+— Of course, Jane said. That's what I mean. Some people choose the structure that lets them sleep at night.
 
 Anna felt it—the small shift, the blade hidden under the compliment.
 
@@ -4591,7 +4588,7 @@ Jane continued, conversational. "How are the kids adjusting to you traveling so 
 
 Claire's fork paused. "They're fine. We make it work."
 
-"I'm sure," Jane said, as if she were being generous. "The joys of being… comfortable."
+— I'm sure, Jane said, as if she were being generous. The joys of being… comfortable.
 
 Anna set her own fork down carefully. "Jane."
 
@@ -4599,7 +4596,7 @@ Jane didn’t look at Anna. Her gaze stayed on Claire, polite, unblinking. "I’
 
 Claire's voice stayed even, but her cheeks flushed. "I manage a team. I've been there twelve years. People respect me."
 
-"I'm sure they do," Jane said, and her tone made it sound like *how adorable.* "In your world, that's real power."
+— I'm sure they do, Jane said, and her tone made it sound like *how adorable.* In your world, that's real power.
 
 Silence tightened around the table.
 
@@ -4613,7 +4610,7 @@ Claire pushed her chair back an inch. "Funny. You weren't this condescending whe
 
 Jane's expression flickered—Loss of composure? Anger? gone before Anna could read it. Anna's heart thudded. She didn't want Jane to know that Claire had told her about the breakdown. That was still her edge.
 
-"Claire—" Anna kept her voice steady, careful.
+— Claire— Anna kept her voice steady, careful.
 
 Claire turned to her. "Are you hearing this?" She stood, controlled but final. "Don't invite me to anything that involves her. Ever."
 
@@ -4623,7 +4620,7 @@ Jane watched her go with the mild interest of someone observing weather.
 
 When the door closed, Jane lifted her napkin and dabbed at the corner of her mouth, calm as ever. She didn't acknowledge Claire's accusation—acknowledging it would make it real.
 
-"You didn’t stop it," Jane said.
+— You didn’t stop it, Jane said.
 
 Anna stared at her. "You didn’t give me anything to stop. You did it on purpose."
 
@@ -4633,9 +4630,9 @@ Anna’s skin prickled. "Why."
 
 Jane set her napkin down. "Because you’re vulnerable right now, Anna. And in your position, vulnerability is an infection. People will smell it. They’ll treat it. They’ll isolate it."
 
-"So you decided to isolate me first?"
+— So you decided to isolate me first?
 
-"I decided to remind you," Jane said softly, "that most friendships are built to keep women in the same place. Claire loves you. And she will love you most when you are safe, when you are ordinary, when you are not changing faster than she can follow."
+— I decided to remind you, Jane said softly, that most friendships are built to keep women in the same place. Claire loves you. And she will love you most when you are safe, when you are ordinary, when you are not changing faster than she can follow.
 
 Anna’s throat went tight. "That’s not Claire."
 
@@ -4647,7 +4644,7 @@ The waiter appeared with the check, as if summoned by power.
 
 Jane signed without looking. Then she stood, slid her chair in neatly, and picked up her coat.
 
-"Text Claire an apology," Jane said, as if she were generous. "Go ahead, patch things up. But Claire will always love the version of you that stays small enough for her to understand."
+— Text Claire an apology, Jane said, as if she were generous. Go ahead, patch things up. But Claire will always love the version of you that stays small enough for her to understand.
 
 She left.
 
@@ -4691,7 +4688,7 @@ Jane went to the gym every Wednesday at 6 AM. Stayed exactly ninety minutes. Lik
 
 Wednesday morning at 6:05, Anna entered Jane's building. Expensive lobby, doorman who barely looked up from his phone.
 
-"Delivery for 18B," Anna said, holding an Amazon box she'd picked up from her own building.
+— Delivery for 18B, Anna said, holding an Amazon box she'd picked up from her own building.
 
 He waved her through.
 
@@ -4881,11 +4878,11 @@ The irony was almost funny.
 
 Anna pulled out her phone. Called the one person who might believe her.
 
-"Claire. I need you to listen. And I need you to believe me."
+— Claire. I need you to listen. And I need you to believe me.
 
-"Anna—"
+— Anna—
 
-"Jane killed Mia. She orchestrated everything. The sabotage, the affair, all of it. I have proof. I broke into her apartment and I have proof."
+— Jane killed Mia. She orchestrated everything. The sabotage, the affair, all of it. I have proof. I broke into her apartment and I have proof.
 
 Silence on the other end of the line. The kind that meant disbelief—but Anna knew it would turn to belief soon enough. For now, the silence was enough. It meant someone else finally knew.
 
@@ -4901,13 +4898,13 @@ She couldn't turn in the files directly. That would reveal the break-in. But she
 
 She started with Andrew.
 
-"I need to tell you something," she said. They were in the apartment. Kids at school. Forced proximity in the ruins of their marriage.
+— I need to tell you something, she said. They were in the apartment. Kids at school. Forced proximity in the ruins of their marriage.
 
 The living room felt smaller than it had ever been. Afternoon light flattened across the wood floor, dulling the shine on the coffee table where she laid out the evidence. In the kitchen, the refrigerator hummed like a clock ticking down.
 
 Andrew looked wary. "What?"
 
-"Jane van Moore killed your sister."
+— Jane van Moore killed your sister.
 
 The words hung there.
 
@@ -4919,31 +4916,31 @@ Anna showed him. The photos from Jane's apartment. The receipts. The notes. The 
 
 He stood over the table, hands on either side of the file like he was steadying himself against a wave. As he read, the color slid from his face—white, then gray. The pages whispered when he turned them.
 
-"She... she deliberately..."
+— She... she deliberately...
 
-"She bought the fentanyl. Found Mia. Made sure the dose was lethal. To destabilize you. To break our marriage. To destroy me."
+— She bought the fentanyl. Found Mia. Made sure the dose was lethal. To destabilize you. To break our marriage. To destroy me.
 
 Andrew looked up. "How did you get this?"
 
-"I broke into her apartment."
+— I broke into her apartment.
 
-"Jesus Christ, Anna."
+— Jesus Christ, Anna.
 
-"I know. But Andrew—she's a murderer. She killed your sister. We have to stop her."
+— I know. But Andrew—she's a murderer. She killed your sister. We have to stop her.
 
-"By committing crimes ourselves?"
+— By committing crimes ourselves?
 
-"By doing what's necessary."
+— By doing what's necessary.
 
 Andrew stood. Paced. Looked at the evidence again.
 
 His footsteps mapped an anxious path from window to hallway. The radiator clicked once, like a stray thought.
 
-"If we go to the police with this, they'll ask how we got it."
+— If we go to the police with this, they'll ask how we got it.
 
-"I know."
+— I know.
 
-"And you'll be arrested for breaking and entering. Possibly prosecuted."
+— And you'll be arrested for breaking and entering. Possibly prosecuted.
 
 Anna met his eyes. "I know."
 
@@ -4951,17 +4948,17 @@ They sat in silence.
 
 It wasn't empty—there were things in it: history, resentment, love that had curdled. Anna felt each second pass like a bead she couldn't stop counting.
 
-"What if," Andrew said slowly, "we don't admit where the evidence came from? What if we say it was sent to us? Anonymously?"
+— What if, Andrew said slowly, we don't admit where the evidence came from? What if we say it was sent to us? Anonymously?
 
-"They'd investigate the source."
+— They'd investigate the source.
 
-"Let them. If we don't have the originals, just copies, we can say they appeared in our mailbox. A whistleblower. Someone from inside Henderson who knew Jane's crimes."
+— Let them. If we don't have the originals, just copies, we can say they appeared in our mailbox. A whistleblower. Someone from inside Henderson who knew Jane's crimes.
 
 It could work.
 
-"We'd have to be convincing," Anna said.
+— We'd have to be convincing, Anna said.
 
-"We're both good at lying," Andrew said bitterly. "We've had practice."
+— We're both good at lying, Andrew said bitterly. We've had practice.
 
 They made a plan.
 
@@ -4987,45 +4984,45 @@ They spent Tuesday night preparing. Andrew printed the documents on a library co
 
 The library smelled like dust and old bindings. Fluorescent lights buzzed with the faint insistence of insects. Anna watched her words appear on the screen in a dingy corner terminal, each sentence careful, clean, impersonal. Andrew fed bills into a printer with a flimsy plastic tray that rattled with every page; he wiped the edges with alcohol until his fingers stung.
 
-"Why did you break into her apartment in the first place?" Andrew asked as they worked. "I mean, what made you suspect Jane specifically?"
+— Why did you break into her apartment in the first place? Andrew asked as they worked. I mean, what made you suspect Jane specifically?
 
 Anna explained. The sabotage that had been happening for months. The phantom emails, corrupted files, fake calendar invites. IT saying it was someone with physical access. The timing—everything escalating after Mia's death.
 
-"And you thought it was Jessica at first."
+— And you thought it was Jessica at first.
 
-"Yes. Because the sabotage stopped after she died. But then it started again. That's when I knew I'd been wrong."
+— Yes. Because the sabotage stopped after she died. But then it started again. That's when I knew I'd been wrong.
 
 Andrew was quiet for a moment. "Do you think Jane could have killed Jessica? To frame you?"
 
 Anna had thought about this. Framing a second murder on Jane would have been perfect, but Jessica's investigation had gone cold. Reopening it would only complicate things, draw unwanted attention. Better to leave it buried.
 
-"I couldn't find evidence of it. But most likely, yes. Jessica's death looked like suicide, but... Jane had motive. She was manipulating everything else. Why not that too?"
+— I couldn't find evidence of it. But most likely, yes. Jessica's death looked like suicide, but... Jane had motive. She was manipulating everything else. Why not that too?
 
-"Jesus Christ."
+— Jesus Christ.
 
-"I know."
+— I know.
 
 Andrew looked at the documents spread across the table. Evidence of his sister's murder. Evidence of a conspiracy that had destroyed their marriage.
 
 He touched the cover letter draft like it might be hot. Anna watched the way his throat worked when he swallowed.
 
-"Why did she do it?" he asked quietly. "What did you do to make her hate you this much?"
+— Why did she do it? he asked quietly. What did you do to make her hate you this much?
 
-"Nothing. I was her protégé. Her success story."
+— Nothing. I was her protégé. Her success story.
 
-"So why?"
+— So why?
 
 Anna thought about it. About Jane's empty apartment. Jane's comments about sacrifice. Jane's lonely lunches.
 
 The memory of the Tribeca windows—mirror-clean, reflecting a city full of choice that Jane had trained herself not to see.
 
-"I think," Anna said slowly, "she saw me building what she gave up. Marriage. Kids. Career. All of it. And she couldn't handle it." She paused. "There was also talk around the board. If I succeeded as SVP, I'd likely take her seat. The board was done with her... indiscretions. The interns. The affairs."
+— I think, Anna said slowly, she saw me building what she gave up. Marriage. Kids. Career. All of it. And she couldn't handle it. She paused. There was also talk around the board. If I succeeded as SVP, I'd likely take her seat. The board was done with her... indiscretions. The interns. The affairs.
 
-"So she destroyed everything you've built."
+— So she destroyed everything you've built.
 
-"No. She tried to make me destroy it. Make me choose. Prove that you can't have everything."
+— No. She tried to make me destroy it. Make me choose. Prove that you can't have everything.
 
-"Well," Andrew said bitterly, "I guess she succeeded."
+— Well, Andrew said bitterly, I guess she succeeded.
 
 They finished the packet in silence.
 
@@ -5047,15 +5044,15 @@ Detective Morris. Jessica's case.
 
 The ring pinned a needle through her composure. She let it ring once, twice, then lifted it with a hand that did not shake.
 
-"Ms. Park, we need you to come in. We've received some information about a case."
+— Ms. Park, we need you to come in. We've received some information about a case.
 
-"What case?"
+— What case?
 
-"I'd rather discuss it in person. Can you come this afternoon?"
+— I'd rather discuss it in person. Can you come this afternoon?
 
 Anna's heart raced. "Of course. Is everything okay?"
 
-"Just need to ask some questions."
+— Just need to ask some questions.
 
 At 3 PM, Anna sat in the same interview room where Andrew had been questioned about Jessica.
 
@@ -5063,35 +5060,35 @@ The fluorescent light hummed above scuffed linoleum. A recorder sat on the table
 
 Detective Morris sat across from her with a thick file.
 
-"We received an anonymous tip this morning. Documents suggesting that a member of Henderson & Associates' board may have been involved in criminal activity."
+— We received an anonymous tip this morning. Documents suggesting that a member of Henderson & Associates' board may have been involved in criminal activity.
 
-"What kind of activity?"
+— What kind of activity?
 
-"Drug procurement. Possible involvement in an overdose death. Mia Park. Your sister-in-law."
+— Drug procurement. Possible involvement in an overdose death. Mia Park. Your sister-in-law.
 
 Anna let her face show shock. Horror. "What? Who?"
 
-"Jane van Moore."
+— Jane van Moore.
 
 Anna's hand went to her mouth. Perfect performance. "No. That's... Jane wouldn't..."
 
 She felt the mask settle—precise muscles lifting, the right breath caught. She had practiced this in mirrors, in quiet moments between emails and crisis.
 
-"The evidence is substantial. Receipts. Communications. A documented plan to destabilize you and your husband through your sister-in-law's death."
+— The evidence is substantial. Receipts. Communications. A documented plan to destabilize you and your husband through your sister-in-law's death.
 
-"I don't understand. Why would Jane..."
+— I don't understand. Why would Jane...
 
-"That's what we're trying to figure out. Did you have any sense that Ms. van Moore wished you harm?"
+— That's what we're trying to figure out. Did you have any sense that Ms. van Moore wished you harm?
 
 Anna thought carefully. Threaded truth and lies.
 
 She pulled threads from memory—the lunches, the advice, the soft directives that had felt like support until they tightened.
 
-"She'd been... protective lately. Overly involved in my personal life. Giving advice about my marriage, my career, my friendships. I thought she was mentoring me."
+— She'd been... protective lately. Overly involved in my personal life. Giving advice about my marriage, my career, my friendships. I thought she was mentoring me.
 
-"And now?"
+— And now?
 
-"Now I don't know what she was doing."
+— Now I don't know what she was doing.
 
 They asked more questions. Anna answered carefully. Showed appropriate emotion. Confusion. Betrayal. Grief.
 
@@ -5099,9 +5096,9 @@ The detective's pen made a steady taxicab sound against the paper. Anna matched 
 
 After two hours, they let her go.
 
-"We'll be in touch. And Ms. Park—don't discuss this with anyone. Especially not Jane van Moore."
+— We'll be in touch. And Ms. Park—don't discuss this with anyone. Especially not Jane van Moore.
 
-"Of course."
+— Of course.
 
 Anna left the station and breathed for the first time in hours.
 
@@ -5117,56 +5114,56 @@ Outside, the city kept its indifferent rhythm—crosswalk beeps syncing with a t
 Anna heard about it through Tom. He called her into his office, looking shaken.
 His tie was loosened a notch, a rare concession; the glass walls tossed back a colorless morning and a muted CNBC chyron crawled on a screen he’d forgotten to turn off. Papers lay fanned like fallen cards, one arm of a silver desk lamp skewed at an angle that felt accusatory.
 
-"Anna, I don't know how to tell you this. Jane van Moore has been arrested. Murder charges. Related to your sister-in-law's death."
+— Anna, I don't know how to tell you this. Jane van Moore has been arrested. Murder charges. Related to your sister-in-law's death.
 
 Anna's eyes widened. "What?"
 The leather of the chair caught beneath her palms; citrus cleaner hung faintly in the air. A flicker of old nights—corrupted decks, phantom emails at 2:47 AM—ghosted across her mind like static.
 
-"The police say they have evidence she procured the drugs. Deliberately targeted your family." Tom's voice broke slightly. "Anna, I'm so sorry. I should have believed you when you came to me about the sabotage. The emails, the calendar issues, everything — they found evidence pointing directly to Jane. She had physical access, she knew the systems. And I dismissed it. I let IT tell me it was impossible, that you were imagining things. I'm deeply sorry. I failed you. I just couldn't conceive that anyone would have a motive to do this."
+— The police say they have evidence she procured the drugs. Deliberately targeted your family. Tom's voice broke slightly. Anna, I'm so sorry. I should have believed you when you came to me about the sabotage. The emails, the calendar issues, everything — they found evidence pointing directly to Jane. She had physical access, she knew the systems. And I dismissed it. I let IT tell me it was impossible, that you were imagining things. I'm deeply sorry. I failed you. I just couldn't conceive that anyone would have a motive to do this.
 He rubbed his thumb along the edge of a folder until the paper curled; through the glass, the open bullpen hummed—a steady mechanical hush from vents and servers, the cathedral-sound of a machine she'd trusted now rendered treacherous.
 
 Anna sat down heavily. "Jane has been my mentor for fifteen years. She's been... she's been destroying my life this whole time?"
 The words tasted metallic. In the corner, the red LED on the screen blinked like an eye.
 
-"It appears so. The police are still investigating, but the evidence is damning. And Anna—I'm already preparing to fire and replace the entire IT crew. They should have caught this. They should have seen the pattern, the physical access logs, the anomalies. Instead they dismissed your concerns. Idiots."
+— It appears so. The police are still investigating, but the evidence is damning. And Anna—I'm already preparing to fire and replace the entire IT crew. They should have caught this. They should have seen the pattern, the physical access logs, the anomalies. Instead they dismissed your concerns. Idiots.
 
-"Why would she do this?"
+— Why would she do this?
 
-"I don't know. Professional jealousy? Psychological issues? The board is meeting this afternoon to discuss next steps." He rubbed his temples. "This is a nightmare for the firm. Henderson's name on every news channel, linked to murder. The partners are furious. Sponsors calling. Clients asking questions."
+— I don't know. Professional jealousy? Psychological issues? The board is meeting this afternoon to discuss next steps. He rubbed his temples. This is a nightmare for the firm. Henderson's name on every news channel, linked to murder. The partners are furious. Sponsors calling. Clients asking questions.
 Somewhere down the hall, a printer whirred and spat out a report. The mundane sounds of business continued, as if refusing to recognize catastrophe.
 
 After Tom, Anna called Andrew.
 
-"They arrested her," she said.
+— They arrested her, she said.
 In Andrew’s studio, she could hear the shape of silence: the small tick of a space heater, a resin-drip settling on concrete, the echo of a room too empty for comfort.
 
-"I know. Detectives were just here. Asking about Mia. About our marriage. About everything."
+— I know. Detectives were just here. Asking about Mia. About our marriage. About everything.
 
-"What did you tell them?"
+— What did you tell them?
 
-"The truth. That Mia struggled. That someone gave her enough drugs to kill her. That Jane apparently decided my sister's life was collateral damage in whatever game she was playing."
+— The truth. That Mia struggled. That someone gave her enough drugs to kill her. That Jane apparently decided my sister's life was collateral damage in whatever game she was playing.
 
 His voice cracked.
 The sound came thin over the line, like cold water poured into metal.
 
-"Andrew—"
+— Andrew—
 
-"Don't. Just... I need time to process this. My sister was murdered. By someone we trusted. By someone you worked with every day."
+— Don't. Just... I need time to process this. My sister was murdered. By someone we trusted. By someone you worked with every day.
 
-"I didn't know."
+— I didn't know.
 
-"I know... I would never blame you for this." Andrew's voice broke. "It's just... what kind of person does this? Kills someone for a job? A job she could have found anywhere. Another firm, another city. She didn't have to stay at Henderson. But Jane... she killed my baby sister. Mia. I'll never see her again. Never hear her laugh. Never—" He choked. "Fucking corporate people. They'll destroy anything for power."
+— I know... I would never blame you for this. Andrew's voice broke. It's just... what kind of person does this? Kills someone for a job? A job she could have found anywhere. Another firm, another city. She didn't have to stay at Henderson. But Jane... she killed my baby sister. Mia. I'll never see her again. Never hear her laugh. Never— He choked. Fucking corporate people. They'll destroy anything for power.
 A tool clinked faintly, as if the room itself winced.
 
 Anna couldn't bring herself to say a word. For the first time in a long time, she actually listened. The space between them filled with breath and city noise from far away. There was a long pause. When Andrew spoke again, his voice was different. Smaller.
 
-"And Jessica... Jane manipulated her too. Used her. And now she's dead."
+— And Jessica... Jane manipulated her too. Used her. And now she's dead.
 
 Anna heard it clearly—the grief in his voice. Not just for Mia. For Jessica. The woman he'd been falling for before she died.
 
-"Andrew—"
+— Andrew—
 
-"I'm sorry. I'll call you back when I'm ready."
+— I'm sorry. I'll call you back when I'm ready.
 
 The line went dead.
 Anna set the phone down and watched it as if it might breathe.
@@ -5190,11 +5187,11 @@ She declined all interviews. Referred everything to Henderson's legal team.
 At work, she was treated like a victim. People were kind. Supportive. Horrified on her behalf.
 Bagels appeared in the kitchen, the smell of warm dough skating under the hum of the fluorescent lights. People spoke to her in soft voices on carpet that swallowed their footsteps.
 
-"I can't believe you worked next to her," Marcus said. "She was destroying you and you had no idea."
+— I can't believe you worked next to her, Marcus said. She was destroying you and you had no idea.
 
-"I suspected something. But I never imagined..."
+— I suspected something. But I never imagined...
 
-"You must feel vindicated. After everyone said you were paranoid."
+— You must feel vindicated. After everyone said you were paranoid.
 
 Anna nodded. Let them think she felt relief. Vindication.
 
@@ -5214,22 +5211,22 @@ A profile went dark with a single change in a field, a number flipped from one t
 Three weeks after the arrest, Tom called Anna in again.
 They met in a conference room with smoked glass and a half-erased cash flow on the whiteboard. Outside, the skyline sat under a slate sky that made the river look like sheet metal.
 
-"The board met yesterday. Given Jane's... situation, there's a vacancy on the board that needs to be filled."
+— The board met yesterday. Given Jane's... situation, there's a vacancy on the board that needs to be filled.
 
 Anna felt something—not quite joy. More like confirmation.
 The carafe of water left a ring on the table; the weight of the paper agenda felt heavier than it should.
 
-"I see."
+— I see.
 
-"You've been SVP for a few months now. And despite everything Jane put you through — the sabotage, the psychological manipulation, the murder of your sister-in-law—you kept performing. Kept delivering. The Meridian deal, the Anderson renewal, the team stability. That's exactly the kind of resilience we need in leadership."
+— You've been SVP for a few months now. And despite everything Jane put you through — the sabotage, the psychological manipulation, the murder of your sister-in-law—you kept performing. Kept delivering. The Meridian deal, the Anderson renewal, the team stability. That's exactly the kind of resilience we need in leadership.
 
 Tom leaned forward. "The board is considering candidates to fill Jane's seat. Someone from M&A. Someone who understands the operations intimately. Someone who's proven they can handle pressure."
 
 He looked at her meaningfully.
 
-"You're suggesting...?"
+— You're suggesting...?
 
-"I'm saying your name is at the top of the list. Not immediately — we need to see how the trial plays out, manage the optics. But in a year, maybe six months, if you continue on this trajectory—Anna, you could be the youngest board member in Henderson's history."
+— I'm saying your name is at the top of the list. Not immediately — we need to see how the trial plays out, manage the optics. But in a year, maybe six months, if you continue on this trajectory—Anna, you could be the youngest board member in Henderson's history.
 The word youngest slid across the table and came to rest by her hand.
 
 After Tom, Anna sat in her office and looked at the skyline.
@@ -5268,69 +5265,69 @@ Anna's blood went cold. Her hands tightened on the bench. The courtroom faded �
 
 After the hearing, Jane's lawyer approached Anna in the hallway.
 
-"Ms. Park, my client would like to speak with you. Privately. Off the record."
+— Ms. Park, my client would like to speak with you. Privately. Off the record.
 
-"I don't think that's appropriate."
+— I don't think that's appropriate.
 
-"She says she has information you'd want to hear. About Jessica Hall."
+— She says she has information you'd want to hear. About Jessica Hall.
 
 Anna's heart stopped. The hallway suddenly felt too small, too bright. She could hear her own pulse in her ears.
 
-"What about Jessica?"
+— What about Jessica?
 
-"I have no idea. She'll only discuss it with you. Directly."
+— I have no idea. She'll only discuss it with you. Directly.
 
 They arranged a meeting at the jail. Anna didn't tell Andrew what Jane's lawyer had said about Jessica. She just told him Jane wanted to talk. Andrew advised against it. Said it was insane, but anna went anyway.
 
 Jane sat across from her in an orange jumpsuit. No makeup. Hair pulled back. Still beautiful. Still controlled.
 
-"You look well," Jane said. "SVP suits you."
+— You look well, Jane said. SVP suits you.
 
-"What do you want?"
+— What do you want?
 
-"To talk. About truth. About consequences."
+— To talk. About truth. About consequences.
 
-"You killed Mia. You destroyed my career. You have nothing I want to hear."
+— You killed Mia. You destroyed my career. You have nothing I want to hear.
 
-"Don't I? Why are you here then?" Jane leaned forward. "How did you get that evidence?"
+— Don't I? Why are you here then? Jane leaned forward. How did you get that evidence?
 
 Anna's face stayed blank. "It was sent anonymously."
 
-"Convenient." Jane's smile was cold. "An anonymous whistleblower who knew exactly where I kept my files. My locked drawers. My backup drives. My gym schedule — Wednesday mornings at six. Ninety minutes. Like clockwork."
+— Convenient. Jane's smile was cold. An anonymous whistleblower who knew exactly where I kept my files. My locked drawers. My backup drives. My gym schedule — Wednesday mornings at six. Ninety minutes. Like clockwork.
 
 Anna's stomach dropped. She could feel the metal chair against her back, the guard watching from the corner. "I don't know what you're implying."
 
-"Don't you?" Jane's eyes bored into hers. "I don't have proof. But I'm not stupid. And neither are you."
+— Don't you? Jane's eyes bored into hers. I don't have proof. But I'm not stupid. And neither are you.
 
 Anna's heart hammered, but she kept her face neutral. "Someone at Henderson—"
 
-"Please." Jane waved dismissively. "It doesn't matter. The evidence is real. My lawyers can't argue it was planted without proof. But I want you to understand something." She leaned closer, voice dropping. "I created you. Twenty years ago, I brought you to Henderson. Mentored you. Made you who you are."
+— Please. Jane waved dismissively. It doesn't matter. The evidence is real. My lawyers can't argue it was planted without proof. But I want you to understand something. She leaned closer, voice dropping. I created you. Twenty years ago, I brought you to Henderson. Mentored you. Made you who you are.
 
-"By sabotaging me? By killing Mia?"
+— By sabotaging me? By killing Mia?
 
-"By showing you what power really costs." Jane leaned forward, eyes glittering. "Tell me something, Anna. Jessica Hall. She was young, happy, excited about her career. And then, out of the blue — suicide? Right after you thought she was sleeping with Andrew? Right when you needed her gone?"
+— By showing you what power really costs. Jane leaned forward, eyes glittering. Tell me something, Anna. Jessica Hall. She was young, happy, excited about her career. And then, out of the blue — suicide? Right after you thought she was sleeping with Andrew? Right when you needed her gone?
 
 Anna's face stayed blank. "Jessica was struggling. There was a whole investigation, remember? The police ruled it suicide."
 
-"Did they?" Jane's smile was knowing. "Or did they just not find evidence? There's a difference. A woman who sends cheerful texts about work projects one day doesn't usually hang herself the next. Unless someone helps her along."
+— Did they? Jane's smile was knowing. Or did they just not find evidence? There's a difference. A woman who sends cheerful texts about work projects one day doesn't usually hang herself the next. Unless someone helps her along.
 
-"That's a disgusting accusation."
+— That's a disgusting accusation.
 
-"Is it an accusation? Or an observation?" Jane tilted her head. "You tracked Andrew obsessively. You documented everything. You were spiraling, losing control. I did everything to lead your suspicions toward Jessica, and then she dies. Convenient, isn't it?"
+— Is it an accusation? Or an observation? Jane tilted her head. You tracked Andrew obsessively. You documented everything. You were spiraling, losing control. I did everything to lead your suspicions toward Jessica, and then she dies. Convenient, isn't it?
 
-"I didn't kill Jessica," Anna said flatly.
+— I didn't kill Jessica, Anna said flatly.
 
-"No?" Jane's eyes searched hers. "You expect me to believe that? After I spent months pushing you to your breaking point?"
+— No? Jane's eyes searched hers. You expect me to believe that? After I spent months pushing you to your breaking point?
 
 She paused. Let the silence stretch. Then: "I orchestrated that affair, Anna."
 
 The words hit like a physical blow. Anna's breath caught.
 
-"I encouraged Jessica to reach out to Andrew when he was vulnerable. After Mia's death. When he was grieving, lost, needing someone to talk to. I suggested she reach out. Be supportive. Be there for him." Jane's voice was matter-of-fact. "I watched you track his phone. Read his messages. I watched you spiral. And I wanted to see what you'd do when you had no other options."
+— I encouraged Jessica to reach out to Andrew when he was vulnerable. After Mia's death. When he was grieving, lost, needing someone to talk to. I suggested she reach out. Be supportive. Be there for him. Jane's voice was matter-of-fact. I watched you track his phone. Read his messages. I watched you spiral. And I wanted to see what you'd do when you had no other options.
 
 Anna felt sick. The room tilted. "You wanted me to—"
 
-"I wanted to see who you really were. What you were capable of." Jane leaned back, studying Anna's face. "And you showed me. Whether you admit it or not."
+— I wanted to see who you really were. What you were capable of. Jane leaned back, studying Anna's face. And you showed me. Whether you admit it or not.
 
 Anna's hands clenched under the table. "I. Didn't. Kill. Her."
 
@@ -5345,25 +5342,25 @@ One thing was clear. Jane was enjoying this. She was baiting her, the same way s
 
 Anna wiped the sweat from her palms and forced herself to breathe. When she finally spoke, her voice barely held steady.
 
-"What do you want from me?" The question broke from her like a cry for help.
+— What do you want from me? The question broke from her like a cry for help.
 
-"I want you to understand what I was teaching you. Power demands sacrifice. To reach the top, you have to be willing to do terrible things. You’re learning that now." Jane’s eyes were sharp, mocking, savoring Anna’s pain.
+— I want you to understand what I was teaching you. Power demands sacrifice. To reach the top, you have to be willing to do terrible things. You’re learning that now. Jane’s eyes were sharp, mocking, savoring Anna’s pain.
 
-"You're insane."
+— You're insane.
 
-"Am I? Or am I just honest?" Jane leaned back. "Here's what's going to happen. I'm going to trial. You're going to testify. You'll say I destroyed your life. The jury will convict me. I'll go to prison."
+— Am I? Or am I just honest? Jane leaned back. Here's what's going to happen. I'm going to trial. You're going to testify. You'll say I destroyed your life. The jury will convict me. I'll go to prison.
 
 Jane felt the hook loosen in her hand. She had tightened the line and, with deliberate calm, let it slip—showing her cards and knowing they were theater, not evidence; pressure applied, pressure released.
 
 Anna felt it land like a poker player raking a million‑dollar pot—oxygen flooding back, pulse settling. Not safe. Not absolved. Only reprieved.
 
-"Then why are we talking?"
+— Then why are we talking?
 
-"Because I want you to know—you're just like me. The only difference is I owned it. You're still pretending to be the victim."
+— Because I want you to know—you're just like me. The only difference is I owned it. You're still pretending to be the victim.
 
-"We're nothing alike."
+— We're nothing alike.
 
-"Aren't we?" Jane's expression shifted—something raw flickering beneath the control. 
+— Aren't we? Jane's expression shifted—something raw flickering beneath the control. 
 
 Anna leaned in, voice low. "You want to know why you did this? You were terrified. For twenty years, you watched me have what you couldn't. The stable marriage. The children. The gallery openings and school plays that made it look whole. And you—you were cycling through one-night stands with interns. Empty. Alone."
 
@@ -5379,27 +5376,27 @@ Jane's smile returned, cold. "I don't do inadequate. I do outcomes. You were a c
 
 Anna stood. "You're making assumptions."
 
-"Am I?" Jane's eyes gleamed. "Tell me, Anna—when you confronted Jessica that night, if you did... did you feel powerful? In control? Finally taking back what was yours?"
+— Am I? Jane's eyes gleamed. Tell me, Anna—when you confronted Jessica that night, if you did... did you feel powerful? In control? Finally taking back what was yours?
 
 The words hit like bullets. Anna could feel every eye in the room—the guard, the other visitors, Jane's lawyer waiting outside. She could feel her own heartbeat, too fast, too loud.
 
-"Did you plan it?" Jane's voice was soft, almost gentle. "Or was it impulse? Did you go there meaning to talk, and then... something snapped?"
+— Did you plan it? Jane's voice was soft, almost gentle. Or was it impulse? Did you go there meaning to talk, and then... something snapped?
 
 Heat climbed her throat; the room seemed to tilt inward. The metal chair pinched at the backs of her legs, the air warm and used, fluorescent lights buzzing like a trapped fly. Somewhere the guard shifted; a radio sighed and went quiet. Ten steps to the door. One handle. An exit shaped like mercy. She could leave. Should leave. The thought pressed hard against her ribs until breath felt rationed.
 
-"Or maybe," Jane continued, "you didn't go there at all. Maybe you're telling the truth. But we both know what you're capable of now, don't we? What I taught you."
+— Or maybe, Jane continued, you didn't go there at all. Maybe you're telling the truth. But we both know what you're capable of now, don't we? What I taught you.
 
 Anna didn't answer. Couldn't answer.
 
 She walked to the door. Stopped. For once, she wanted to take control—to stand before the woman who'd made her monstrous—her Victor Frankenstein—and refuse the script.
 
-"You could tell your lawyers you suspect how the evidence was found. Try to discredit it."
+— You could tell your lawyers you suspect how the evidence was found. Try to discredit it.
 
 Jane smiled. "With what? A theory? Suspicion isn't proof. You know that better than anyone." She leaned forward. "Besides, watching you live with your choices—whatever they were—is more satisfying than revenge. You're going to climb to the top. Board seat, power, success. And every single day, you'll know what it cost. Who it cost."
 
-"You're going to prison."
+— You're going to prison.
 
-"So what? I already won. I made you into exactly what I wanted you to be. Whether you admit what you did or not, you know. And that knowledge will eat at you for the rest of your life."
+— So what? I already won. I made you into exactly what I wanted you to be. Whether you admit what you did or not, you know. And that knowledge will eat at you for the rest of your life.
 
 Anna said nothing. In her mind the future arranged itself like a cold diagram: badge scans and board votes; an apartment that hummed when it was empty; Sophie’s careful distance, Jake’s polite nods; Andrew checking locks; a cell door closing on Jane. No winners. Just wreckage moving forward under different names.
 
@@ -5443,15 +5440,15 @@ The view was better from here.
 
 She'd earned it. Through blood and lies and survival. But she'd earned it.
 
-"Congratulations." Andrew stood in the doorway, a quiet shape against the brighter hallway. First time he'd visited her at work in over a year. He smelled faintly of soap and turpentine, as if the studio clung to him even in a suit jacket.
+— Congratulations. Andrew stood in the doorway, a quiet shape against the brighter hallway. First time he'd visited her at work in over a year. He smelled faintly of soap and turpentine, as if the studio clung to him even in a suit jacket.
 
-"Thank you. What are you doing here?"
+— Thank you. What are you doing here?
 
-"Signing the divorce papers. Lawyers said you wanted them notarized with witnesses. Professional setting."
+— Signing the divorce papers. Lawyers said you wanted them notarized with witnesses. Professional setting.
 
 Right. The divorce. They'd filed three months ago. Uncontested. Split custody. Equal assets. Remarkably civilized for two people who'd destroyed each other.
 
-"Come in."
+— Come in.
 
 The lawyers arrived. A heavy pen. Blue ink that bled a fraction into thick paper. Pages turned with the dry whisper of money. The notary's stamp pressed down with a dull thunk—raised seal like a small welt.
 
@@ -5459,35 +5456,35 @@ Just like that, seventeen years erased.
 
 After the lawyers left, Andrew lingered.
 
-"The kids want to know if you're coming to Jake's game Saturday."
+— The kids want to know if you're coming to Jake's game Saturday.
 
-"I'll be there."
+— I'll be there.
 
-"You've said that before."
+— You've said that before.
 
-"I'll be there," Anna repeated.
+— I'll be there, Anna repeated.
 
 Andrew looked around her office. At the awards on the walls. The deals framed and mounted. The evidence of her success. In the window they were side by side for a second—two strangers layered over the city, not touching.
 
-"Was it worth it?" he asked.
+— Was it worth it? he asked.
 
-"Was what worth it?"
+— Was what worth it?
 
-"Everything you sacrificed. Everything you became. Was the view from here worth the cost?"
+— Everything you sacrificed. Everything you became. Was the view from here worth the cost?
 
 Anna thought about Jessica's face. About the moment the life left her eyes. About the nights she woke up remembering and felt nothing.
 
-"Yes," she said.
+— Yes, she said.
 
 Andrew nodded slowly. "That's what scares me."
 
-"Why?"
+— Why?
 
-"Because I don't think you're lying. I think you actually believe that." He drew a long breath. "Just because we're parting ways doesn't mean I don't care for you, Anna. You're the mother of my children—you always will be. I hope you find whatever it is you're chasing. Maybe then you'll see you already had everything you needed."
+— Because I don't think you're lying. I think you actually believe that. He drew a long breath. Just because we're parting ways doesn't mean I don't care for you, Anna. You're the mother of my children—you always will be. I hope you find whatever it is you're chasing. Maybe then you'll see you already had everything you needed.
 
-"It's a bit presumptuous to assume you know what I need, isn't it?" Anna said, the offense catching even as she kept her voice flat.
+— It's a bit presumptuous to assume you know what I need, isn't it? Anna said, the offense catching even as she kept her voice flat.
 
-"It is. But we were married for 17 years. I think I know you—sometimes better than you let yourself."
+— It is. But we were married for 17 years. I think I know you—sometimes better than you let yourself.
 
 He left. The door clicked shut. The room resumed its calibrated quiet.
 
@@ -5501,15 +5498,15 @@ Andrew was already there. Sitting with a woman Anna didn't recognize. Blonde. Pr
 
 Sophie saw Anna first. "Mom! You came!"
 
-"I said I would."
+— I said I would.
 
-"You also said you'd come to my recital. And Jake's tournament. And parent-teacher conferences."
+— You also said you'd come to my recital. And Jake's tournament. And parent-teacher conferences.
 
-"I'm here now."
+— I'm here now.
 
 Sophie's expression was complicated. Hurt. Resignation. The look of a child who'd stopped expecting her parent to show up.
 
-"Yeah. You are."
+— Yeah. You are.
 
 The game started. Cleats rasped, small legs piston-quick. Jake's hair stuck to his forehead; when he looked over, his face searched hers for something and then returned to the ball. Anna watched. Cheered appropriately. Took photos she didn't know if she'd ever look at again.
 
@@ -5521,11 +5518,11 @@ The woman's name was Catherine. She was a gallery owner. Interesting. Kind. Good
 
 Everything Anna wasn't.
 
-"Your kids are wonderful," Catherine said to Anna. Genuine. No threat. Just a statement.
+— Your kids are wonderful, Catherine said to Anna. Genuine. No threat. Just a statement.
 
-"Thank you. Andrew's done a good job with them."
+— Thank you. Andrew's done a good job with them.
 
-"You both have."
+— You both have.
 
 Anna wanted to believe that. But Sophie's careful distance and Jake's formal politeness said otherwise.
 
@@ -5533,19 +5530,19 @@ They knew. Not about Jessica—but about what kind of person their mother was. C
 
 By Monday, that distance had hardened into routine. Tom called Anna into his office.
 
-"The board wants to have dinner with you. Get to know you. Evaluate fit."
+— The board wants to have dinner with you. Get to know you. Evaluate fit.
 
-"For?"
+— For?
 
-"The open board seat. You're a frontrunner."
+— The open board seat. You're a frontrunner.
 
-"Jane's seat."
+— Jane's seat.
 
-"It's not Jane's seat anymore. It's an opportunity."
+— It's not Jane's seat anymore. It's an opportunity.
 
 Anna thought about Jane's last words. *Welcome to the board.*
 
-"I'd be honored."
+— I'd be honored.
 
 By Thursday, the invitation had hardened into a test. Five board members. A private room where the carpet swallowed footsteps, linen weighted with silver, a floral centerpiece that smelled faintly of green. Anna in a designer suit that cost more than her first car.
 
@@ -5553,19 +5550,19 @@ They asked questions. She answered perfectly. Demonstrated vision. Strategic thi
 
 One member—Gerald, sixty-something, silver hair—leaned forward.
 
-"I'll be direct, Anna. There are concerns. The situation with Jane van Moore. The tragedy with your employee. Some wonder if you're too close to controversy."
+— I'll be direct, Anna. There are concerns. The situation with Jane van Moore. The tragedy with your employee. Some wonder if you're too close to controversy.
 
 Anna held his gaze. "Controversy found me. I didn't seek it. But I survived it. And I kept delivering results. That's what leadership is—performing under pressure."
 
-"Some might say the pressure broke you."
+— Some might say the pressure broke you.
 
-"Did it? I'm sitting here. SVP. Top performer. Stable. Focused. Whatever broke, it wasn't my ability to execute."
+— Did it? I'm sitting here. SVP. Top performer. Stable. Focused. Whatever broke, it wasn't my ability to execute.
 
 Another member—Patricia, fifties, sharp—smiled. "I like her."
 
 Gerald wasn't convinced. "Jane van Moore mentored you for twenty years. She orchestrated a campaign of psychological manipulation against you. How do we know you're not damaged by that?"
 
-"Everyone's damaged by something," Anna said. "The question is whether the damage makes you stronger or breaks you. I'm still here. Still fighting. Still winning. You decide if that's strength or weakness."
+— Everyone's damaged by something, Anna said. The question is whether the damage makes you stronger or breaks you. I'm still here. Still fighting. Still winning. You decide if that's strength or weakness.
 
 After two hours, they thanked her and said they'd be in touch. The server cleared plates with the efficiency of someone trained not to exist.
 
@@ -5573,27 +5570,27 @@ Anna went home. Poured wine. Sat in the dark. Streetlight made a ladder on the f
 
 Her phone buzzed. Claire. First time in months.
 
-"Hey, girl—how are you doing?"
+— Hey, girl—how are you doing?
 
-"Doing well. They're actually considering me for the board."
+— Doing well. They're actually considering me for the board.
 
-"They're considering you for the board?"
+— They're considering you for the board?
 
-"Oh—yes."
+— Oh—yes.
 
-"That's amazing. I'm proud of you, Anna." Claire's voice softened, then shifted. "I wanted to check on you—are you okay? Really okay? You haven't been drowning yourself in work, right?"
+— That's amazing. I'm proud of you, Anna. Claire's voice softened, then shifted. I wanted to check on you—are you okay? Really okay? You haven't been drowning yourself in work, right?
 
-"I'm fine."
+— I'm fine.
 
-"Anna, Jane went to prison. She mentored you for years. Your marriage ended. I keep seeing photos of Andrew with his new girlfriend; I know you see them too. Are you okay? Do you want to talk?"
+— Anna, Jane went to prison. She mentored you for years. Your marriage ended. I keep seeing photos of Andrew with his new girlfriend; I know you see them too. Are you okay? Do you want to talk?
 
 Anna stared into the dark. "I'm working," she said finally. "I'm delivering. That's what I have right now."
 
-"I know. And I'm proud of you," Claire said gently. There was a small pause; Anna heard her breathe out. "I just worry about you—the person, not the title. If you need to blow off steam, yell, cry, or say nothing at all, I'm here."
+— I know. And I'm proud of you, Claire said gently. There was a small pause; Anna heard her breathe out. I just worry about you—the person, not the title. If you need to blow off steam, yell, cry, or say nothing at all, I'm here.
 
-"The board matters," Anna said. The words were quiet, almost defensive. "It helps me keep moving."
+— The board matters, Anna said. The words were quiet, almost defensive. It helps me keep moving.
 
-"It does—for you," Claire said. "I just want to make sure you also have something that holds when the meetings end. You don't have to carry this alone."
+— It does—for you, Claire said. I just want to make sure you also have something that holds when the meetings end. You don't have to carry this alone.
 
 Anna thought about Jane's empty penthouse—the immaculate rooms, the echo that lived there. About a loneliness that destroyed what it couldn't keep. They let the conversation drift to weather and meetings—the safe debris that doesn't touch anything. When there was nothing left to say, Claire said goodnight and the line went quiet.
 
@@ -5608,7 +5605,7 @@ And when she woke up, she felt nothing. Which told her everything she needed to 
 Three months later, Anna got the call.
 The phone was warm against her palm, the late-morning Manhattan light bleaching her desk a surgical white. She felt the familiar lift of adrenaline and the quieter undertow beneath it—calm, practiced, almost like breath held.
 
-"Congratulations, Anna. The board voted unanimously. You're in."
+— Congratulations, Anna. The board voted unanimously. You're in.
 
 She was the youngest board member in Henderson & Associates' seventy-year history. Forty-three years old. Power she'd dreamed of since Columbia.
 
@@ -5624,21 +5621,21 @@ The room smelled faintly of lemon oil and expensive leather. The reclaimed walnu
 
 She could almost feel Jane's presence. Watching. Approving. Measuring. A trace of memory—Jane's perfume, cool and precise—seemed to hang in the conditioned air.
 
-"Welcome, Anna," said David Chen, board chair. "We're thrilled to have you." His cufflinks flashed with the screen's reflected graphs; his voice carried the smooth edge of a man who had learned to make demands sound like favors.
+— Welcome, Anna, said David Chen, board chair. We're thrilled to have you. His cufflinks flashed with the screen's reflected graphs; his voice carried the smooth edge of a man who had learned to make demands sound like favors.
 
 The meeting covered quarterly numbers. Strategic planning. M&A pipeline. Anna contributed. Showed she belonged. Even as she spoke, she tracked the room—Patricia's measured nods, Gerald's conservative stillness, the way silence pooled before decisions.
 
 After, David pulled her aside.
 
-"Anna, I want you know I'm very aware of Jane's... situation."
+— Anna, I want you know I'm very aware of Jane's... situation.
 
-"Of course."
+— Of course.
 
-"The board wants to ensure we've moved past that chapter. That Henderson's reputation is intact."
+— The board wants to ensure we've moved past that chapter. That Henderson's reputation is intact.
 
-"I understand."
+— I understand.
 
-"Good. Because we're counting on you to represent a new generation of leadership. Ethical. Transparent. Clean."
+— Good. Because we're counting on you to represent a new generation of leadership. Ethical. Transparent. Clean.
 The words clicked into place like a compliance training module. Anna watched them pass over the table and vanish into the carpet.
 
 Anna smiled. "I won't let you down."
@@ -5657,13 +5654,13 @@ Anna filed it away and felt nothing. The quiet inside her had become reliable, l
 
 Sophie was fifteen now. Starting to think about colleges. Wanted to study medicine. As far from her mother's world as possible.
 
-"Do you hate me?" Anna asked once, over a lunch Sophie had agreed to out of obligation. The bistro was narrow, all white tile and soft brass; lemon in the water, a napkin folded with military precision. Sophie kept her phone face down and her shoulders squared.
+— Do you hate me? Anna asked once, over a lunch Sophie had agreed to out of obligation. The bistro was narrow, all white tile and soft brass; lemon in the water, a napkin folded with military precision. Sophie kept her phone face down and her shoulders squared.
 
 Sophie considered the question seriously. "No. I'm sad for you."
 
-"Why?"
+— Why?
 
-"Because you have everything you wanted and you're still empty."
+— Because you have everything you wanted and you're still empty.
 
 The insight was sharper than any accusation. It slid between ribs without resistance.
 
@@ -5675,27 +5672,27 @@ They'd started running out of things to talk about. The room's curated music cov
 
 Now they sat in expensive restaurants and made small talk about school, about friends, about nothing that mattered.
 
-"Do you ever think about her?" Jake asked one Sunday. The question arrived as gently as he did everything, and still it ruptured the surface.
+— Do you ever think about her? Jake asked one Sunday. The question arrived as gently as he did everything, and still it ruptured the surface.
 
-"Who?"
+— Who?
 
-"The woman who died. Jessica."
+— The woman who died. Jessica.
 
 Anna's blood went cold. "Sometimes. Why?" She set her fork down to keep from gripping it.
 
-"Dad said she was nice. That she made him happy for a while. Before."
+— Dad said she was nice. That she made him happy for a while. Before.
 
 Before she died. Before Anna killed her.
 
-"I'm sorry she's gone," Anna said carefully.
+— I'm sorry she's gone, Anna said carefully.
 
-"Me too. Dad cries about her sometimes. When he thinks no one's listening."
+— Me too. Dad cries about her sometimes. When he thinks no one's listening.
 
 Anna absorbed that. Andrew still grieved Jessica. Still mourned the woman Anna had murdered.
 
-"Your father loved her?"
+— Your father loved her?
 
-"I think so. Not like he loved you. But yeah."
+— I think so. Not like he loved you. But yeah.
 
 Anna paid the check. Drove Jake back to Andrew's house. Watched him run inside without looking back. She sat in the car and thought about how many lives she'd destroyed in service of her ambition. The dashboard clock ticked forward with the indifference of an instrument that only knows measure, not meaning.
 
@@ -5747,13 +5744,13 @@ Anna was fifty-eight when a young analyst asked her to coffee.
 
 Her name was Emma. Twenty-five. Hungry. Smart. Reminded Anna of herself at that age. They sat in the lobby café; steam hissed, grinders droned, and the marble table held their reflections like a second pair of faces.
 
-"I've been following your career," Emma said. "You're an inspiration. Everything you've built—it's incredible."
+— I've been following your career, Emma said. You're an inspiration. Everything you've built—it's incredible.
 
 Anna smiled. The same smile she'd perfected over decades. Warm. Hiding everything real. She knew exactly how many versions of that smile she owned, and which one recruiters, analysts, and board members preferred.
 
-"Thank you. That's kind."
+— Thank you. That's kind.
 
-"I wanted to ask—how did you do it? Balance everything? The board seat, the deals, the life?"
+— I wanted to ask—how did you do it? Balance everything? The board seat, the deals, the life?
 
 Anna thought about how to answer. Her mind, trained to triage, split the problem into columns: truth; utility.
 
@@ -5763,11 +5760,11 @@ The lie: "Discipline. Focus. Willingness to sacrifice."
 
 Emma leaned forward. "What did you sacrifice?"
 
-"Everything that wasn't essential."
+— Everything that wasn't essential.
 
-"Like what?"
+— Like what?
 
-"Relationships. Sleep. Peace of mind. The fantasy that you can have it all."
+— Relationships. Sleep. Peace of mind. The fantasy that you can have it all.
 
 Emma absorbed this. She didn't say it, but the question was there in her eyes—was it worth it?
 
@@ -5793,7 +5790,7 @@ Jake, twenty-four. Teaching art. Following his father's path. Spoke to Anna on h
 
 Andrew had died two years ago. Heart attack. Sudden. Anna had gone to the funeral. Stood in the back. Catherine—his widow—had been gracious. Her eyes were raw but steady; she held the folded program with both hands as if keeping the shape of him from collapsing.
 
-"He never stopped loving you," Catherine had said. "Even after everything. He never mentioned your name, but I saw in his face his heart was not with me." She said it gently, as if offering Anna something light enough to carry away when the flowers browned.
+— He never stopped loving you, Catherine had said. Even after everything. He never mentioned your name, but I saw in his face his heart was not with me. She said it gently, as if offering Anna something light enough to carry away when the flowers browned.
 
 Anna knew the truth Catherine didn't. Andrew had never stopped loving someone, but it wasn't Anna he pined for. It was Jessica. The woman Anna had murdered. The ghost that had haunted Andrew until his last breath. Catherine's grief was human; Anna's was a locked room.
 
@@ -5805,61 +5802,61 @@ She was sixty one. Gray hair. Thin. Softer somehow.
 
 They met for coffee. First time in almost two decades. The café was narrow and quiet, a long mirror along one wall multiplying the few occupied tables into a crowd that didn’t exist.
 
-"Anna. Thank you for agreeing to see me."
+— Anna. Thank you for agreeing to see me.
 
 Jane's voice was different. Quieter. Less sharp. Prison had sanded her edges; the sharpest thing about her was the little wooden cross digging a crescent into her collarbone.
 
-"I was curious," Anna said.
+— I was curious, Anna said.
 
-"I don't blame you." Jane folded her hands. "I found God in prison. I know how that sounds. Every convict finds God, right? But it was real for me."
+— I don't blame you. Jane folded her hands. I found God in prison. I know how that sounds. Every convict finds God, right? But it was real for me.
 
 Anna studied her. Looking for the manipulation. The angle. Found nothing but sincerity. Sincerity had always been Jane's most dangerous tool.
 
-"I'm glad for you," Anna said. The words came out sharper than she'd intended.
+— I'm glad for you, Anna said. The words came out sharper than she'd intended.
 
-"Are you? You look skeptical," Jane said, her voice gentle rather than accusing.
+— Are you? You look skeptical, Jane said, her voice gentle rather than accusing.
 
-"I am skeptical."
+— I am skeptical.
 
 Jane smiled sadly. "I don't blame you for that either. I spent twenty years manipulating you. Destroying you. Creating a monster in my own image."
 
-"I'm not a monster."
+— I'm not a monster.
 
-"Aren't you? Anna, I know what I did to you. The sabotage. The psychological warfare. Mia's death. Jessica's—" Jane paused. "I set you up to believe Jessica was your enemy. I wanted you to see that power requires sacrifice. That ambition demands blood."
+— Aren't you? Anna, I know what I did to you. The sabotage. The psychological warfare. Mia's death. Jessica's— Jane paused. I set you up to believe Jessica was your enemy. I wanted you to see that power requires sacrifice. That ambition demands blood.
 
 Anna's face remained neutral. She was good at stillness; it had become her most reliable armor.
 
-"I've spent fifteen years praying for your soul," Jane continued. "And mine. For Mia. For Jessica. For everyone we destroyed."
+— I've spent fifteen years praying for your soul, Jane continued. And mine. For Mia. For Jessica. For everyone we destroyed.
 
-"Jessica killed herself," Anna said carefully.
+— Jessica killed herself, Anna said carefully.
 
-"Did she? Or did someone break her first? Did someone make her death seem like the only option?" Jane's eyes were searching. Genuine. "I don't know what happened that night. But I know I created the circumstances. I know I'm responsible."
+— Did she? Or did someone break her first? Did someone make her death seem like the only option? Jane's eyes were searching. Genuine. I don't know what happened that night. But I know I created the circumstances. I know I'm responsible.
 
 Anna said nothing. A sudden urge to cry rose; she swallowed it.
 
-"I came here to apologize," Jane said. "And to beg you to find a way back to your humanity. Before it's too late. You're fifty-eight. You have time. You can still choose differently."
+— I came here to apologize, Jane said. And to beg you to find a way back to your humanity. Before it's too late. You're fifty-eight. You have time. You can still choose differently.
 
-"I like my choices." Choice was the mythology she polished daily until it gleamed.
+— I like my choices. Choice was the mythology she polished daily until it gleamed.
 
-"Do you? When's the last time you felt joy? Real joy? Not satisfaction from a deal, but actual happiness?"
+— Do you? When's the last time you felt joy? Real joy? Not satisfaction from a deal, but actual happiness?
 
-"I don't need joy. I have success."
+— I don't need joy. I have success.
 
 Jane looked at her with something like pity. "I had success too. And it cost me everything. Don't make my mistakes, Anna. Don't end up like me—sixty years old, alone, trying to atone for sins that can never be forgiven."
 
-"You have God now. Isn't that forgiveness?"
+— You have God now. Isn't that forgiveness?
 
-"God's forgiveness is easy. Human forgiveness—real forgiveness—that's what I'll never have. Mia's family will never forgive me. Andrew's family will never forgive me. And you—" Jane's voice broke. "You'll never forgive me. And you shouldn't."
+— God's forgiveness is easy. Human forgiveness—real forgiveness—that's what I'll never have. Mia's family will never forgive me. Andrew's family will never forgive me. And you— Jane's voice broke. You'll never forgive me. And you shouldn't.
 
 Anna stood. "I appreciate you reaching out. But I'm not interested in redemption. Or confession. Or whatever this is." She swallowed the sob that rose, again.
 
-"Anna, please—" Jane's eyes pleaded more than her words.
+— Anna, please— Jane's eyes pleaded more than her words.
 
-"I have a meeting," Anna said, her voice cold; composure restored.
+— I have a meeting, Anna said, her voice cold; composure restored.
 
-"Your soul is in danger—"
+— Your soul is in danger—
 
-"I don't have a soul anymore, Jane. You should know. You helped me kill it." They were the first words she'd spoken in years that felt human—a quiet, precise accusation. Jane stood motionless, eyes bright with unshed tears.
+— I don't have a soul anymore, Jane. You should know. You helped me kill it. They were the first words she'd spoken in years that felt human—a quiet, precise accusation. Jane stood motionless, eyes bright with unshed tears.
 
 Anna left.
 
@@ -5889,19 +5886,19 @@ Claire came. She always did. Now sixty as well, gray-haired, a grandmother three
 
 They had coffee after the others left. Steam lifted in thin ribbons; porcelain touched marble with a patient tap.
 
-"How are you?" Claire asked, hands cupped around the mug as if convincing it to stay warm.
+— How are you? Claire asked, hands cupped around the mug as if convincing it to stay warm.
 
-"Fine. Good."
+— Fine. Good.
 
-"Anna."
+— Anna.
 
-"Really. I'm fine." The lie sat perfectly in her mouth, polished with decades of use.
+— Really. I'm fine. The lie sat perfectly in her mouth, polished with decades of use.
 
 Claire looked at her with the same expression she'd had at Columbia. The one that said she knew Anna was lying but wouldn't push.
 
-"The grandkids are wonderful," Claire said. "You should meet them sometime."
+— The grandkids are wonderful, Claire said. You should meet them sometime.
 
-"I'd like that."
+— I'd like that.
 
 They both knew Anna wouldn't.
 
@@ -5930,31 +5927,31 @@ And that scared her more than the murder itself.
 
 The next board meeting, they discussed succession planning. The room was kept at a strategic sixty-eight degrees; beyond the glass, the river looked small and obedient.
 
-"Anna, you've been on the board for eighteen years," David said. He was eighty now. Retiring soon. His voice had thinned, papery against the air vents. "The chair position will be opening up. You should consider putting your name forward."
+— Anna, you've been on the board for eighteen years, David said. He was eighty now. Retiring soon. His voice had thinned, papery against the air vents. The chair position will be opening up. You should consider putting your name forward.
 
 Board chair. The top. The absolute peak.
 
-"I'd be honored to be considered."
+— I'd be honored to be considered.
 
-"There's one concern." Patricia, now sixty-nine. "Some members feel your history—with Jane, with the incidents twenty years ago—raises questions about judgment."
+— There's one concern. Patricia, now sixty-nine. Some members feel your history—with Jane, with the incidents twenty years ago—raises questions about judgment.
 
-"Those incidents were twenty years ago," Anna said calmly. "I was the victim. Not the perpetrator."
+— Those incidents were twenty years ago, Anna said calmly. I was the victim. Not the perpetrator.
 
-"Of course. But perception matters. The vote won't be for another few months. Think about how you want to position yourself."
+— Of course. But perception matters. The vote won't be for another few months. Think about how you want to position yourself.
 
-"My record speaks for itself. Eighteen years on this board. Countless successful deals. Zero scandals. Whatever I was then, I'm not now."
+— My record speaks for itself. Eighteen years on this board. Countless successful deals. Zero scandals. Whatever I was then, I'm not now.
 
-"And what are you now?" Patricia asked.
+— And what are you now? Patricia asked.
 
 Anna met her eyes. "Effective."
 
 After the meeting, David pulled her aside. The hallway carpet swallowed footsteps; framed tombstones of past deals lined the walls, silver plaques that pretended to be art.
 
-"You have my support, Anna. But not everyone's convinced. Gerald Morrison has been pushing for Jason Whitmore. Says he's more... traditional."
+— You have my support, Anna. But not everyone's convinced. Gerald Morrison has been pushing for Jason Whitmore. Says he's more... traditional.
 
-"Traditional."
+— Traditional.
 
-"You know what that means."
+— You know what that means.
 
 Anna knew exactly what that meant.
 
@@ -5962,27 +5959,27 @@ Anna knew exactly what that meant.
 
 That night, her phone rang. Unknown number. The line carried the hush of a chapel even before anyone spoke.
 
-"Hello?"
+— Hello?
 
-"Anna. It's Jane."
+— Anna. It's Jane.
 
 Jane's voice. Older. Softer than it had been three years ago at their coffee meeting. Still with that edge of absolute certainty.
 
-"What do you want?"
+— What do you want?
 
-"I heard David is retiring. The chair will be opening." A soft pause. "Be careful, Anna. I'm… worried about you." The gentleness in her voice didn’t belong to the woman who'd once built knives out of meetings.
+— I heard David is retiring. The chair will be opening. A soft pause. Be careful, Anna. I'm… worried about you. The gentleness in her voice didn’t belong to the woman who'd once built knives out of meetings.
 
-"I don't need your worry." It came out sharper than she meant.
+— I don't need your worry. It came out sharper than she meant.
 
-"Your soul, Anna. It's in danger. More now than ever. You're inches from the top, but you're standing on bones—Jessica's bones. Your humanity's."
+— Your soul, Anna. It's in danger. More now than ever. You're inches from the top, but you're standing on bones—Jessica's bones. Your humanity's.
 
-"We've had this conversation." And yet something moved—first time in years. A tremor, small and undeniable, as if a part of her she'd buried stirred at the sound of someone naming it.
+— We've had this conversation. And yet something moved—first time in years. A tremor, small and undeniable, as if a part of her she'd buried stirred at the sound of someone naming it.
 
-"And you still won't listen. The church I attend—there's a wonderful priest. Father Michael. He understands complicated pasts. He could help you find a way to—"
+— And you still won't listen. The church I attend—there's a wonderful priest. Father Michael. He understands complicated pasts. He could help you find a way to—
 
-"To what? Confess? Atone? I'm not interested in redemption, Jane."
+— To what? Confess? Atone? I'm not interested in redemption, Jane.
 
-"Then you'll die empty. Like I almost did. The power means nothing if—"
+— Then you'll die empty. Like I almost did. The power means nothing if—
 
 Anna hung up. Her cold rationale sealed itself over the small, shaking voice inside—the one that wanted Jane's help.
 
@@ -6056,21 +6053,21 @@ The hallway held its breath. The carpet swallowed sound. She was about to turn t
 
 Gerald Morrison—seventy-two, founding partner's grandson, old guard—and Richard Morrison, pushing seventy-five, old school to the bone.
 
-"I can't believe the chair is about to be vacant," Gerald was saying. "I've been thinking about who should take David's chair when he steps down."
+— I can't believe the chair is about to be vacant, Gerald was saying. I've been thinking about who should take David's chair when he steps down.
 
-"Anyone in mind?"
+— Anyone in mind?
 
-"Jason Whitmore. The pedigree. The relationships. The vision. You won't take it personally, will you?"
+— Jason Whitmore. The pedigree. The relationships. The vision. You won't take it personally, will you?
 
-"Never. I'm close to retiring myself." Richard paused. "But what about Anna? She's been working ferociously for this—eighteen years on the board."
+— Never. I'm close to retiring myself. Richard paused. But what about Anna? She's been working ferociously for this—eighteen years on the board.
 
 Gerald laughed. The sound made Anna's blood freeze.
 
-"Anna? No, I wouldn't let a woman close to the seat. Not in my lifetime. Look, between us—chair is real power. The relationships I've built, the decisions that actually matter. Jason understands how this world works. Anna's... tolerated. There's a difference."
+— Anna? No, I wouldn't let a woman close to the seat. Not in my lifetime. Look, between us—chair is real power. The relationships I've built, the decisions that actually matter. Jason understands how this world works. Anna's... tolerated. There's a difference.
 
-"She's effective, though."
+— She's effective, though.
 
-"Effective isn't enough. Jason's one of us. Forty years ago we allowed women on the board—isn't that enough? Power stays with us; only we have the cold rationale to make hard decisions."
+— Effective isn't enough. Jason's one of us. Forty years ago we allowed women on the board—isn't that enough? Power stays with us; only we have the cold rationale to make hard decisions.
 
 Their voices faded as they walked away.
 
@@ -6102,9 +6099,9 @@ She thought about Jane. About the years of careful manipulation. The patience. T
 
 The next morning, she called her assistant.
 
-"I need everything on Jason Whitmore's business dealings for the past decade. Quiet. Off the books. Personal project."
+— I need everything on Jason Whitmore's business dealings for the past decade. Quiet. Off the books. Personal project.
 
-"Of course, Ms. Park."
+— Of course, Ms. Park.
 
 Anna hung up and looked out at the city.
 
@@ -6145,4 +6142,3 @@ The cycle was starting again.
 This time she wouldn’t just pull the strings.
 
 She would take the chair.
-
